@@ -1,7 +1,7 @@
 ---
 title: "[New] Integrating Cognitive Science Into Organizational Leadership Practices"
-date: 2024-05-27 19:23:36
-updated: 2024-05-28 11:37:10
+date: 2024-06-05T15:59:14.817Z
+updated: 2024-06-06T15:59:14.817Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Integrating Cognitive Science Into Organizational Leadership Practices"
 excerpt: "This Article Describes [New] Integrating Cognitive Science Into Organizational Leadership Practices"
 keywords: "\"Leadership & Cognition,Cognitive Leadership,Leadership Insights,CogniLeading,OrgCog Science,Wisdom in Leadership,Learning-Driven Leaders\""
-thumbnail: https://www.lifewire.com/thmb/uNBWBp9bqIxL1S2DeSuE8_AGLAs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Tweet-Deck-Dashboard-56b34fa45f9b58def9c97d2d-356472198df246289bb2a97d7040aa0d.jpg
+thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad36698509cc3575ae5a17b1c.jpg
 ---
 
 ## Integrating Cognitive Science Into Organizational Leadership Practices
@@ -325,3 +325,31 @@ Richard Bennett
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/premier-top-selections-affordable-sbd-applications-for-2024/"><u>Premier Top Selections  Affordable SBD Applications for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-vloggers-ultimate-gear-list-17-100/"><u>[Updated] Vloggers' Ultimate Gear List #17-100</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-claim-cost-free-visuals-from-highest-rated-4-youtube-sources/"><u>[New] In 2024, Claim Cost-Free Visuals From Highest-Rated 4 YouTube Sources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-deeper-dive-into-youtube-seo-and-keywords/"><u>[New] In 2024, A Deeper Dive Into YouTube SEO and Keywords</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-scholarstreams-essential-educational-youtube-sites/"><u>[Updated] ScholarStreams  Essential Educational YouTube Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-tactics-for-increased-subscriber-count/"><u>[New] 2024 Approved  Engaging Tactics for Increased Subscriber Count</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tailoring-titles-and-tags-for-top-youtube-performance/"><u>[New] Tailoring Titles and Tags for Top YouTube Performance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digitally-delving-into-deleted-youtubes-easy-watch-options/"><u>[New] In 2024, Digitally Delving Into Deleted YouTubes  Easy Watch Options</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-speaking-through-slides-total-ppt-tutorial/"><u>[New] In 2024, Speaking Through Slides  Total PPT Tutorial</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-precision-capturing-of-gameplay-with-obs-studio/"><u>2024 Approved  Precision Capturing of Gameplay with OBS Studio</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-regulatory-guidelines-youtube-video-recording/"><u>[New] Regulatory Guidelines  YouTube Video Recording</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-meizu-21-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-realme-gt-5-240w-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Realme GT 5 (240W) on Windows</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-streaming-fb-content-on-apple-tv-a-step-by-step-guide/"><u>[New] Streaming FB Content on Apple TV  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-boosting-your-channels-free-tips-for-youtube-video-popularity/"><u>[New] Boosting Your Channels  Free Tips for YouTube Video Popularity</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/free-youtube-extractors-a-comprehensible-guide-for-beginners-for-2024/"><u>Free YouTube Extractors  A Comprehensible Guide for Beginners for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/the-ultimate-guide-to-finding-the-best-subtitle-edit-alternative-for-mac-for-2024/"><u>The Ultimate Guide to Finding the Best Subtitle Edit Alternative for Mac for 2024</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Visuals  The Science of YouTube Banners & Thumbnails for 2024\""
-date: 2024-06-03 19:56:10
-updated: 2024-06-04 11:50:16
+date: 2024-06-05T15:37:43.853Z
+updated: 2024-06-06T15:37:43.853Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Crafting Visuals: The Science of YouTube Banners & Thumbnails for 2024\""
 excerpt: "\"This Article Describes [New] Crafting Visuals: The Science of YouTube Banners & Thumbnails for 2024\""
 keywords: "\"YouTuber Visuals,Video Banner Art,Thumbnail Design,YouTube Promotion,Engaging Video Cover,Videography Marketing,Image-Based Branding\""
-thumbnail: https://www.lifewire.com/thmb/fxTkV6WtKE82Yk7N0Qz__P0Ie4k=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/ecotech_robothands_gettyimages-1179633351_koya79_cropped_1745_v3-c9e218ef95494c239b2edfb8294fe2a1.jpg
+thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad53016173b55a4a0650b3071.jpg
 ---
 
 ## Crafting Visuals: The Science of YouTube Banners & Thumbnails
@@ -78,3 +78,33 @@ Richard Bennett
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-engage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>[Updated] 2024 Approved  Engage Audiences  Writing Magical YouTube Description Templates for Higher Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unpacking-online-influence-your-channel-versus-competitors-strategies-for-2024/"><u>Unpacking Online Influence  Your Channel Versus Competitors' Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tips-for-stellar-video-conclusions-for-2024/"><u>Tips for Stellar Video Conclusions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boost-your-channels-popularity-optimal-post-dates-for-2024/"><u>[Updated] Boost Your Channel's Popularity - Optimal Post Dates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>[New] 2024 Approved  Channel Creation Chronicles  The Ultimate Beauty Blogging Start-Up</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-editing-tips-and-tricks-for-shorter-videos/"><u>[New] YouTube Editing  Tips and Tricks for Shorter Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ranking-the-top-16-youtube-intros-to-amplify-views/"><u>[Updated] Ranking the Top 16 YouTube Intros to Amplify Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-methods-unsettle-and-rearrange-your-video-list/"><u>[Updated] Rapid Methods  Unsettle and Rearrange Your Video List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-engagement-best-video-ideas-for-channels-for-2024/"><u>[New] Elevating Engagement  Best Video Ideas for Channels for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-mastering-aspect-ratio-rules-for-twitter-content/"><u>In 2024, Mastering Aspect Ratio Rules for Twitter Content</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-learn-to-produce-must-see-fb-music-videos-today/"><u>2024 Approved  Learn to Produce Must-See FB Music Videos Today</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-guide-twitter-video-enhancers/"><u>In 2024, Ultimate Guide  Twitter Video Enhancers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unleashing-creativity-time-lapse-on-samsung/"><u>[New] Unleashing Creativity  Time-Lapse on Samsung</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-nextv-networks-the-ultimate-streamers-global-guide/"><u>[New] NexTV Networks  The Ultimate Streamer's Global Guide</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-smartphone-video-editing-showdown-iphone-and-android-apps/"><u>Updated Smartphone Video Editing Showdown IPhone and Android Apps</u></a></li>
+<li><a href="https://change-location.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-expert-advice-on-valheim-seed-selection/"><u>[New] Expert Advice on Valheim Seed Selection</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>

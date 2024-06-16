@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Filmmaker’ Written by Michael Hickford and Mark Rapport, the Book Delves Into a Comprehensive History of Video Game Design, Development, Marketing, Sales, Law, Regulation, and Culture From Its Inception to Modern Day. It Explores How Games Evolved with Technology, Shifting Consumer Expectations, Global Distribution Challenges, and Societal Impacts."
-date: 2024-06-01 15:44:20
-updated: 2024-06-02 11:55:50
+date: 2024-06-05T16:23:49.353Z
+updated: 2024-06-06T16:23:49.353Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes In 2024, The Filmmaker’ Written by Michael Hickford and Mark Rapport, the Book Delves Into a Comprehensive History of Video Game Design, Development, Marketing, Sales, Law, Regulation, and Culture From Its Inception to Modern Day. It Explores How Games Evolved with Technology, Shifting Consumer Expectations, Global Distribution Challenges, and Societal Impacts."
 excerpt: "This Article Describes In 2024, The Filmmaker’ Written by Michael Hickford and Mark Rapport, the Book Delves Into a Comprehensive History of Video Game Design, Development, Marketing, Sales, Law, Regulation, and Culture From Its Inception to Modern Day. It Explores How Games Evolved with Technology, Shifting Consumer Expectations, Global Distribution Challenges, and Societal Impacts."
 keywords: "Video Game History,Film Design Evolution,Gaming Development Analysis,Marketing in Gaming,Tech Influence on Games,Consumer Expectations Shift,Global Gaming Impact"
-thumbnail: https://www.lifewire.com/thmb/uGlcYv-L56dzHpQafRHSaTb_cq8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-527803604-ad6f389c89ff4be1b953a3c2cdc64c09.jpg
+thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c465cacef45307df647411ca.jpg
 ---
 
 ## Multimedia Annotator
@@ -790,3 +790,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-guide-to-brighter-youtube-video-editing-for-2024/"><u>Step-by-Step Guide to Brighter YouTube Video Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-channel-profitability-famebit-powered-sponsorship-tactics-for-2024/"><u>[Updated] Boosting Channel Profitability  FameBit-Powered Sponsorship Tactics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-team-with-expert-talent-selections/"><u>[New] 2024 Approved  Elevate Your Team with Expert Talent Selections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-banish-youtube-shorts-forever-with-ease/"><u>[Updated] 2024 Approved  Banish YouTube Shorts Forever with Ease</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unique-conversation-starters-for-streaming/"><u>[New] Unique Conversation Starters for Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-becoming-a-youtube-guru-essential-production-know-how/"><u>[New] In 2024, Becoming a YouTube Guru  Essential Production Know-How</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-link-trimming-winners-select-the-top-5-apps/"><u>In 2024, Youtube's Link-Trimming Winners  Select the Top 5 Apps</u></a></li>
+<li><a href="https://techidaily.com/is-your-xiaomi-mix-fold-3-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Xiaomi Mix Fold 3 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/1713954176832-new-how-to-polish-your-music-video-edits-using-filmora-for-2024/"><u>New How to Polish Your Music Video Edits Using Filmora for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6-plus-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6 Plus To Other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-master-list-highest-rated-4k-blu-ray-player-models/"><u>In 2024, Master List  Highest Rated 4K Blu-Ray Player Models</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-tecno-pova-5-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Tecno Pova 5 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-2023-guide-to-best-in-class-professionals-spinning-cameras-for-2024/"><u>The 2023 Guide to Best-in-Class Professionals' Spinning Cameras for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-comprehensive-list-of-instagram-tracking-tools-for-better-decisions/"><u>[New] In 2024, The Comprehensive List of Instagram Tracking Tools for Better Decisions</u></a></li>
+</ul></div>
