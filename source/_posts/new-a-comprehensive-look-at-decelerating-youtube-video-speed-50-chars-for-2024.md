@@ -1,7 +1,7 @@
 ---
 title: "[New] A Comprehensive Look at Decelerating YouTube Video Speed (50 Chars) for 2024"
-date: 2024-06-05T16:31:23.780Z
-updated: 2024-06-06T16:31:23.780Z
+date: 2024-07-04T23:59:22.810Z
+updated: 2024-07-05T23:59:22.810Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ While, you can now change the speed of any YouTube videos easily and watch YouTu
 * Open the video in YouTube
 * Click the **Settings icon** on the bottom right and then you will see Autoplay, Annotations, Speed, Subtitles, and Quality options. By default, the speed is set to Normal. Click **Speed** and open the speed change options. The speed options are in multiples.
 
-![ change youtube speed ](https://images.wondershare.com/filmora/article-images/youtube-speed-change.jpg)
+![change youtube speed](https://images.wondershare.com/filmora/article-images/youtube-speed-change.jpg)
 
 * Choose the target video speed from 0.25x, 0.5x, 0.75x to slow down the play back speed of the YouTube video. You can also select 1.25x, 1.5x, 1.75x or 2x to fast forward this YouTube video depending on how fast or slow you want the playback of the YouTube video to be.
 * That’s it how to make a YouTube video slow down by changing the playback speed. If you selected 0.5X, you will see the playback speed is half of the original speed. You can now see the YouTube video is played back in a slower speed.
@@ -64,7 +64,7 @@ After downloading YouTube videos on hard disk, you can now import it to this You
 
 On the Timeline, click on the added YouTube video and select   **Speed and Duration** to open up the video custom speed window. You will see the Speed option, Duration, Reverse Speed and Ripple Edit options. and the speed number indicates fast or slow motion. To slow down the YouTube video, drag the speed slider to left and you get a slow down version of the YouTube video. You can slow down the YouTube video in 0.01x. Click the OK button to save the slow motion settings and then click the Play button in the preview windows to have a look at the new YouTube slow down video. You can also change the duration of the YouTube video to change the YouTube video speed. For example, if you want to slow down a 30-second YouTube video to half speed, you can just enter the duration to 60 seconds to get a slow down motion effect.
 
-![ YouTube Video slow down ](https://images.wondershare.com/filmora/article-images/reverse-speed-custom-speed.jpg)
+![YouTube Video slow down](https://images.wondershare.com/filmora/article-images/reverse-speed-custom-speed.jpg)
 
 With Filmora youtube video editor, you can also add the slow motion effects to some certain clips of the video footage. What you need to do is use the split feature to split the video first. Learn more details about [How to Cut / Split / Trim Videos without Quality Loss](https://tools.techidaily.com/wondershare/filmora/download/)
 

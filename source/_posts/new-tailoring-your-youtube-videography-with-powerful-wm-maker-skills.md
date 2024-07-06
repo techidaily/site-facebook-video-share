@@ -1,7 +1,7 @@
 ---
 title: "[New] Tailoring Your YouTube Videography with Powerful WM Maker Skills"
-date: 2024-06-05T13:58:20.950Z
-updated: 2024-06-06T13:58:20.950Z
+date: 2024-07-04T23:59:23.632Z
+updated: 2024-07-05T23:59:23.632Z
 tags:
   - ai video
   - ai youtube
@@ -90,7 +90,7 @@ After importing the new audio file for your YouTube video, you can now adjust th
 
 Windows Movie Maker allows you to add different types of text freely. You will see 3 buttons that allow different types of text to video: stationary title, captions and rolling credits. Click on **Title**, you can add text before the video begins; select **Caption**, you will write text to the video frames; and click **Credits** will add end credits to the end of the video.
 
-![ free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+![free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 After selecting the type of text you want, you can enter your text and edit the text effects. You can change the text duration and apply text visual effects, and change the text outline size and more.
 

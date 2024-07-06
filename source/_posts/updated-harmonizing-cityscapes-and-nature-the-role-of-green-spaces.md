@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Harmonizing Cityscapes and Nature  The Role of Green Spaces\""
-date: 2024-06-05T14:07:55.879Z
-updated: 2024-06-06T14:07:55.879Z
+date: 2024-07-04T23:59:26.402Z
+updated: 2024-07-05T23:59:26.402Z
 tags:
   - ai video
   - ai youtube
@@ -66,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/48dc7fa7b04b0f7445d8755963cdda5ac93794a2c
 * Open your YouTube account.
 * Click on My Channel
 
-![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -74,11 +74,11 @@ thumbnail: https://thmb.techidaily.com/48dc7fa7b04b0f7445d8755963cdda5ac93794a2c
 
 * Click on "About."
 
-![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
 * Then you can edit the channel description here
 
-![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/48dc7fa7b04b0f7445d8755963cdda5ac93794a2c
 
  Here we have also found out some useful tips for YouTube video description:
 
-![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 #### 1. Take full advantage of the First Line
 
