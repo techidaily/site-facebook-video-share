@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Quality without the Mic  A Practical Guide\""
-date: 2024-06-05T13:39:00.131Z
-updated: 2024-06-06T13:39:00.131Z
+date: 2024-08-01T06:48:45.234Z
+updated: 2024-08-02T06:48:45.234Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,9 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -61,6 +64,9 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -73,12 +79,19 @@ _The pompom used in this video cost $2, but you might already have something tha
 
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -95,10 +108,17 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -117,3 +137,56 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-10-masterpieces-in-job-market-insight-for-2024/"><u>[New] 10 Masterpieces in Job Market Insight for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-complete-guide-to-utilizing-youtubes-adsense-for-success/"><u>[New] 2024 Approved  A Complete Guide to Utilizing YouTube’s AdSense for Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-bonds-before-buying-subscription-strategies/"><u>[New] 2024 Approved  Building Bonds Before Buying  Subscription Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-comprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility/"><u>[New] 2024 Approved  Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creating-a-narrative-structure-in-online-video-tutorials/"><u>[New] 2024 Approved  Creating a Narrative Structure in Online Video Tutorials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-demystifying-the-mechanics-of-youtube-studio/"><u>[New] 2024 Approved  Demystifying the Mechanics of YouTube Studio</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-download-all-youtube-images-for-free/"><u>[New] 2024 Approved  Download All YouTube Images for Free</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-synching-sounds-with-visual-stories-on-ig/"><u>[New] 2024 Approved  Synching Sounds with Visual Stories on IG</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-preserving-itunes-content/"><u>[New] 2024 Approved  The Ultimate Guide to Preserving iTunes Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-adaptation-innovations-for-youtubers-videos-for-2024/"><u>[New] Audio Adaptation Innovations for YouTubers' Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-determinants-of-youtube-video-prominence-and-success-for-2024/"><u>[New] Determinants of YouTube Video Prominence and Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-avoiding-strikes-youtube-edition/"><u>[New] In 2024, Avoiding Strikes  YouTube Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-behind-the-scenes-of-gamers-elite-setup/"><u>[New] In 2024, Behind the Scenes of Gamers' Elite Setup</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-timeless-videos-with-historical-flair/"><u>[New] In 2024, Crafting Timeless Videos with Historical Flair</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-the-jargon-what-mcns-mean-for-you/"><u>[New] In 2024, Decoding the Jargon  What MCNs Mean for You</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-innovative-ideas-to-make-your-youtube-shorts-exceptional/"><u>[New] Innovative Ideas to Make Your YouTube Shorts Exceptional</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-key-strategies-for-adding-timestamps-in-youtube-content/"><u>[New] Key Strategies for Adding Timestamps in YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-loop-and-relish-youtube-videos-double-the-delight-on-tv/"><u>[New] Loop & Relish  YouTube Videos, Double the Delight on Tv</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlining-your-youtube-earnings-post-monetization-processes/"><u>[New] Streamlining Your YouTube Earnings Post-Monetization Processes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-teamwork-in-video-production-boosting-channel-size/"><u>[New] Teamwork in Video Production, Boosting Channel Size</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-best-wedding-stories-online-youtube-plus-vimeos-selection-8/"><u>[New] The Best Wedding Stories Online  YouTube + Vimeo's Selection (8)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-powerful-path-to-stellar-videos-top-free-intro-makers/"><u>[New] The Powerful Path to Stellar Videos  Top Free Intro Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-earning-on-youtube-shorts/"><u>[New] The Ultimate Guide to Earning on Youtube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-viral-verve-top-10-music-to-match-your-freshest-yt-shorts/"><u>[New] Viral Verve  Top 10 Music to Match Your Freshest YT Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-complimentary-access-to-50-premium-youtube-banners/"><u>[New] Your Complimentary Access to 50 Premium YouTube Banners</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-makeovers-made-easy-top-10-online-tools-for-artists/"><u>[Updated] 2024 Approved  Channel Makeovers Made Easy - Top 10 Online Tools for Artists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>[Updated] 2024 Approved  Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-mobile-youtube-usage-on-different-oses/"><u>[Updated] 2024 Approved  Exploring Mobile YouTube Usage on Different OSes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-bridging-creativity-and-engagement-anime-subscribe-buttons-with-filmora-for-2024/"><u>[Updated] Bridging Creativity & Engagement - Anime Subscribe Buttons with Filmora for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-cutting-edge-tips-for-live-rl-broadcasting-for-2024/"><u>[Updated] Cutting-Edge Tips for Live RL Broadcasting for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-12-top-tier-cameras-that-will-transform-your-vlogging-experience/"><u>[Updated] In 2024, 12 Top-Tier Cameras That Will Transform Your Vlogging Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-aspect-ratio-guide-for-youtube-creators/"><u>[Updated] In 2024, A Step-by-Step Aspect Ratio Guide for YouTube Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content/"><u>[Updated] In 2024, Become a Freelance Transcriber  Tips and Tricks for YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-breakdown-of-how-youtube-ad-revenue-works-cpm/"><u>[Updated] In 2024, Breakdown of How YouTube Ad Revenue Works (CPM)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-trending-video-reactions/"><u>[Updated] In 2024, Exploring Trending Video Reactions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-the-art-of-immutable-image-creation/"><u>[Updated] Master the Art of Immutable Image Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-free-software-for-turning-videos-into-files/"><u>[Updated] Top Free Software for Turning Videos Into Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-hottest-fifa-football-content-on-youtube/"><u>[Updated] Unveiling Hottest FIFA Football Content on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-peeling-back-the-layers-10-realities-about-instagram-reels/"><u>2024 Approved  Peeling Back the Layers  10 Realities About Instagram Reels</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-poco-x6-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ehensive-guide-to-crafting-engaging-youtube-outros/"><u>Comprehensive Guide to Crafting Engaging YouTube Outros</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/game-changers-discovering-top-tier-gaming-webcam-technology-for-2024/"><u>Game Changers  Discovering Top-Tier Gaming Webcam Technology for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/harnessing-skills-a-tailored-approach-to-graphic-careers/"><u>Harnessing Skills  A Tailored Approach to Graphic Careers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-amplifying-your-social-media-reach-with-zoom-plus-fb-live/"><u>In 2024, Amplifying Your Social Media Reach with ZOOM + FB Live</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-the-soundscapes-alliance-techniques-to-amalgamate-diverse-audio-for-seamless-videos/"><u>New 2024 Approved The Soundscapes Alliance Techniques to Amalgamate Diverse Audio for Seamless Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-your-broadcasting-automated-repeats-on-tv-for-2024/"><u>Perfect Your Broadcasting  Automated Repeats on TV for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/risky-business-buying-non-real-youtube-supporters-for-2024/"><u>Risky Business  Buying Non-Real YouTube Supporters for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-creation-of-gamers-channel-graphics-for-2024/"><u>Step-By-Step Creation of Gamers' Channel Graphics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essential-guide-to-a-bespoke-youtube-channel-url-for-2024/"><u>The Essential Guide to a Bespoke YouTube Channel URL for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-honor-magic-vs-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Honor Magic Vs 2 | Dr.fone</u></a></li>
+</ul></div>

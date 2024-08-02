@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Transform Viewership  SEO for the Newbie on YouTube\""
-date: 2024-06-05T16:03:03.842Z
-updated: 2024-06-06T16:03:03.842Z
+date: 2024-08-01T10:52:37.967Z
+updated: 2024-08-02T10:52:37.967Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 
 # The 12-step YouTube SEO Guide for Beginners Who Want More Views
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -38,6 +41,9 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -50,6 +56,9 @@ Wait, don’t go making the video yet. First, we have to do some research. We ne
 
 Do a quick search on YouTube to see what videos already exist on your topic.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
@@ -88,6 +97,9 @@ This app gives you a whole list of long-tail keywords, which are 3-4-word phrase
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
 
 ####  
@@ -156,6 +168,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -208,10 +224,16 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 Come on, keep going!
@@ -264,3 +286,45 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-guide-to-profit-sharing-for-creators-of-video-clips/"><u>[New] 2024 Approved  A Guide to Profit Sharing for Creators of Video Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enjoy-your-content-youtube-shorts-are-shown-again/"><u>[New] 2024 Approved  Enjoy Your Content – YouTube Shorts Are Shown Again</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-overcoming-obstacles-to-display-videos-prominently/"><u>[New] 2024 Approved  Overcoming Obstacles to Display Videos Prominently</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-tapestry-of-tech-loom-recording-explained/"><u>[New] 2024 Approved  The Tapestry of Tech  Loom Recording Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-comparative-analysis-androids-finest-video-downloaders-for-2024/"><u>[New] A Comparative Analysis  Android's Finest Video Downloaders for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-assessing-the-best-platform-for-individual-use-tiktok-vs-shorts-for-2024/"><u>[New] Assessing the Best Platform for Individual Use  TikTok vs Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-celebrating-beauty-innovators-youtubes-elite-list-for-2024/"><u>[New] Celebrating Beauty Innovators  YouTube's Elite List for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-comprehensively-understanding-ios-visual-record-function/"><u>[New] Comprehensively Understanding IO’s Visual Record Function</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-variety-50-complimentary-youtube-banners-available/"><u>[New] Discover Variety – 50 Complimentary YouTube Banners Available!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-insights-into-crafting-dynamic-youtube-shorts-templates-for-2024/"><u>[New] Expert Insights Into Crafting Dynamic YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-your-social-media-game-how-to-get-additional-free-filters/"><u>[New] In 2024, Elevate Your Social Media Game  How To Get Additional Free Filters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-insta-share-tips-for-posting-youtube-videos/"><u>[New] In 2024, Insta-Share  Tips for Posting YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-trendsetting-hashes-optimizing-hashtags-to-amplify-short-video-impact/"><u>[New] Trendsetting Hashes  Optimizing Hashtags to Amplify Short Video Impact</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-turboupload-the-ultimate-guide-to-fast-youtube-video-rendering/"><u>[New] TurboUpload  The Ultimate Guide to Fast YouTube Video Rendering</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-video-potential-the-art-of-youtube-live-360-streaming/"><u>[New] Unlocking Video Potential  The Art of YouTube Live 360 Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-secrets-to-youtube-success-12-proven-methods/"><u>[New] Unveiling the Secrets to YouTube Success  12 Proven Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-descriptions-revamped-by-template-professionals/"><u>[New] YouTube Descriptions Revamped by Template Professionals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-comprehensively-reviewed-list-of-youtube-video-extractor-apps-android/"><u>[Updated] 2024 Approved  A Comprehensively Reviewed List of YouTube Video Extractor Apps (Android)</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-initial-cinematographers-work-scrutiny-and-replacement-ideas/"><u>[Updated] 2024 Approved  Initial Cinematographer's Work Scrutiny & Replacement Ideas</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-enhance-visibility-with-any-channel-title-through-free-makers-for-2024/"><u>[Updated] Enhance Visibility With Any Channel Title Through Free Makers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-finest-wedding-cinematography-youtube-and-vimeos-selection/"><u>[Updated] Exploring the Finest Wedding Cinematography - Youtube & Vimeo's Selection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boost-engagement-and-traffic-with-these-top-video-marketing-moves/"><u>[Updated] In 2024, Boost Engagement and Traffic with These Top Video Marketing Moves</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-earn-extra-your-guide-to-joining-the-youtube-premium-club/"><u>[Updated] In 2024, Earn Extra  Your Guide to Joining the YouTube Premium Club</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-infusing-watermarks-in-youtube-content-for-trademarks/"><u>[Updated] Infusing Watermarks in YouTube Content for Trademarks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simplify-your-life-a-guide-on-quick-removal-of-youtube-feedback/"><u>[Updated] Simplify Your Life  A Guide on Quick Removal of YouTube Feedback</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-smartphone-viewing-at-its-peak-top-10-free-video-streamers/"><u>[Updated] Smartphone Viewing at Its Peak  Top 10 Free Video Streamers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-steps-to-uncover-youtubes-central-editing-nexus/"><u>[Updated] Steps to Uncover YouTube’s Central Editing Nexus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-subscriber-success-youtubes-best-practices/"><u>[Updated] Unlocking Subscriber Success  YouTube's Best Practices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-win-and-mac-mp3-converter-unlock-your-music-from-youtube/"><u>[Updated] Win & Mac MP3 Converter  Unlock Your Music From YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-how-to-preserve-your-gaming-moments-with-windows-10/"><u>2024 Approved  How to Preserve Your Gaming Moments with Windows 10</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-nokia-150-2023-screen-sharing-drfone-by-drfone-android/"><u>How To Do Nokia 150 (2023) Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-apple-iphone-se-2022-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-instant-view-enabling-fb-videos-to-play-by-themselves/"><u>In 2024, Instant View  Enabling FB Videos to Play By Themselves</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-is-active-setting-new-standards-in-screen-recording/"><u>In 2024, Is Active Setting New Standards in Screen Recording?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-iphone-se-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your iPhone SE</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-xiaomi-redmi-note-12-pro-4g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Xiaomi Redmi Note 12 Pro 4G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-what-lies-beneath-the-core-of-asmr-videos/"><u>In 2024, What Lies Beneath  The Core of ASMR Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/perfecting-your-youtube-experience-stop-previews-for-2024/"><u>Perfecting Your YouTube Experience - Stop Previews for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-oppo-find-n3-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Oppo Find N3 Location | Dr.fone</u></a></li>
+</ul></div>

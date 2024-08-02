@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Life  A Guide on Quick Removal of YouTube Feedback for 2024\""
-date: 2024-06-05T13:22:46.192Z
-updated: 2024-06-06T13:22:46.192Z
+date: 2024-08-01T06:21:28.787Z
+updated: 2024-08-02T06:21:28.787Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,9 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -101,8 +104,15 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -110,14 +120,23 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -142,3 +161,47 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-picks-laptops-that-transform-raw-footage/"><u>[New] 2024 Approved  Expert Picks  Laptops That Transform Raw Footage</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-no-cost-high-quality-tiktok-videos-for-mac-computers/"><u>[New] 2024 Approved  No-Cost, High-Quality TikTok Videos for Mac Computers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-beat-makers-paradise-downloading-premium-dj-visuals-for-2024/"><u>[New] Beat Makers' Paradise  Downloading Premium DJ Visuals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-charting-social-media-trends-with-data-graphics-for-2024/"><u>[New] Charting Social Media Trends with Data Graphics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-youtube-presence-with-masterful-editing-skills-for-2024/"><u>[New] Elevate Your YouTube Presence with Masterful Editing Skills for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-video-marketing-with-youtube-thumbnails-for-2024/"><u>[New] Elevating Video Marketing with YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-insights-into-youtube-thumbnail-design-for-2024/"><u>[New] Expert Insights Into YouTube Thumbnail Design for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-video-to-music-selecting-the-cheapest-online-converters-for-2024/"><u>[New] From Video to Music  Selecting the Cheapest Online Converters for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-frosty-frameworks-for-warm-video-productions/"><u>[New] Frosty Frameworks for Warm Video Productions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-masterful-ad-blocking-select-from-these-top-7-android-apps/"><u>[New] Masterful Ad Blocking  Select From These Top 7 Android Apps</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-photoshops-powerful-tool-image-curving-techniques/"><u>[New] Photoshop's Powerful Tool  Image Curving Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-turning-beauty-blogging-into-cash/"><u>[New] Turning Beauty Blogging Into Cash</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-gear-premium-lenses-for-vloggers/"><u>[New] Ultimate Gear  Premium Lenses for Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10-ultimate-immersive-vr-video-hits-for-2024/"><u>[Updated] 10 Ultimate Immersive VR Video Hits for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-your-channels-free-tips-for-youtube-video-popularity/"><u>[Updated] 2024 Approved  Boosting Your Channels  Free Tips for YouTube Video Popularity</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-disseminating-your-work-sharing-igtv-on-facebook-for-2024/"><u>[Updated] Disseminating Your Work  Sharing IGTV on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-guide-share-youtube-vids-with-fb-friends/"><u>[Updated] In 2024, A Step-by-Step Guide  Share YouTube Vids with FB Friends</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-amplify-video-dynamics-a-guide-to-perfecting-jump-cutting/"><u>[Updated] In 2024, Amplify Video Dynamics  A Guide to Perfecting Jump Cutting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-tips-adding-captions-in-youtube-videos/"><u>[Updated] Quick Tips  Adding Captions in YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-transforming-spontaneitous-tunes-into-structured-youtube-playlists/"><u>[Updated] Transforming Spontaneitous Tunes Into Structured YouTube Playlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-blueprint-to-youtube-success-top-tips-for-outstanding-shorts/"><u>[Updated] Your Blueprint to Youtube Success  Top Tips for Outstanding Shorts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-how-to-for-advanced-snapchat-image-tweaks/"><u>2024 Approved  The Ultimate How-To for Advanced Snapchat Image Tweaks</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-motorola-edge-40-pro-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Motorola Edge 40 Pro Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/achieve-xbox-broadcast-excellence-on-facebook-for-2024/"><u>Achieve Xbox Broadcast Excellence on Facebook for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/bypass-quick-access-initiate-file-explorer-via-onedrive-link/"><u>Bypass Quick Access: Initiate File Explorer via OneDrive Link</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/connect-and-entertain-stream-xbox-games-on-the-worlds-stage-facebook/"><u>Connect & Entertain  Stream Xbox Games on the World's Stage - Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-find-x6-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo Find X6 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-vivo-v27-pro-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Vivo V27 Pro Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-corrections-for-iphone-shot-blur-issues-for-2024/"><u>Quick Corrections for iPhone Shot Blur Issues for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revolutionary-process-to-blend-gopro-videos-into-360-degree-panoramas-for-2024/"><u>Revolutionary Process to Blend GoPro Videos Into 360-Degree Panoramas for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-15-list-of-expert-recommended-gif-maker-apps-for-2024/"><u>The Ultimate 15 List of Expert-Recommended GIF Maker Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-fostering-viewer-commitment-in-youtube-videos-for-2024/"><u>The Ultimate Guide to Fostering Viewer Commitment in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-5-free-youtube-video-editor-apps-for-apple-users-for-2024/"><u>Top 5 Free YouTube Video Editor Apps for Apple Users for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-guide-to-top-5-premium-4k-color-screens/"><u>Ultimate Guide to Top 5 Premium 4K Color Screens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-creativity-with-youtube-clips-make-animation-gifs-easily-for-2024/"><u>Unleash Creativity with YouTube Clips - Make Animation GIFs Easily for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sh-your-youtube-channels-full-potential-with-profitable-trailers/"><u>Unleash Your YouTube Channels' Full Potential with Profitable Trailers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/visionaries-of-marvellous-marvel-realities-for-2024/"><u>Visionaries of Marvellous Marvel Realities for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-tecno-phantom-v-fold-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Tecno Phantom V Fold Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "What Financial Gain Stems From One Million YouTube Eyeballs, In 2024"
-date: 2024-06-05T15:02:05.340Z
-updated: 2024-06-06T15:02:05.340Z
+date: 2024-08-01T09:07:47.383Z
+updated: 2024-08-02T09:07:47.383Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ When you hit 1 million views on any video on YouTube, you'll have a nice paychec
 
 04 [How monetization is changing](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -54,6 +57,9 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Understanding CPM and CPCs
 
 ### What is CPM?
@@ -64,6 +70,82 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
+### What is CPC?
+
+CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
+## Changes on YouTube and How You Can Earn More
+
+Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
+
+Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
+
+[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
+
+Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
+
+[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
+
+So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
+
+#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+02 [How is the revenue calculated?](#part2)
+
+03 [CPMs and CPCs](#part3)
+
+04 [How monetization is changing](#part4)
+
+## $2000 for 1 Million Views
+
+In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
+
+Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
+
+If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## How Revenue is Calculated
+
+In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
+
+In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
+
+As of February 2018, to qualify for ad revenue, the YouTube channel must have:
+
+1\. You will need to have 1,000 subscribers.
+
+2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
+
+The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
+
+## Understanding CPM and CPCs
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+### What is CPM?
+
+CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
+
+Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
+
+For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
@@ -118,6 +200,9 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Understanding CPM and CPCs
 
 ### What is CPM?
@@ -152,6 +237,9 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 02 [How is the revenue calculated?](#part2)
@@ -160,6 +248,9 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 04 [How monetization is changing](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -168,6 +259,9 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Revenue is Calculated
 
 In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
@@ -192,74 +286,16 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
-## Changes on YouTube and How You Can Earn More
-
-Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
-
-Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
-
-[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
-
-Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
-
-[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
-
-So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
-
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-02 [How is the revenue calculated?](#part2)
-
-03 [CPMs and CPCs](#part3)
-
-04 [How monetization is changing](#part4)
-
-## $2000 for 1 Million Views
-
-In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
-
-Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
-
-If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
-
-## How Revenue is Calculated
-
-In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
-
-In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
-
-As of February 2018, to qualify for ad revenue, the YouTube channel must have:
-
-1\. You will need to have 1,000 subscribers.
-
-2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
-
-The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
-
-## Understanding CPM and CPCs
-
-### What is CPM?
-
-CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
-
-Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
-
-For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
-
-### What is CPC?
-
-CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## Changes on YouTube and How You Can Earn More
 
 Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
@@ -294,10 +330,16 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## Making FX Magic: A Novice's Step Into Animated Worlds
 
 # How to Animate and Make Your Own Effects
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -322,6 +364,70 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 [Video Copilot](#videocopilot)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+ ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
+
+ All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
+## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+
+On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
+
+## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+
+Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
+
+What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
+
+## **[Bloop Animation](https://www.bloopanimation.com/)**
+
+ Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **[Video Copilot](http://www.videocopilot.net/)**
+
+This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Do you like the animated elements in Wondershare Filmora? Do you want to learn how to make your own?
+
+A little while ago, we posted a list of YouTube channels where you could [get free green screen effects](https://tools.techidaily.com/wondershare/filmora/download/). All of these effects consisted of animations on green backgrounds. To use them, you pull the clip into the PIP track of your Filmora project and use the green screen feature to make the background transparent. It’s pretty easy.
+
+In this post, we’re going to kick things up a bit. Here is a list of places where you can get free lessons on creating your own animated video effects.
+
+**Animated Video Effect Courses:**
+
+[Mt. Mograph](#mtmograph)
+
+[Richard Harrington on Lynda](#lynda)
+
+[Bloop Animation](#bloop)
+
+[Video Copilot](#videocopilot)
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
  ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
@@ -374,24 +480,40 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 [Video Copilot](#videocopilot)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
  ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
@@ -430,6 +552,9 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
@@ -440,58 +565,9 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-## **[Bloop Animation](https://www.bloopanimation.com/)**
-
- Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
-
-## **[Video Copilot](http://www.videocopilot.net/)**
-
-This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Nov 01, 2022• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Do you like the animated elements in Wondershare Filmora? Do you want to learn how to make your own?
-
-A little while ago, we posted a list of YouTube channels where you could [get free green screen effects](https://tools.techidaily.com/wondershare/filmora/download/). All of these effects consisted of animations on green backgrounds. To use them, you pull the clip into the PIP track of your Filmora project and use the green screen feature to make the background transparent. It’s pretty easy.
-
-In this post, we’re going to kick things up a bit. Here is a list of places where you can get free lessons on creating your own animated video effects.
-
-**Animated Video Effect Courses:**
-
-[Mt. Mograph](#mtmograph)
-
-[Richard Harrington on Lynda](#lynda)
-
-[Bloop Animation](#bloop)
-
-[Video Copilot](#videocopilot)
-
- ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
-
- All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
-
-## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
-
-On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
-
-Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
-
-What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
@@ -522,3 +598,60 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-earning-potential-for-creators-in-youtube-ads/"><u>[New] 2024 Approved  Earning Potential for Creators in YouTube Ads?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-art-of-amplification-a-comprehensive-guide-to-sharing-videos-on-facebook/"><u>[New] 2024 Approved  The Art of Amplification  A Comprehensive Guide to Sharing Videos on Facebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-4k-spectacle-top-10-monitors-compatible-with-macs-for-2024/"><u>[New] 4K Spectacle  Top 10 Monitors Compatible with Macs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-download-youtube-playlists-without-hassle-our-guide-for-2024/"><u>[New] Download YouTube Playlists Without Hassle - Our Guide for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-google-cardboard-vs-samsung-gear-vr/"><u>[New] Google Cardboard Vs. Samsung Gear VR</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-does-the-law-apply-to-video-sharing-on-facebook-for-2024/"><u>[New] How Does the Law Apply to Video Sharing on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-how-to-download-part-of-a-youtube-videos-in-2024/"><u>[New] How to Download Part of a YouTube Videos, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-leveraging-youtubes-profit-potential-the-500-subscribers-gateway/"><u>[New] Leveraging YouTube's Profit Potential  The 500 Subscribers Gateway</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-masterclass-guide-top-free-apps-for-iphone-and-ipad-edits/"><u>[New] Masterclass Guide  Top Free Apps for iPhone & iPad Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-mobile-smartphones-and-youtube-success/"><u>[New] Maximizing Mobile  Smartphones & YouTube Success</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-scripting-success-the-art-of-good-documentaries-for-2024/"><u>[New] Scripting Success  The Art of Good Documentaries for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-pathway-to-streaming-google-meet-on-youtube-procedures/"><u>[New] The Pathway to Streaming  Google Meet on YouTube Procedures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-right-tools-for-your-youtube-journey-camera-lenses-explained/"><u>[New] The Right Tools For Your YouTube Journey - Camera Lenses Explained</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-top-8-multiparty-android-conferencing-apps-for-2024/"><u>[New] The Top 8 Multiparty Android Conferencing Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-list-of-5-gaming-audio-experts/"><u>[New] The Ultimate List of 5 Gaming Audio Experts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-15-royalty-free-music-hideouts-for-video-artists/"><u>[New] Top 15 Royalty-Free Music Hideouts for Video Artists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-youtube-traffic-outsmarting-automated-viewers/"><u>[Updated] 2024 Approved  Boosting YouTube Traffic  Outsmarting Automated Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-charting-a-course-through-yts-creative-space/"><u>[Updated] 2024 Approved  Charting a Course Through YT's Creative Space</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-video-game-youtube-production-mastery/"><u>[Updated] 2024 Approved  Elevate Your Video Game  YouTube Production Mastery</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-exploring-the-dynamics-of-profit-distribution-in-video-shorts/"><u>[Updated] 2024 Approved  Exploring the Dynamics of Profit Distribution in Video Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-blitz-30-second-guide-to-fast-thumbnails-for-2024/"><u>[Updated] Blitz  30-Second Guide to Fast Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-breakthrough-tools-an-analysis-of-the-top-10-cost-effective-video-design-schools-on-youtube-for-2024/"><u>[Updated] Breakthrough Tools  An Analysis of the Top 10 Cost-Effective Video Design Schools on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-drafting-dynamic-denouements-for-2024/"><u>[Updated] Drafting Dynamic Denouements for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-channelenas-expensive-check-out-our-11-free-name-generators-guide-for-2024/"><u>[Updated] Elevate Your Channel'enas Expensive? Check Out Our 11 Free Name Generators Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-insights-into-crafting-dynamic-youtube-shorts-templates-for-2024/"><u>[Updated] Expert Insights Into Crafting Dynamic YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-perks-and-pitfalls-of-mcn-alliances-for-2024/"><u>[Updated] Exploring the Perks and Pitfalls of MCN Alliances for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-monetize-your-youtube-shorts-simple-steps/"><u>[Updated] How to Monetize Your YouTube Shorts  Simple Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-a-noiseless-presence-on-social-video-platforms/"><u>[Updated] In 2024, Achieving a Noiseless Presence on Social Video Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-detailed-insights-into-youtubes-perfected-aspect-ratios/"><u>[Updated] In 2024, Detailed Insights Into YouTube's Perfected Aspect Ratios</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-effortless-screen-recording-on-modern-pcs/"><u>[Updated] In 2024, Effortless Screen Recording on Modern PCs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>[Updated] In 2024, Experience the New  Unleash a Set of 50 Designs for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-inside-look-at-optimizing-channels-in-youtube-studio/"><u>[Updated] Inside Look at Optimizing Channels in YouTube Studio</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-iphones-high-dynamic-range-step-by-step-guide-for-2024/"><u>[Updated] IPhone's High Dynamic Range  Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-making-an-impact-professional-thumbnail-design-for-youtube/"><u>[Updated] Making an Impact  Professional Thumbnail Design for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-novice-net-worth-easy-sites-for-beginners-channel-buys/"><u>[Updated] Novice Net Worth  Easy Sites for Beginner's Channel Buys</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-and-easy-snapchat-image-manipulation-techniques-for-2024/"><u>[Updated] Quick and Easy Snapchat Image Manipulation Techniques for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-ultimate-list-of-engaging-moba-titles-on-android/"><u>[Updated] The Ultimate List of Engaging MOBA Titles on Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-viral-video-potential-analyzing-dslr-and-mirrorless-cameras/"><u>[Updated] Viral Video Potential  Analyzing DSLR and Mirrorless Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-secret-to-success-a-compre-ffive-essential-keyword-tools/"><u>[Updated] YouTube's Secret to Success  A Compre FFive Essential Keyword Tools</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-navigating-the-world-of-screen-capture-nvidia-edition/"><u>2024 Approved  Navigating the World of Screen Capture  NVIDIA Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-link-trimming-winners-select-the-top-5-apps/"><u>2024 Approved  Youtube's Link-Trimming Winners  Select the Top 5 Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/1715860493617-capturing-screen-content-via-built-in-recorders-in-the-mate-and-p-series-for-2024/"><u>Capturing Screen Content via Built-In Recorders in the Mate and P Series. For 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-civi-3-disney-100th-anniversary-edition-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Xiaomi Civi 3 Disney 100th Anniversary Edition has native HEVC support?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-6-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 6 Online</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Does find my friends work on Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-insiders-guide-to-the-vr-lexicon-essentials/"><u>In 2024, Insider's Guide to the VR Lexicon Essentials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ranking-the-top-value-video-resources-online-for-2024/"><u>Ranking the Top Value Video Resources Online for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/the-art-of-advertising-making-money-on-the-worlds-social-network-for-2024/"><u>The Art of Advertising  Making Money on the World's Social Network for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-beginners-checklist-8-key-slip-ups-in-youtube-creation-for-2024/"><u>The Beginner's Checklist  8 Key Slip-Ups in YouTube Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-realities-of-youtube-view-calculation-for-2024/"><u>The Realities of YouTube View Calculation for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/tips-for-incorporating-songs-in-instagram-stories-withwithout/"><u>Tips for Incorporating Songs in Instagram Stories (With/Without)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-best-memes-right-now-include-image-gifvideo/"><u>Updated 10 Best Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/warriors-of-cyberspace-top-ten-female-youtubers-for-2024/"><u>Warriors of Cyberspace  Top Ten Female YouTubers for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-06-05T12:49:29.580Z
-updated: 2024-06-06T12:49:29.580Z
+date: 2024-08-01T05:25:25.661Z
+updated: 2024-08-02T05:25:25.661Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/fb4a67269b09db2a7f2f5849b8bae34d180258d63
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,6 +35,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -45,12 +51,18 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
 * Click on the "Video Manager" tab
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
@@ -67,6 +79,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -80,6 +95,9 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -134,3 +152,38 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-guide-to-writing-click-worthy-youtube-titles/"><u>[New] 2024 Approved  Essential Guide to Writing Click-Worthy Youtube Titles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-your-gaming-channel-on-youtube-for-2024/"><u>[New] Crafting Your Gaming Channel on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-visual-experience-youtubes-quality-boosting-guide-for-2024/"><u>[New] Elevating Visual Experience  YouTube's Quality Boosting Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-calculating-clickers-contribution-to-youtube-earnings/"><u>[New] In 2024, Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-downloading-standardized-youtube-images-with-ease-and-precision/"><u>[New] In 2024, Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-peak-performance-cameras-for-high-speed-sports/"><u>[New] Peak Performance Cameras for High-Speed Sports</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-step-by-step-mac-techniques-to-edit-srt-files/"><u>[New] Step-by-Step Mac Techniques to Edit SRT Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-accelerated-conversion-of-yt-content-for-mac-screens/"><u>[Updated] 2024 Approved  Accelerated Conversion of YT Content for MAC Screens</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dissecting-inshot-an-elite-video-editor-examined/"><u>[Updated] Dissecting InShot  An Elite Video Editor Examined</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harnessing-technology-the-art-of-capturing-ios-devices-in-media/"><u>[Updated] Harnessing Technology  The Art of Capturing iOS Devices in Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-creativity-choosing-high-quality-camera-lenses/"><u>[Updated] In 2024, Cutting Edge Creativity  Choosing High-Quality Camera Lenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ease-and-speed-effective-methods-for-comment-removal/"><u>[Updated] In 2024, Ease and Speed  Effective Methods for Comment Removal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effective-color-difference-filters-in-film-making/"><u>[Updated] In 2024, Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-loop-video-magic-keep-your-followers-hooked-with-instagram-boomers-for-2024/"><u>[Updated] Loop Video Magic  Keep Your Followers Hooked with Instagram Boomers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-professional-thumbnails-from-your-phone-for-youtube/"><u>[Updated] Professional Thumbnails From Your Phone for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-profit-strategies-in-youtube-marketing/"><u>[Updated] Profit Strategies in YouTube Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-inserting-timestamps-in-youtube-urls/"><u>[Updated] The Ultimate Guide to Inserting Timestamps in YouTube URLs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[Updated] Top Choices  Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-uncover-free-photo-and-video-resources-from-esteemed-4-online-sources/"><u>[Updated] Uncover Free Photo and Video Resources From Esteemed 4 Online Sources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-power-of-social-sharing-for-your-youtube-videos/"><u>[Updated] Unlock the Power of Social Sharing for Your YouTube Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastery-of-magnified-mining-maps/"><u>2024 Approved  Mastery of Magnified Mining Maps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-return-crafting-kit/"><u>2024 Approved  Return Crafting Kit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-sky-high-selfies-and-beyond-an-insightful-analysis-of-dji-spark/"><u>2024 Approved  Sky High Selfies and Beyond  An Insightful Analysis of DJI Spark</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-elite-gear-top-5-video-chat-headsets/"><u>2024 Approved  YouTube's Elite Gear  Top 5 Video Chat Headsets</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-motorola-moto-g23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-streaming-setup-leading-livestream-hardware-and-software-guide/"><u>Best Streaming Setup  Leading Livestream Hardware & Software Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-orchestrating-a-journey-through-hidden-youtube-archives/"><u>In 2024, Orchestrating a Journey Through Hidden YouTube Archives</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-your-sierra-cloud-storage-effortlessly-for-2024/"><u>Navigating Your Sierra Cloud Storage Effortlessly for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/self-balancing-snap-shots-without-supports-for-2024/"><u>Self-Balancing  Snap Shots Without Supports for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-strategies-how-to-create-stellar-youtube-shorts-for-2024/"><u>Step-by-Step Strategies  How to Create Stellar YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/techniques-for-swiftly-cleaning-your-youtube-buffered-queue-for-2024/"><u>Techniques for Swiftly Cleaning Your YouTube Buffered Queue for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YouTube's Elite Annual Showcases (Post-VidCon)\""
-date: 2024-06-05T15:31:26.051Z
-updated: 2024-06-06T15:31:26.051Z
+date: 2024-08-01T09:58:24.873Z
+updated: 2024-08-02T09:58:24.873Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,9 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -50,6 +53,9 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 **VidCon Australia:** August/September
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
@@ -78,6 +84,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -112,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -136,6 +150,9 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -210,6 +227,9 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -226,3 +246,46 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-battle-royale-queens-top-10-female-youtubers/"><u>[New] 2024 Approved  Battle Royale Queens  Top 10 Female YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-blurring-identity-erasing-faces-from-video-content/"><u>[New] 2024 Approved  Blurring Identity  Erasing Faces From Video Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-video-edits-without-spending-navigate-through-the-8-tools/"><u>[New] 2024 Approved  Cutting-Edge Video Edits Without Spending  Navigate Through The 8 Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-a-complete-breakdown-of-2024s-video-show-features/"><u>[New] A Complete Breakdown of 2024'S Video Show Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-comedy-in-catchy-notes-best-parody-songs-list-for-2024/"><u>[New] Comedy in Catchy Notes  Best Parody Songs List for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-dazzle-and-stand-out-50-free-youtube-branding-pieces/"><u>[New] Dazzle and Stand Out  50 FREE YouTube Branding Pieces!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-dimensions-the-key-to-perfect-aspect-ratios-in-video-for-2024/"><u>[New] Decoding Dimensions  The Key to Perfect Aspect Ratios in Video for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-pick-mics-for-youtube-entrepreneurs-for-2024/"><u>[New] Expert Pick  Mics for YouTube Entrepreneurs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-learning-luminaries-leading-ed-tutorials-online/"><u>[New] Learning Luminaries  Leading Ed Tutorials Online</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quirky-quirks-your-simple-steps-for-memelore-mastery/"><u>[New] Quirky Quirks  Your Simple Steps for Memelore Mastery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-path-from-conceptualization-to-consuming-your-mukbang-masterpiece/"><u>[New] The Path From Conceptualization to Consuming Your Mukbang Masterpiece</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-smart-way-to-enhance-your-youtube-presence-legally/"><u>[New] The Smart Way to Enhance Your YouTube Presence Legally</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unparalleled-selection-of-budget-stock-media-sites/"><u>[New] Unparalleled Selection of Budget Stock Media Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-complete-list-of-creative-and-catchy-youtube-channel-titles-for-modern-blogging-maximum-length-156-characters/"><u>[Updated] 2024 Approved  A Complete List of Creative and Catchy YouTube Channel Titles for Modern Blogging (Maximum Length  156 Characters)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ahead-of-tomorrow-key-youtube-gatherings-post-vidcon/"><u>[Updated] 2024 Approved  Ahead of Tomorrow  Key Youtube Gatherings (Post-VidCon)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-breakthrough-in-video-production-advanced-techniques-for-uploading-360-content-on-youtube/"><u>[Updated] 2024 Approved  Breakthrough in Video Production  Advanced Techniques for Uploading 360° Content on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-visuals-the-science-of-youtube-banners-and-thumbnails/"><u>[Updated] 2024 Approved  Crafting Visuals  The Science of YouTube Banners & Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-designing-youtube-ads-that-grab-attention-a-compreeher-guide/"><u>[Updated] 2024 Approved  Designing Youtube Ads That Grab Attention  A Compreeher Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficient-viewing-the-comprehensive-guide-for-creating-youtube-watch-later-lists-for-2024/"><u>[Updated] Efficient Viewing  The Comprehensive Guide for Creating YouTube Watch Later Lists for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-a-comprehensive-guide-to-online-podcast-recording/"><u>[Updated] In 2024, A Comprehensive Guide to Online Podcast Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhancing-your-visual-mark-implementing-neon-edged-youtubes/"><u>[Updated] In 2024, Enhancing Your Visual Mark  Implementing Neon-Edged YouTubes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exclusive-mcb-logo-designs-and-templates/"><u>[Updated] In 2024, Exclusive MCB Logo Designs and Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simplify-stream-sideswapping-youtube-playlist-tips/"><u>[Updated] Simplify Stream-Sideswapping  Youtube Playlist Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-8-youtuber-blunders-to-avoid-and-why-theyre-common/"><u>[Updated] Top 8 Youtuber Blunders to Avoid and Why They're Common</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-transforming-your-vlog-video-structure-with-jump-cuts/"><u>[Updated] Transforming Your Vlog Video Structure with Jump Cuts</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-samsung-galaxy-m14-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/feast-filming-101-essential-food-videography-skills-for-2024/"><u>Feast Filming 101  Essential Food Videography Skills for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/from-vaults-to-viewers-streaming-video-archives-onto-facebook/"><u>From Vaults to Viewers  Streaming Video Archives Onto Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-samsung-galaxy-xcover-7-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Samsung Galaxy XCover 7 Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/how-to-create-a-live-stream-on-youtube-with-the-best-webcams-for-2024/"><u>How to Create a Live Stream on YouTube With the Best Webcams for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-how-to-use-cartoon-face-lens-in-snapchat/"><u>In 2024, How to Use Cartoon Face Lens in Snapchat?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/navigating-the-world-of-ig-data-an-expert-guide-to-understanding-metrics/"><u>Navigating the World of IG Data  An Expert Guide to Understanding Metrics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/online-video-leaderships-who-takes-the-crown-vimeo-youtubes-and-dailymotions-for-2024/"><u>Online Video Leaderships  Who Takes the Crown – Vimeo, YouTubes & DailyMotions for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/overcome-blurred-images-the-best-online-enhancers-listed-for-2024/"><u>Overcome Blurred Images  The Best Online Enhancers Listed for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pro-hdr-image-creation-with-photoshop-secrets-for-2024/"><u>Pro HDR Image Creation with Photoshop Secrets for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamline-your-songs-with-youtube-playlist-formats-for-2024/"><u>Streamline Your Songs with YouTube Playlist Formats for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tips-for-quickly-locating-the-epicenter-of-youtubes-video-creation-for-2024/"><u>Tips for Quickly Locating the Epicenter of YouTube's Video Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/update-complete-shorts-visibility-restored-for-2024/"><u>Update Complete  Shorts Visibility Restored for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-vs-dailymention-spotlighting-key-aspects-for-2024/"><u>YouTube Vs. DailyMention  Spotlighting Key Aspects for 2024</u></a></li>
+</ul></div>

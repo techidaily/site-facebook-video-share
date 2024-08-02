@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Pro-Gif Makers Roundup  Online vs Desktop Platforms\""
-date: 2024-06-05T12:50:58.677Z
-updated: 2024-06-06T12:50:58.677Z
+date: 2024-08-01T05:27:54.952Z
+updated: 2024-08-02T05:27:54.952Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
 
 # 10 Best YouTube To GIF Makers: How to Create GIF from YouTube Video?
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,22 +43,34 @@ Here is our curated list of the best 11 _YouTube to GIF Maker_ that you can use 
 
 All you have to do is enter the URL of the video you want to convert into a GIF. At this point, the site accepts Instagram, YouTube, Facebook, and Vine links. In addition to that, there is also an option that allows users to upload from the desktop computer.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Online YouTube to GIFs Maker - Gifs.com](https://images.wondershare.com/filmora/article-images/youtube-to-gif-with-gifs.jpg)
 
 Once you’ve entered the YouTube video URL, it prompts a basic video editor wherein you select the frame and durations for your GIF. If you want to customize it further, you can add stickers, captions, and tools like blurring, cropping, and others.
 
 Once you’re done exploring the filters and editing the GIF, you can directly share the URL on different platforms or just download it and store it on your device.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Online YouTube to GIFs Maker - Gifs.com export](https://images.wondershare.com/filmora/article-images/export-download-gif-made-with-gifs.jpg)
 
 Note: If you want to remove the watermark and get full access to extra features, you may need to pay $1.99/month.
 
 You can check the gif that I made from our YouTube video _[How to Edit Galaxy Effects with Green Screen | Wondershare FilmoraPro Tutorial](https://www.youtube.com/watch?v=40fuGLmwHwk)_ on gifs.com here: <https://gifs.com/gif/36RNn9>.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### 2\. [GIPHY](https://giphy.com/create/gifmaker)
 
 Giphy, as we all know, is the most used search engine for GIFs due to its limitless collection. Giphy here maintains its own GIF maker to create your customized GIFs effortlessly. The Giphy [online GIF maker](https://tools.techidaily.com/wondershare/filmora/download/) is quite simple and easy to use; it also has steadfast mobile applications for both Android and iOS devices.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Online YouTube to GIFs Maker - GIPHY](https://images.wondershare.com/filmora/article-images/giphy-create-gifmaker-interface.jpg)
 
 To begin converting YouTube videos into GIFs, click the Create button at the top and then you can either enter the URL or upload images/videos from local files. This GIF maker only accepts JPG, PNG, GIF, MP4, and MOV for people uploading images or videos.
@@ -76,10 +91,18 @@ To use this Chrome extension, install it from the Chrome Web Store. Now, run the
 
 ![  YouTube to GIFs Extension GIFIt Convert](https://images.wondershare.com/filmora/article-images/gifit-youtube-to-gif.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### 4\. Make A GIF
 
 Makeagif is an ideal online GIF maker for you that can convert videos into animated GIFs in no time. It allows you to create GIFs using local images, YouTube, Facebook, and Webcam. [Makeagif](https://makeagif.com/) even will enable you to develop new GIFs using the already existing ones.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![  YouTube to GIFs maker: Make A GIF](https://images.wondershare.com/filmora/article-images/makeagif-interface.jpg)
 
 The GIF maker also comes with a variety of free GIFs to download and add to your collection. Moreover, it allows you to edit existing GIFs by enhancing their quality, speed and adding filters to them. It offers functions that can enrich the standard of your GIFs.
@@ -88,6 +111,9 @@ The GIF maker also comes with a variety of free GIFs to download and add to your
 
 To create GIFs using this, first, create your account on the site. Next, select the _‘YouTube to GIF’_ option from the drop-down menu, among other alternatives. Then, enter the link to the YouTube video that you wish to transfigure into GIF, after which you can tailor-make the gifs by adjusting the configuration settings, such as adding captions and sticker. Once done, simply download and share your newly crafted GIF.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Imgur
 
 ![  YouTube to GIFs  maker: Imgur](https://images.wondershare.com/filmora/article-images/imgur-video-to-gif.jpg)
@@ -110,6 +136,9 @@ To convert a YouTube video to GIF, simply enter the link. After that, it will pr
 
 Free Gif maker is one of the straightforward and easily manageable GIF-making applications. It offers YouTube to gif, reverse gif, and gif effects tools to enhance your GIF quality and make it effortless to create your own GIFs.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ Free Gif Maker Me](https://images.wondershare.com/filmora/article-images/freegifmakerme-youtube-to-gif-interface.jpg)
 
 To make GIF from YT Video on free Gif Maker, copy the video link in the input text field in the middle of your screen and then tap on _‘Load YouTube Video.’_ Within seconds you will be redirected to the video preview and GIF editing page. Now, set the duration, start time, resolution, output, and other details. Then, click on the _‘Make A GIF’_ option and save it on your device once ready.
@@ -118,10 +147,16 @@ To make GIF from YT Video on free Gif Maker, copy the video link in the input te
 
 Another website is known for creating and sharing visual content on different social media channels. Imgflip allows you to make customized animations from YouTube and other digital platforms. The site is completely safe to use and produces good-quality memes and GIFs quickly without incurring a dime.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![ Imgflip](https://images.wondershare.com/filmora/article-images/imgflip-youtube-video-to-gif-interface.jpg)
 
 [Imgflip](https://imgflip.com/) supports all the popular video formats such as AVI, MP4, 3GP, OGG, FLV, MOV, and various other video formats. To produce a high-quality GIF, make sure your video is at least 480P or higher. More so, the Imgflip supports GIF with audio features of all the videos with audio that can only be accessed using the Imgflip Pro at a minimum price of $9.95/ month.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 9\. [GIF Maker](https://www.gifmaker.net/)
 
 GIF Maker is a pretty basic application that everyone can navigate with or without any expertise in the tech department. Along with GIF maker, it also has other tools such as GIF resizer, GIF compressor, and GIF cropper, all specifically designed tools to help you create riveting GIFs ever!
@@ -140,6 +175,9 @@ Now, you will require the best-quality GIF maker that is easy to navigate withou
 
 Presently, Wondershare UniConverter is one of the best and easy-to-use YouTube to GIF makers for you. It is the handiest tool to help you accomplish your conversion, customization, compressing, and revamping goals like a professional with its effective editing features. Wondershare offers many benefits, from converting files in hundred different formats to crafting your one GIF out of videos along with other fundamental editing attributes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ### **How to User UniConverter Video to GIF Maker?**
 
 **Step 1**: Download and install the [Wondershare Converter](https://tools.techidaily.com/wondershare/videoconverter/download/)on your device. Now, run the app and launch the Wondershare GIF Maker by selecting the GIF Maker Icon on the toolbar.
@@ -150,6 +188,9 @@ Presently, Wondershare UniConverter is one of the best and easy-to-use YouTube t
 
 **Step 3:** Next, you can customize your uploaded video by setting the start and end time. In addition to that, you can enter the frame rate and output size according to your requirement.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Customize GIF with UniConverter ](https://images.wondershare.com/filmora/article-images/customize-gif-uniconverter.jpg)
 
 **Step 4:** Once finished with all the customization, convert the YouTube video into a GIF by tapping the **Create GIF** option.
@@ -162,6 +203,10 @@ Without any doubt, I can say that usage of GIFs during your regular texting and 
 
 With the help of this little guide, you can create gif from YouTube videos with a wave of your hand! I hope you’ve fun GIF-ing!
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -178,3 +223,49 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-powerful-partnerships-a-guide-to-choosing-youtube-allies/"><u>[New] 2024 Approved  Crafting Powerful Partnerships  A Guide to Choosing YouTube Allies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>[New] 2024 Approved  Decoding YouTube's Mystery  A Sequential Exploration Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-insights-for-asmr-aficionados/"><u>[New] 2024 Approved  Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-youtube-video-screens-without-barriers-for-2024/"><u>[New] Enhancing YouTube Video Screens  Without Barriers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-low-cost-subtitles-and-downloader-companion/"><u>[New] In 2024, Best Low-Cost Subtitles & Downloader Companion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-engage-audiences-best-hashtags-for-going-viral-on-yt/"><u>[New] In 2024, Engage Audiences  Best Hashtags for Going Viral on YT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mobile-sound-library-explore-the-best-free-downloader-apps-for-youtube/"><u>[New] Mobile Sound Library  Explore the Best Free Downloader Apps for YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-optimal-8-camera-stands-for-ultra-hd-shooting/"><u>[New] Optimal 8 Camera Stands for Ultra-HD Shooting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlining-monetization-strategies-on-youtube/"><u>[New] Streamlining Monetization Strategies on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-subtitle-extraction-top-10-free-apps-rated/"><u>[New] Subtitle Extraction  Top 10 Free Apps Rated</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-tidy-up-video-borders-with-smart-edit-techniques/"><u>[New] Tidy Up Video Borders with Smart Edit Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-youtubes-monetization-policy-overhaul/"><u>[New] Unraveling YouTube’s Monetization Policy Overhaul</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-what-is-a-parody-and-how-to-make-a-parody-video/"><u>[New] What Is a Parody and How to Make a Parody Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-webcams-unveiled-a-youtube-livestreamers-handbook/"><u>[Updated] 2024 Approved  Best Webcams Unveiled  A YouTube Livestreamer's Handbook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eradicating-grayscale-issues-with-youtube-video/"><u>[Updated] 2024 Approved  Eradicating Grayscale Issues with YouTube Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enjoy-endless-creativity-discover-the-best-in-cheap-online-video-downloading-for-2024/"><u>[Updated] Enjoy Endless Creativity  Discover the Best in Cheap, Online Video Downloading for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harnessing-imovies-capabilities-for-youtube-video-perfection/"><u>[Updated] Harnessing iMovie's Capabilities for YouTube Video Perfection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-illuminated-insights-visualizing-youtubes-17-data-story/"><u>[Updated] Illuminated Insights! Visualizing YouTube's '17 Data Story</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-breaking-into-the-world-of-youtube-stellar-intros-in-imovie/"><u>[Updated] In 2024, Breaking Into the World of YouTube  Stellar Intros in iMovie</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-how-to-download-youtube-videos-without-any-software/"><u>[Updated] In 2024, How to Download YouTube Videos without Any Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-technique-long-term-disabling-of-youtube-shorts/"><u>[Updated] Master Technique  Long-Term Disabling of YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-masterful-video-analytics-unlocking-potential-with-social-blade-and-youtube/"><u>[Updated] Masterful Video Analytics  Unlocking Potential with Social Blade & YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-timestamp-placement-in-youtube-clips/"><u>[Updated] Mastering Timestamp Placement in YouTube Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-5-noise-canceling-gaming-mics/"><u>[Updated] Premium 5 Noise-Canceling Gaming Mics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-style-sleuths-influential-beauty-creators/"><u>[Updated] Style Sleuths  Influential Beauty Creators</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-captivating-costless-visual-collaboration-games/"><u>2024 Approved  Captivating Costless Visual Collaboration Games</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/7-faqs-about-youtube-shorts-thumbnail-not-showing-problem-for-2024/"><u>7 FAQs About YouTube Shorts Thumbnail Not Showing Problem for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/choreographing-spellbinding-short-films-for-2024/"><u>Choreographing Spellbinding Short Films for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/discover-top-affordable-video-editors-of-2023-today-in-2024/"><u>Discover Top Affordable Video Editors of 2023 Today, In 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-samsung-galaxy-a25-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Samsung Galaxy A25 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lava-yuva-2-lock-screen-password-by-drfone-android/"><u>How To Change Lava Yuva 2 Lock Screen Password?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-converting-videos-on-macos-with-best-tools-guide/"><u>In 2024, Converting Videos on macOS with Best Tools Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-expert-tips-for-adding-youtube-images-in-slide-decks/"><u>In 2024, Expert Tips for Adding YouTube Images in Slide Decks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-aquatic-filters-boosting-gopro-cinematography/"><u>In 2024, Premium Aquatic Filters Boosting GoPro Cinematography</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-videoblogging-victory-surviving-ten-frequent-phobias/"><u>In 2024, Videoblogging Victory  Surviving Ten Frequent Phobias</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-apple-iphone-6s-plus-fixed-drfone-by-drfone-virtual-ios/"><u>iSpoofer is not working On Apple iPhone 6s Plus? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimize-content-collaboration-in-youtube-for-increased-engagement-for-2024/"><u>Optimize Content Collaboration in YouTube for Increased Engagement for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transforming-your-spotify-list-into-a-youtube-music-collection-for-2024/"><u>Transforming Your Spotify List Into a YouTube Music Collection for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-higher-rankings-essential-tips-to-elevate-your-yt-content-for-2024/"><u>Unlock Higher Rankings  Essential Tips to Elevate Your YT Content for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-apple-iphone-x-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your Apple iPhone X? How to Fix</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering the Art of Video Production  Initial Setup\""
-date: 2024-06-05T13:35:09.115Z
-updated: 2024-06-06T13:35:09.115Z
+date: 2024-08-01T06:42:14.566Z
+updated: 2024-08-02T06:42:14.566Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,9 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -72,6 +75,9 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -82,8 +88,14 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Smartphone Camera Gear
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -96,8 +108,14 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 ## Equipment with Easy-to-Use Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -114,3 +132,39 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-becoming-a-master-at-the-art-of-engaging-thumbnails/"><u>[New] 2024 Approved  Becoming a Master at the Art of Engaging Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crescendo-control-secure-sound-sharing-online/"><u>[New] In 2024, Crescendo Control  Secure Sound Sharing Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-leading-ladies-of-livestreams-top-10-female-youtubers-unveiled/"><u>[New] Leading Ladies of Livestreams  Top 10 Female YouTubers Unveiled</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-premier-audio-recording-tools-11-edition/"><u>[New] Premier Audio Recording Tools - #11 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tailor-made-youtube-url-strategies-an-easier-approach/"><u>[New] Tailor-Made YouTube URL Strategies  An Easier Approach</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-methods-to-revamp-grades-in-photoshop/"><u>[New] Top Methods to Revamp Grades in Photoshop</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-uncovering-8-must-have-mirrorless-cams-for-video-creators/"><u>[New] Uncovering 8 Must-Have Mirrorless Cams for Video Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-youtube-potential-the-best-shortcuts-to-higher-views/"><u>[New] Unleashing YouTube Potential  The Best Shortcuts to Higher Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-electrical-upgrades/"><u>[Updated] 2024 Approved  Electrical Upgrades</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-examining-social-media-comment-standouts/"><u>[Updated] 2024 Approved  Examining Social Media Comment Standouts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-youtube-alternatives-3-best-video-sharing-sites/"><u>[Updated] 2024 Approved  YouTube Alternatives  3 Best Video Sharing Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-acquire-no-cost-sounds-for-videos-and-podcasts-for-2024/"><u>[Updated] Acquire No-Cost Sounds for Videos & Podcasts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-engagement-youtube-strategies-for-increased-viewership-for-2024/"><u>[Updated] Boosting Engagement  YouTube Strategies for Increased Viewership for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieve-uninterrupted-youtube-experience-across-os-platforms/"><u>[Updated] In 2024, Achieve Uninterrupted YouTube Experience Across OS Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-content-top-rated-cameras-for-youtubers/"><u>[Updated] In 2024, Elevate Your Content  Top-Rated Cameras for YouTubers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-ranked-best-ipad-speech-to-text-programs-3-for-2024/"><u>[Updated] Ranked Best iPad Speech-to-Text Programs #3 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-hidden-costs-and-benefits-of-purchased-video-traction-on-channels/"><u>[Updated] The Hidden Costs and Benefits of Purchased Video Traction on Channels</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unparalleled-selection-best-of-the-10-vimeo-download-sites-for-2024/"><u>[Updated] Unparalleled Selection  Best of the 10 Vimeo Download Sites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-economic-model-month-to-month-income/"><u>[Updated] YouTube's Economic Model  Month-to-Month Income?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-selecting-superior-gopro-casings-our-top-picks/"><u>2024 Approved  Selecting Superior GoPro Casings - Our Top Picks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-complete-guide-to-structuring-effective-audio-xml/"><u>2024 Approved  The Complete Guide to Structuring Effective Audio XML</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-your-ultimate-youtube-video-gear-top-rated-cameras-and-lenses/"><u>2024 Approved  Your Ultimate YouTube Video Gear  Top-Rated Cameras and Lenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-landscape-decoded-creating-your-signature-style-and-voice/"><u>2024 Approved  YouTube's Landscape Decoded  Creating Your Signature Style and Voice</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-zero-cost-movie-previews-download-youtube-cover-arts-easy/"><u>2024 Approved  Zero-Cost Movie Previews  Download YouTube Cover Arts Easy</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-poco-x5-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Poco X5 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-realme-gt-neo-5-se-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Realme GT Neo 5 SE Quickly? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-good-youtube-names-generators-plus-how-to-brainstorm/"><u>In 2024, Good YouTube Names Generators [+ How to Brainstorm]</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/parody-pointers-from-script-to-screenplay-for-2024/"><u>Parody Pointers  From Script to Screenplay for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pushing-boundaries-in-post-production-with-ps-3d-luts-for-2024/"><u>Pushing Boundaries in Post-Production with PS 3D LUTs for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-xiaomi-redmi-13c-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Xiaomi Redmi 13C 5G Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-11-youtube-seo-techniques-for-video-enhancement-for-2024/"><u>Top 11 YouTube SEO Techniques for Video Enhancement for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-copyright-landscape-decoded-a-complete-analysis-for-2024/"><u>YouTube's Copyright Landscape Decoded  A Complete Analysis for 2024</u></a></li>
+</ul></div>

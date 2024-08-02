@@ -1,7 +1,7 @@
 ---
 title: "[New] Tailoring Audience for Your Youtube Videos"
-date: 2024-06-05T15:07:15.956Z
-updated: 2024-06-06T15:07:15.956Z
+date: 2024-08-01T09:16:54.805Z
+updated: 2024-08-02T09:16:54.805Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/ce2b50426ded5a960fb87586d9bc144c1e1a55def
 
 # How to Change the Privacy Setting on Your YouTube Videos
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -68,12 +71,18 @@ thumbnail: https://thmb.techidaily.com/ce2b50426ded5a960fb87586d9bc144c1e1a55def
 
  When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
@@ -82,14 +91,24 @@ thumbnail: https://thmb.techidaily.com/ce2b50426ded5a960fb87586d9bc144c1e1a55def
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -106,3 +125,38 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-youtube-traffic-outsmarting-automated-viewers/"><u>[New] 2024 Approved  Boosting YouTube Traffic  Outsmarting Automated Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-comparing-digital-platform-profits-dailymovement-to-youtube-revenue-for-2024/"><u>[New] Comparing Digital Platform Profits  DailyMovement to YouTube Revenue for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-a-strong-online-presence-with-attractive-video-thumbnails/"><u>[New] In 2024, Building a Strong Online Presence with Attractive Video Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-echoes-of-chuckles-parody-playlists/"><u>[New] In 2024, Echoes of Chuckles  Parody Playlists</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-comprehensive-manual-for-flawless-snapchat-boomers/"><u>[New] In 2024, The Comprehensive Manual for Flawless Snapchat Boomers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetization-mastery-thriving-in-the-youtube-economy-no-ads-included/"><u>[New] Monetization Mastery  Thriving in the YouTube Economy, No Ads Included</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-secrets-of-professional-rl-broadcasts/"><u>[New] Secrets of Professional RL Broadcasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-counter-flow-strategy-reversing-your-youtube-video-sequence/"><u>[New] The Counter-Flow Strategy  Reversing Your YouTube Video Sequence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-financial-frontier-acquiring-high-value-youtubes/"><u>[New] The Financial Frontier  Acquiring High-Value Youtubes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beautys-buzz-youtube-gurus-predicted/"><u>[Updated] 2024 Approved  Beauty's Buzz  YouTube Gurus Predicted</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-broadcast-battle-which-platform-wins/"><u>[Updated] 2024 Approved  Broadcast Battle  Which Platform Wins?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-customize-video-speed-to-match-your-desired-watch-time/"><u>[Updated] 2024 Approved  Customize Video Speed to Match Your Desired Watch Time</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-step-by-step-guide-to-reverse-image-searching-on-instagram/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Reverse Image Searching on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-digital-splendor-on-youtube-the-hue-harmonization-way-for-2024/"><u>[Updated] Digital Splendor on YouTube  The Hue Harmonization Way for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-money-with-a-beauty-channel/"><u>[Updated] How to Make Money with a Beauty Channel?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dissolving-details-techniques-to-anonymize-youtube-media/"><u>[Updated] In 2024, Dissolving Details  Techniques to Anonymize YouTube Media</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-personalizing-your-profile-with-fb-slideshow-content/"><u>[Updated] In 2024, Personalizing Your Profile with FB Slideshow Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-step-by-step-tutorial-download-youtube-videos-in-pieces/"><u>[Updated] Step-by-Step Tutorial  Download YouTube Videos in Pieces</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-channels-for-filmmakers-to-learn-filmmaking-tips/"><u>2024 Approved  YouTube Channels for Filmmakers to Learn Filmmaking Tips</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-vivo-y17s-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Vivo Y17s</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-y36-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo Y36 in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-x8b-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Honor X8b to New Android? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-apple-iphone-xr-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From Apple iPhone XR without Password?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-iphone-15-pro-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On iPhone 15 Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfecting-your-presentations-youtube-and-google-slides-for-2024/"><u>Perfecting Your Presentations  YouTube and Google Slides for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/smartphone-youtube-experience-apple-vs-android-review-for-2024/"><u>Smartphone YouTube Experience  Apple vs Android Review for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-guide-how-to-convert-youtube-streaming-into-a-free-screencast-for-2024/"><u>Step by Step Guide  How To Convert YouTube Streaming Into a Free Screencast for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streaming-stardom-unraveling-jake-pauls-youtube-rise-for-2024/"><u>Streaming Stardom  Unraveling Jake Paul's YouTube Rise for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-youtuber-enigma-decoded-exciting-questionnaires-leading-to-your-ideal-creator-profile-for-2024/"><u>The YouTuber Enigma Decoded  Exciting Questionnaires Leading to Your Ideal Creator Profile for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-choice-for-capturing-quality-content-on-youtube-for-2024/"><u>Top Choice for Capturing Quality Content on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unearth-hidden-files-with-top-ranking-partition-restoration-programs/"><u>Unearth Hidden Files with Top-Ranking Partition Restoration Programs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/vimeo-vs-youtube-which-is-better-for-2024/"><u>Vimeo vs YouTube  Which Is Better for 2024</u></a></li>
+</ul></div>

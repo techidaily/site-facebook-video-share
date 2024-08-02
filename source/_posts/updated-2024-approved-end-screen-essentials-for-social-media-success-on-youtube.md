@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  End-Screen Essentials for Social Media Success on YouTube\""
-date: 2024-06-05T13:48:47.239Z
-updated: 2024-06-06T13:48:47.239Z
+date: 2024-08-01T07:05:15.008Z
+updated: 2024-08-02T07:05:15.008Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/3fbb28fdd30ab5cd77a4baca2551c9d92b27e1821
 
 # Free YouTube End Screen Templates
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -77,14 +80,23 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -99,10 +111,17 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
 5\. Upload the image onto your Canva project.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
@@ -111,14 +130,24 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -137,3 +166,41 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-flip-screen-cam-picks-your-guide-to-excellent-vlogging/"><u>[New] 2024 Approved  Best Flip-Screen Cam Picks  Your Guide to Excellent Vlogging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-design-principles-for-eye-catching-yt-previews/"><u>[New] 2024 Approved  Design Principles for Eye-Catching YT Previews</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expressive-sketches-for-fortnite-icons/"><u>[New] 2024 Approved  Expressive Sketches for Fortnite Icons</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-social-media-momentum-linking-igtv-and-fb/"><u>[New] 2024 Approved  Social Media Momentum  Linking IGTV and FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-drafting-dynamic-news-endings-for-2024/"><u>[New] Drafting Dynamic News Endings for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expertly-crafted-video-making-software-iphone-android/"><u>[New] In 2024, Expertly Crafted Video-Making Software (iPhone, Android)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-add-custom-youtube-shorts-thumbnails-with-ease/"><u>[New] In 2024, How to Add Custom YouTube Shorts Thumbnails with Ease?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-pro-screen-reader-best-video-grabbing-picks/"><u>[New] In 2024, Pro Screen Reader  Best Video Grabbing Picks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-infinite-snaps-ensuring-a-lasting-snapchat-connection/"><u>[New] Infinite Snaps  Ensuring a Lasting Snapchat Connection</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-securing-your-ps4-adventures-with-advanced-recording/"><u>[New] Securing Your PS4 Adventures with Advanced Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-upgrade-your-youtube-bio-with-pro-templates/"><u>[New] Upgrade Your Youtube Bio with Pro Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-best-lighting-tools-ranked-17-1/"><u>[New] YouTube's Best Lighting Tools Ranked #17-1</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-income-with-effective-youtube-short-strategies/"><u>[Updated] 2024 Approved  Boosting Income with Effective Youtube Short Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-convincing-audiences-to-join-a-positive-approach/"><u>[Updated] 2024 Approved  Convincing Audiences to Join  A Positive Approach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-the-pinnacle-of-editing-android-edition/"><u>[Updated] 2024 Approved  Explore the Pinnacle of Editing  Android Edition</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-leading-10-open-source-video-communication-solutions-businesseducation-focus/"><u>[Updated] 2024 Approved  Leading 10 Open Source Video Communication Solutions  Business/Education Focus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieve-striking-visuals-your-guide-to-uploading-at-correct-dimensions/"><u>[Updated] In 2024, Achieve Striking Visuals  Your Guide to Uploading at Correct Dimensions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-astonishing-visuals-on-thumbnails/"><u>[Updated] In 2024, Astonishing Visuals on Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-comparing-youtube-and-dailymotion-notable-contrasts/"><u>[Updated] In 2024, Comparing YouTube and Dailymotion  Notable Contrasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[Updated] In 2024, Directing Content Destination  From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-melodic-movement-choosing-among-the-best-free-mobile-apps-for-youtube-tunes/"><u>[Updated] Melodic Movement  Choosing Among The Best Free Mobile Apps for YouTube Tunes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-your-browsing-with-these-7-android-centric-adblockers/"><u>[Updated] Streamline Your Browsing with These 7 Android-Centric AdBlockers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-your-potential-with-outstanding-instagram-visuals-for-2024/"><u>[Updated] Unlock Your Potential with Outstanding Instagram Visuals for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/15-best-photovideo-downloader-tools-for-instagram-for-2024/"><u>15 Best Photo/Video Downloader Tools for Instagram for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-flashback-flair-top-80s-video-tricks-for-a-contemporary-edge/"><u>2024 Approved  Flashback Flair  Top 80S Video Tricks for a Contemporary Edge</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/9-quick-fixes-for-safaris-disrupted-streaming-for-2024/"><u>9 Quick Fixes for Safari's Disrupted Streaming for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-vivo-x100-pro-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Vivo X100 Pro</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-perfect-youtube-music-sets-for-2024/"><u>Crafting Perfect YouTube Music Sets for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/flip-the-script-10-best-template-revelations/"><u>Flip the Script  #10 Best Template Revelations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-the-art-of-instagram-filter-use-for-2024/"><u>Mastering the Art of Instagram Filter Use for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-time-editing-selecting-the-best-software-for-2024/"><u>Prime-Time Editing  Selecting the Best Software for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/seeing-beyond-our-elite-rankings-of-camera-lenses-1-10-for-2024/"><u>Seeing Beyond  Our Elite Rankings of Camera Lenses #1-10 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/speedy-alteration-of-yt-vids-for-mac-screens-for-2024/"><u>Speedy Alteration of YT Vids for Mac Screens for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-guide-to-choosing-a-professional-video-editor-filmora-or-democracy-creator/"><u>The Ultimate Guide to Choosing a Professional Video Editor (Filmora or Democracy Creator)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-most-followed-fashionistas-and-cosmetic-experts-for-2024/"><u>YouTube's Most-Followed Fashionistas & Cosmetic Experts for 2024</u></a></li>
+</ul></div>

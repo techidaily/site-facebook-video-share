@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expert Tactics for Designing Attention-Grabbing Thumbnails\""
-date: 2024-06-05T15:34:48.352Z
-updated: 2024-06-06T15:34:48.352Z
+date: 2024-08-01T10:04:11.247Z
+updated: 2024-08-02T10:04:11.247Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 
 # The Ultimate Guide to YouTube Thumbnails that Get Views
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,12 +39,19 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## Part 1: How to Make a YouTube Thumbnail
 
 In order to create a custom video thumbnail, you’ll need a program to put it together in. You can use an image editing program like Photoshop if you have one, but if you don’t you can check out these [free thumbnail makers](#makers).
 
 Here are some examples of popular thumbnail styles.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
@@ -70,6 +80,9 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
@@ -117,6 +130,9 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -181,6 +197,9 @@ Alright, now that you know everything about YouTube thumbnails, go make one! Tel
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -199,3 +218,70 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-a-detailed-walkthrough-for-integrating-instagram-effects-on-archive-media/"><u>[New] 2024 Approved  A Detailed Walkthrough for Integrating Instagram Effects on Archive Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-access-youtube-beats-freshly-split-with-this-compelling-list-of-17-crackers/"><u>[New] 2024 Approved  Access YouTube Beats Freshly Split With This Compelling List of 17 Crackers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-pitfalls-understanding-youtube-standards/"><u>[New] 2024 Approved  Avoiding Pitfalls  Understanding YouTube Standards</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creating-captivating-mukbang-content-step-by-step/"><u>[New] 2024 Approved  Creating Captivating Mukbang Content Step-By-Step</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-deactivating-instagrams-igtv-feature/"><u>[New] 2024 Approved  Deactivating Instagram's IGTV Feature</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-decibel-documentation-system-captures-voice/"><u>[New] 2024 Approved  Decibel Documentation  System Captures Voice</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-examining-youtubes-noteworthy-chats/"><u>[New] 2024 Approved  Examining YouTube's Noteworthy Chats</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-comprehensive-guide-to-android-sound-and-ringtone-customization/"><u>[New] A Comprehensive Guide to Android Sound and Ringtone Customization</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-differentiate-yourself-with-these-critical-yt-shorts-hacks-for-2024/"><u>[New] Differentiate Yourself with These Critical YT Shorts Hacks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-youtube-profile-with-high-impact-artwork-guide-for-2024/"><u>[New] Elevating Your YouTube Profile with High-Impact Artwork Guide for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-get-free-green-screen-effects-from-4-youtube-channels/"><u>[New] Get Free Green Screen Effects From 4 YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cash-creation-in-content-a-deep-dive-into-vids-and-videos/"><u>[New] In 2024, Cash Creation in Content  A Deep Dive Into Vids and Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-kingdom-the-path-to-youtube-mastery/"><u>[New] In 2024, Crafting Kingdom  The Path to YouTube Mastery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-innovative-8-video-collectives-soaring-success/"><u>[New] Innovative 8 Video Collectives Soaring Success</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-inside-the-headset-comprehensive-vr-gear-analysis/"><u>[New] Inside the Headset  Comprehensive VR Gear Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-launching-success-on-youtube-tutorial-with-two-strategies/"><u>[New] Launching Success on YouTube  Tutorial with Two Strategies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-master-recommendations-elite-ios-sound-artists/"><u>[New] Master Recommendations  Elite iOS Sound Artists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uantifying-mr-beasts-earnings/"><u>[New] Quantifying Mr. Beast's Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-comprequad-video-captioning-techniques-for-youtube/"><u>[New] The Comprequad Video Captioning Techniques for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-role-of-timestamps-in-content-longevity-and-popularity/"><u>[New] The Role of Timestamps in Content Longevity and Popularity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tips-for-higher-youtube-traction-with-persistent-creative-commons-usage/"><u>[New] Tips for Higher YouTube Traction with Persistent Creative Commons Usage</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-ultimate-guide-to-optimizing-video-quality-in-mobile-broadcasts-for-2024/"><u>[New] Ultimate Guide to Optimizing Video Quality in Mobile Broadcasts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-achieving-steady-motion-video-and-photography-insights/"><u>[Updated] 2024 Approved  Achieving Steady Motion  Video & Photography Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-profits-soar-the-secrets-to-successful-youtube-monetization/"><u>[Updated] 2024 Approved  Channel Profits Soar  The Secrets to Successful YouTube Monetization</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-creating-a-singular-stream-from-diverse-youtube-videos/"><u>[Updated] 2024 Approved  Creating a Singular Stream From Diverse YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-amass-higher-views-with-powerful-youtube-tags-for-2024/"><u>[Updated] Amass Higher Views with #Powerful YouTube Tags for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps-for-2024/"><u>[Updated] Charting Your Course in YouTubing  Dodge These Top 8 Common Missteps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-debating-platform-preferences-igtv-versus-youtube-video-sharing-for-2024/"><u>[Updated] Debating Platform Preferences  IGTV Versus YouTube Video Sharing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-extending-your-content-a-detailed-youtube-video-upload-manual-for-2024/"><u>[Updated] Extending Your Content  A Detailed YouTube Video Upload Manual for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-chatcam-capturer-facebook-edition/"><u>[Updated] In 2024, ChatCam Capturer, Facebook Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-endless-eradication-guide-bypassing-youtubes-snappy-content/"><u>[Updated] In 2024, Endless Eradication Guide  Bypassing YouTube's Snappy Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-tools-free-online-youtuber-starters/"><u>[Updated] In 2024, Essential Tools  Free Online Youtuber Starters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-excellence-in-youtube-ad-production-highlighted/"><u>[Updated] In 2024, Excellence in YouTube Ad Production Highlighted</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-minimovie-magician/"><u>[Updated] MiniMovie Magician</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prosper-with-your-live-video-on-youtube-a-complete-blueprint/"><u>[Updated] Prosper with Your Live Video on YouTube  A Complete Blueprint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-routines-to-disrupt-youtube-list-ordering/"><u>[Updated] Rapid Routines to Disrupt YouTube List Ordering</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-sharing-authenticity-a-guide-to-personal-youtube-content/"><u>[Updated] Sharing Authenticity  A Guide to Personal YouTube Content</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-step-by-step-recording-google-voice-conversations-for-2024/"><u>[Updated] Step-by-Step  Recording Google Voice Conversations for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-soloists-journey-personal-growth-and-success-on-youtube-for-musicians/"><u>[Updated] The Soloist's Journey  Personal Growth and Success on YouTube for Musicians</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-viewership-archive-youtube-visionaries/"><u>[Updated] Top Viewership Archive  YouTube Visionaries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-utilizing-youtubes-annotation-feature/"><u>[Updated] Utilizing YouTube's Annotation Feature</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-climb-the-ladder-the-best-12-tycoon-games-for-aspiring-leaders/"><u>2024 Approved  Climb the Ladder  The Best 12 Tycoon Games for Aspiring Leaders</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tiny-tale-telling-framework/"><u>2024 Approved  Tiny Tale Telling Framework</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/direct-link-between-twitter-and-tumblr-videos/"><u>Direct Link Between Twitter and Tumblr Videos</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-photos-to-film-how-to-craft-a-compelling-video-slideshow-in-final-cut-pro-for-2024/"><u>From Photos to Film How to Craft a Compelling Video Slideshow in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-access-your-apple-iphone-14-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>How to Access Your Apple iPhone 14 When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ideal-modeling-software-for-animation-professionals-for-2024/"><u>Ideal Modeling Software for Animation Professionals for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-samsung-galaxy-m54-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Samsung Galaxy M54 5G Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-k70e-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi K70E Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-rpg-heritage-clashing-with-new-age-designs/"><u>In 2024, RPG Heritage Clashing with New-Age Designs</u></a></li>
+<li><a href="https://extra-support.techidaily.com/no-hassle-no-money-10-official-passport-pictures-from-our-generator-for-2024/"><u>No Hassle, No Money  10 Official Passport Pictures From Our Generator for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfect-photo-finishes-picarts-background-erase-method-for-2024/"><u>Perfect Photo Finishes  PicArt's Background Erase Method for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-realme-c67-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Realme C67 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pro-tip-8-key-sites-to-harvest-free-eco-friendly-filming-backdrops-for-2024/"><u>Pro Tip! 8 Key Sites to Harvest FREE Eco-Friendly Filming Backdrops for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/screen-recorder-showdown-top-choices-explored-for-2024/"><u>Screen Recorder Showdown  Top Choices Explored for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-complete-audit-of-podcasting-expenses/"><u>The Complete Audit of Podcasting Expenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-route-to-revenue-crafting-content-around-consumer-commodities-for-2024/"><u>The Route to Revenue  Crafting Content Around Consumer Commodities for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-list-of-preferred-youtube-video-formats-for-2024/"><u>The Ultimate List of Preferred YouTube Video Formats for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-vivo-s18-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Vivo S18 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transform-your-video-output-tubebuddys-methodology-for-2024/"><u>Transform Your Video Output - TubeBuddy's Methodology for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-biz-potential-the-best-channels-for-growth-for-2024/"><u>Unlocking Biz Potential  The Best Channels for Growth for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/urgent-essential-reasons-to-upgrade-to-ios-153-immediately/"><u>Urgent: Essential Reasons to Upgrade to iOS 15.3 Immediately</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/utilizing-textual-elements-a-guide-to-augmenting-video-content-on-youtube-for-2024/"><u>Utilizing Textual Elements  A Guide to Augmenting Video Content on YouTube for 2024</u></a></li>
+</ul></div>

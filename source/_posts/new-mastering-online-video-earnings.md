@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering Online Video Earnings"
-date: 2024-06-05T13:55:19.015Z
-updated: 2024-06-06T13:55:19.015Z
+date: 2024-08-01T07:16:20.804Z
+updated: 2024-08-02T07:16:20.804Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,18 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
 
 # YouTube Monetization: The New Rules Everyone Hates
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +48,9 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 6. [Helpful Blog Posts](#posts)
 7. [Don't Give Up!](#dontquit)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -51,6 +66,9 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -59,6 +77,10 @@ However, even if the immediate financial impact won’t be that financially sign
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -69,12 +91,18 @@ Cough. Logan Paul. Cough.
 
 ####  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
 2. Link your videos together using cards and interactive end screens/outros.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -105,3 +133,37 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-10-free-youtube-playlist-downloaders-onlinepcandroidios2-for-2024/"><u>[New] 10 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]2 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-7-insider-tips-to-make-money-quickly-on-youtube-shorts/"><u>[New] 2024 Approved  7 Insider Tips to Make Money Quickly on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-achieve-seamless-video-playback-by-removing-bars-in-youtube/"><u>[New] 2024 Approved  Achieve Seamless Video Playback by Removing Bars in YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-storage-woes-removing-youtube-media/"><u>[New] 2024 Approved  Avoiding Storage Woes  Removing YouTube Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-shine-a-light-on-your-content-creation/"><u>[New] 2024 Approved  Shine a Light on Your Content Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-becoming-a-master-at-the-art-of-engaging-thumbnails-for-2024/"><u>[New] Becoming a Master at the Art of Engaging Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boost-your-earnings-on-youtube-shorts-a-guide-for-2024/"><u>[New] Boost Your Earnings on YouTube Shorts  A Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-easy-extraction-top-10-youtube-text-grabber-apps-reviewed/"><u>[New] In 2024, Easy Extraction  Top 10 YouTube Text Grabber Apps Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mapping-social-interest-to-video-idea-generation-with-google/"><u>[New] Mapping Social Interest to Video Idea Generation with Google</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-choosing-a-screen-swivel-cam-for-your-needs/"><u>[New] The Ultimate Guide to Choosing a Screen Swivel Cam for Your Needs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-comprehensive-look-at-youtube-shorts-template-design/"><u>[Updated] 2024 Approved  A Comprehensive Look at YouTube Shorts Template Design</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-your-profit-share-in-youtube-shorts/"><u>[Updated] 2024 Approved  A Step-by-Step Guide to Your Profit Share in YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-achieving-youtube-earnings-excellence-strategies-and-beyond/"><u>[Updated] 2024 Approved  Achieving YouTube Earnings Excellence - Strategies and Beyond</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-downloading-the-latest-tracks-a-guide-to-free-extractors-for-pc-users/"><u>[Updated] 2024 Approved  Downloading the Latest Tracks  A Guide to Free Extractors for PC Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-audience-acclaim-index-worlds-most-engaged-youtubers-for-2024/"><u>[Updated] Audience Acclaim Index  World's Most Engaged YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-world-of-youtube-channel-naming-innovative-ideas-for-vloggers-and-filmmakers-no-more-than-156-characters-for-2024/"><u>[Updated] Exploring the World of YouTube Channel Naming  Innovative Ideas For Vloggers & Filmmakers (No More than 156 Characters) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-feast-your-eyes-enjoyment-without-cost-watch-9-christmas-films-online/"><u>[Updated] Feast Your Eyes, Enjoyment Without Cost  Watch 9 Christmas Films Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-backwards-viewing-a-new-lens-for-analyzing-youtube-content/"><u>[Updated] In 2024, Backwards Viewing  A New Lens for Analyzing YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ceased-shorts-missing-on-youtube-screen/"><u>[Updated] In 2024, Ceased  Shorts Missing on YouTube Screen</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-the-depths-of-asmr-content/"><u>[Updated] In 2024, Exploring the Depths of ASMR Content</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-lenovo-quick-guide-effortless-screenshots-for-2024/"><u>[Updated] Lenovo Quick Guide  Effortless Screenshots for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-smarter-streaming-directly-connecting-obs-with-fb/"><u>[Updated] Smarter Streaming  Directly Connecting OBS with FB</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-truth-about-magix-video-pro-xs-performance/"><u>[Updated] The Truth About Magix Video Pro X's Performance</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-comprehensive-examination-videon-x-the-ultimate-video-editor/"><u>2024 Approved  Comprehensive Examination  Videon X – The Ultimate Video Editor</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-your-viewers-your-wealth-building-an-earning-strategy/"><u>2024 Approved  Your Viewers, Your Wealth  Building an Earning Strategy</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/budget-friendly-video-stock-sites/"><u>Best Budget-Friendly Video Stock Sites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-success-in-youtubes-creator-hub-for-2024/"><u>Crafting Success in YouTube's Creator Hub for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/decreasing-mix-intensity-step-by-step/"><u>Decreasing Mix Intensity Step by Step</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/executing-the-last-goodbye-to-your-instagram-account/"><u>Executing the Last Goodbye to Your Instagram Account</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/invaluable-resource-for-zero-cost-video-and-photo-providers/"><u>Invaluable Resource for Zero-Cost Video and Photo Providers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-checklist-for-constructing-your-youtube-musical-assortment-for-2024/"><u>The Ultimate Checklist for Constructing Your YouTube Musical Assortment for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Essential Guide to High-Quality Audio Capture Sans Microphone\""
-date: 2024-06-05T14:20:34.699Z
-updated: 2024-06-06T14:20:34.699Z
+date: 2024-08-01T07:59:15.492Z
+updated: 2024-08-02T07:59:15.492Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/1Mf180TEx4vzIE6Gapb8w6vTOn0=/400x300/fi
 
 # How to Record Good Audio Without a Microphone?
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -47,6 +50,9 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -73,6 +79,9 @@ _The pompom used in this video cost $2, but you might already have something tha
 
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
@@ -87,6 +96,10 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -95,12 +108,18 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -117,3 +136,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-beatcut-studio-pro-audio-film-fusion-on-pc/"><u>[New] 2024 Approved  BeatCut Studio Pro  Audio-Film Fusion on PC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-building-brands-on-instagram-a-playbook-for-sponsorship-success/"><u>[New] 2024 Approved  Building Brands on Instagram  A Playbook for Sponsorship Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-focused-growth-instagrams-must-use-tags-to-watch-out-for-for-2024/"><u>[New] Focused Growth  Instagram's Must-Use Tags to Watch Out For for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-jumpstart-high-res-webcam-filming-for-amazing-results-for-2024/"><u>[New] Jumpstart High-Res WebCam Filming for Amazing Results for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-simple-processes-for-logging-vimeo-content/"><u>[New] Simple Processes for Logging Vimeo Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-audience-size-a-comprehensive-guide-to-youtube-shorts-success/"><u>[Updated] 2024 Approved  Boosting Audience Size  A Comprehensive Guide to YouTube Shorts Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-creating-layered-text-the-illustration-expertise/"><u>[Updated] 2024 Approved  Creating Layered Text  The Illustration Expertise</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cut-to-perfection-a-detailed-guide-on-youtube-short-video-making/"><u>[Updated] 2024 Approved  Cut to Perfection  A Detailed Guide on YouTube Short Video Making</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-8-tools-linux-based-edits-software/"><u>[Updated] 2024 Approved  Essential 8 Tools  Linux-Based Edits Software</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-3-best-smartphones-for-recording-video/"><u>[Updated] 3 Best Smartphones for Recording Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-amplify-content-reach-essential-strategies-to-skyrocket-views-for-2024/"><u>[Updated] Amplify Content Reach  Essential Strategies to Skyrocket Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beyond-views-and-likes-pursuing-profits-on-youtube-for-2024/"><u>[Updated] Beyond Views and Likes  Pursuing Profits on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-youtube-productions-best-mac-mp4-editors-guide-for-2024/"><u>[Updated] Boosting YouTube Productions  Best Mac MP4 Editors Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-clipcrafter-window-edition-for-2024/"><u>[Updated] ClipCrafter Window Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-financial-framework-of-youtubes-burgeoning-shorts-fund/"><u>[Updated] Exploring the Financial Framework of YouTube's Burgeoning Shorts Fund</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-choosing-the-best-cameras-and-lenses-for-vloggers/"><u>[Updated] In 2024, Choosing the Best Cameras & Lenses for Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-a-memorable-channel-presence-with-imagery/"><u>[Updated] In 2024, Crafting a Memorable Channel Presence with Imagery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-double-the-joy-master-looping-of-youtube-media-on-televisions/"><u>[Updated] In 2024, Double the Joy  Master Looping of YouTube Media on Televisions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-fast-fixes-for-chaotic-youtube-list-ordering/"><u>[Updated] In 2024, Fast Fixes for Chaotic YouTube List Ordering</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-insightful-comparisons-top-android-applications-for-youtube-download/"><u>[Updated] Insightful Comparisons  Top Android Applications for YouTube Download</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-premier-software-selection-for-youtube-intros/"><u>[Updated] The Premier Software Selection for YouTube Intros</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-xiaomi-civi-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-flashsnap-firefox-tools/"><u>2024 Approved  FlashSnap Firefox Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-retro-revelry-on-snapchat-camera-roll-insights/"><u>2024 Approved  Retro Revelry on Snapchat  Camera Roll Insights</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/aerial-visionaries-revealed-detailed-dji-phantom-4-study-for-2024/"><u>Aerial Visionaries Revealed  Detailed DJI Phantom 4 Study for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/elevate-your-audio-journey-with-upgraded-nvidia-drivers-for-win7/"><u>Elevate Your Audio Journey with Upgraded Nvidia Drivers for Win7</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-poco-x5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-asus-rog-phone-7-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Asus ROG Phone 7? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-from-your-iphone-12-pro-max-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID From Your iPhone 12 Pro Max</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-top-6-voice-changer-software-for-youtube-videos-free-and-paid/"><u>In 2024, Top 6 Voice Changer Software for Youtube Videos [Free & Paid]</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximizing-headset-use-on-xbox-series-xs/"><u>Maximizing Headset Use on Xbox Series X/S</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-with-care-discover-these-14-common-online-deceptions/"><u>Navigate with Care: Discover These 14 Common Online Deceptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-key-to-click-through-success-top-thumbnail-size-recommendations-for-2024/"><u>The Key to Click-Through Success  Top Thumbnail Size Recommendations for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-higher-youtube-viewership-for-2024/"><u>The Ultimate Guide to Higher YouTube Viewership for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-potential-prime-times-for-youtube-videos-for-2024/"><u>Unleash Potential  Prime Times for Youtube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-top-7-android-apps-to-banish-ads-for-2024/"><u>Unveiling The Top 7 Android Apps to Banish Ads for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Talking-Head Tricks  Simple Steps for Stunning Online Presence\""
-date: 2024-06-05T15:13:07.313Z
-updated: 2024-06-06T15:13:07.313Z
+date: 2024-08-01T09:27:00.788Z
+updated: 2024-08-02T09:27:00.788Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/42db527a5e8afa7e682e92b7b056d02f1f5ec85f1
 
 # 4 Ways To Set Up Your Talking-Head Shots For YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,6 +38,9 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -67,6 +73,9 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -91,12 +100,21 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -113,3 +131,43 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-compact-cities-for-a-sustainable-future/"><u>[New] 2024 Approved  Crafting Compact Cities for a Sustainable Future</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-down-on-workload-the-ultimate-mac-mp4-apps-list/"><u>[New] 2024 Approved  Cutting Down on Workload  The Ultimate Mac MP4 Apps List</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-optimizing-presentations-through-skilled-use-of-aiseesoft-recorder/"><u>[New] 2024 Approved  Optimizing Presentations Through Skilled Use of Aiseesoft Recorder</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-deciding-on-the-best-videography-camera-type-dslr-or-mirrorless-in-2024/"><u>[New] Deciding on the Best Videography Camera Type  DSLR or Mirrorless, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elite-7-cameras-elevating-interactive-learning-vlogs-and-tutorials-for-2024/"><u>[New] Elite 7 Cameras Elevating Interactive Learning Vlogs & Tutorials for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-amplify-your-voice-on-youtube-mastery-through-tubebuddy/"><u>[New] In 2024, Amplify Your Voice on YouTube - Mastery Through TubeBuddy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-best-8-linux-programs-for-media-makers/"><u>[New] In 2024, Best 8 Linux Programs for Media Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-best-online-companion-for-customizing-your-video-branding/"><u>[New] The Best Online Companion for Customizing Your Video Branding</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-affiliate-marketing-how-to-make-money-with-it/"><u>[New] YouTube Affiliate Marketing  How to Make Money with It</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-apex-artists-youtubes-most-followed-sages/"><u>[Updated] 2024 Approved  Apex Artists  YouTube's Most-Followed Sages</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-artistry-in-a-click-10-prime-apps-for-banner-crafting/"><u>[Updated] 2024 Approved  Channel Artistry in a Click  10 Prime Apps for Banner Crafting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-device-friendly-tutorial-inserting-your-shorts-into-youtube/"><u>[Updated] 2024 Approved  Device-Friendly Tutorial  Inserting Your Shorts Into YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dodging-doubts-a-guide-to-vloggings-most-common-anxieties/"><u>[Updated] 2024 Approved  Dodging Doubts  A Guide to Vlogging's Most Common Anxieties</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>[Updated] 2024 Approved  Enhancing Your YouTube Content  Basic Premiere Pro Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhancing-youtube-videos-proper-lighting-methods/"><u>[Updated] 2024 Approved  Enhancing YouTube Videos  Proper Lighting Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-can-youtube-sub4sub-really-enhance-viewing-experience/"><u>[Updated] In 2024, Can YouTube Sub4Sub Really Enhance Viewing Experience?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-deciphering-digital-marketing-the-power-of-youtube-keywords/"><u>[Updated] In 2024, Deciphering Digital Marketing  The Power of YouTube Keywords</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-journey-to-visual-vigor-a-beginners-guidebook-for-2024/"><u>[Updated] Journey to Visual Vigor  A Beginner's Guidebook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-lights-camera-action-youtubes-17-essentials/"><u>[Updated] Lights, Camera, Action! - YouTube's #17 Essentials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-turn-artistry-professionally-crafted-valorant-game-imagery/"><u>[Updated] Quick-Turn Artistry  Professionally Crafted Valorant Game Imagery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-screencast-pro-efficient-recording-macpc-upload-to-youtube/"><u>[Updated] ScreenCast Pro  Efficient Recording, Mac/PC Upload to YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-voice-modification-tools-the-ultimate-guide-for-youtubers/"><u>[Updated] Voice Modification Tools – The Ultimate Guide for YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-watch-what-you-liked-no-more-unveiling-yt-deletions-online/"><u>2024 Approved  Watch What You Liked No More  Unveiling YT Deletions Online</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/amplify-printing-prowess-aio-upgrades-for-windows-7/"><u>Amplify Printing Prowess: AIO Upgrades for WIndows 7</u></a></li>
+<li><a href="https://fox-that.techidaily.com/complete-guide-changing-your-devices-screen-time-password-on-iphone-and-ipad/"><u>Complete Guide: Changing Your Device's Screen Time Password on iPhone & iPad</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crossapple-windows-vmx-version/"><u>CrossApple-Windows VMX Version</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-oppo-reno-10-proplus-5g-by-fonelab-android-recover-data/"><u>How to recover lost data from Oppo Reno 10 Pro+ 5G?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-vivo-v27e-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-motorola-moto-g24-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Motorola Moto G24 Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://some-skills.techidaily.com/pros-of-selecting-best-vtuber-sound-alteration-apps-for-2024/"><u>Pros of Selecting Best Vtuber Sound Alteration Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streaming-services-face-off-facebook-youtube-and-spaces-for-2024/"><u>Streaming Services Face-Off  FACEbook, YOUTube, & Spaces for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/structuring-videos-for-maximum-impact-on-youtube-for-2024/"><u>Structuring Videos for Maximum Impact on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/sweep-viewers-off-their-feet-templates-that-work-wonders-for-2024/"><u>Sweep Viewers Off Their Feet  Templates That Work Wonders for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unpacking-the-impact-of-youtubes-shorts-programme-for-2024/"><u>Unpacking the Impact of YouTube's Shorts Programme for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/will-real-time-likes-elevate-my-video-visibility-in-2024/"><u>Will Real-Time Likes Elevate My Video Visibility, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/yules-magic-unfolds-access-nine-premium-whole-film-holiday-movies-for-free-for-2024/"><u>Yule's Magic Unfolds  Access Nine Premium, Whole-Film Holiday Movies for Free for 2024</u></a></li>
+</ul></div>

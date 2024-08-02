@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Youtube's Glamour Guild  Comprehensive Style Compendium\""
-date: 2024-06-05T14:49:54.043Z
-updated: 2024-06-06T14:49:54.043Z
+date: 2024-08-01T08:48:06.687Z
+updated: 2024-08-02T08:48:06.687Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/NVjeqUnDOKW0ZcfVsrhkG3e3dnM=/888x296/fi
 
 # Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,6 +44,9 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
    9. **[How to Make a Makeup Tutorial – Recording](#recording)**
    10. **[How to Make a Makeup Tutorial – After Shooting](#after)**
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best YouTube Video Editor- Wondershare Filmora
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
@@ -95,6 +101,9 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -139,6 +148,9 @@ You might want to experiment with sitting at different distances to see how the 
 
 **_Step 2:_** Set your camera up a bit higher than your face and tilt it down towards yourself (shooting from slightly above is always more flattering). It should be set up at about a 15° angle to you.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
@@ -151,6 +163,9 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
@@ -197,6 +212,9 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -215,6 +233,9 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -242,6 +263,9 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -252,6 +276,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -291,3 +318,43 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-bypass-latency-with-av1-in-youtube-settings/"><u>[New] 2024 Approved  Bypass Latency with AV1 in YouTube Settings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-discovering-underrated-gems-this-year-films/"><u>[New] 2024 Approved  Discovering Underrated Gems This Year (Films)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-pros-approach-to-documenting-overwatch-battles/"><u>[New] 2024 Approved  The Pro's Approach to Documenting Overwatch Battles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-average-revenue-what-every-view-contributes-to-creators-for-2024/"><u>[New] Average Revenue  What Every View Contributes to Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-breaking-the-mold-high-fidelity-sound-without-a-microphone-for-2024/"><u>[New] Breaking the Mold  High-Fidelity Sound without a Microphone for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-constructing-captivating-youtube-music-selections-for-2024/"><u>[New] Constructing Captivating YouTube Music Selections for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-easy-steps-for-sharing-your-xbox-playtime/"><u>[New] Easy Steps for Sharing Your Xbox Playtime</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-deeper-dive-into-youtube-seo-and-keywords/"><u>[New] In 2024, A Deeper Dive Into YouTube SEO and Keywords</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-double-down-on-youtube-visibility-2-quick-methods/"><u>[New] In 2024, Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtube-live-top-webcam-selection-tips/"><u>[New] Mastering YouTube Live  Top Webcam Selection Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-your-youtube-potential-with-content-partnerships/"><u>[New] Maximizing Your YouTube Potential with Content Partnerships</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-higher-views-ideal-video-post-times/"><u>[New] Unlock Higher Views  Ideal Video Post Times</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-watch-9-free-full-length-christmas-movies-on-youtube/"><u>[New] Watch 9 Free Full Length Christmas Movies On YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-steps-for-exporting-videos-from-youtube-to-dailymotion/"><u>[Updated] 2024 Approved  Easy Steps for Exporting Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-finding-fame-on-insta-month-by-month-guide-to-reaching-the-million-mark/"><u>[Updated] 2024 Approved  Finding Fame on Insta  Month by Month Guide to Reaching the Million Mark</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-perfect-your-tiktok-with-these-stitching-techniques/"><u>[Updated] 2024 Approved  Perfect Your TikTok With These Stitching Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-youtube-shorts-presence-with-impactful-strategies-for-2024/"><u>[Updated] Elevating Your YouTube Shorts Presence with Impactful Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-stream-google-meet-to-youtube-step-by-step-guide/"><u>[Updated] How To Stream Google Meet to YouTube [Step-by-Step Guide]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-debugging-techniques-identifying-and-resolving-common-javascript-errors/"><u>[Updated] In 2024, Debugging Techniques  Identifying and Resolving Common JavaScript Errors</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-innovative-use-of-plugins-for-skype-call-capture-in-obs/"><u>[Updated] In 2024, Innovative Use of Plugins for Skype Call Capture in OBS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-your-clips-with-these-premium-free-audiosite-lists/"><u>[Updated] Master Your Clips with These Premium, Free Audiosite Lists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prime-opening-strategies-top-16-youtube-vids-that-thrive/"><u>[Updated] Prime Opening Strategies  Top 16 YouTube Vids That Thrive</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-savory-streamers-the-creme-de-la-cuisine/"><u>[Updated] Savory Streamers  The Crème De La Cuisine</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/1715859808591-updated-seeking-the-best-ps2-games-try-these-5-android-emulators/"><u>[Updated] Seeking the Best PS2 Games? Try These 5 Android Emulators!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocket-engagement-20-video-tricks-for-maximum-impact/"><u>[Updated] Skyrocket Engagement  20 Video Tricks for Maximum Impact</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategies-to-elevate-your-video-in-the-trending-topics/"><u>[Updated] Strategies to Elevate Your Video in the Trending Topics</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breaking-down-what-makes-ai-systems-different/"><u>Breaking Down: What Makes AI Systems Different?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/creating-synergy-how-youtube-aligns-with-brands-for-2024/"><u>Creating Synergy  How YouTube Aligns with Brands for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-nokia-c300-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Nokia C300.</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-poco-x5-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Poco X5 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-free-tools-roundup-leading-online-video-capture-tech/"><u>In 2024, Free Tools Roundup  Leading Online Video Capture Tech</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-from-your-iphone-11-pro-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status From Your iPhone 11 Pro</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-beat-weavers-treasury-high-res-dj-visual-samples/"><u>In 2024, The Beat Weaver's Treasury  High-Res DJ Visual Samples</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/real-results-with-ethical-audience-engagement-on-youtube-for-2024/"><u>Real Results with Ethical Audience Engagement on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-8-linux-compatible-cutting-apps-for-2024/"><u>Top 8 Linux-Compatible Cutting Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/versatile-viewing-cycle-and-catch-up-with-youtube-videos-on-tv-for-2024/"><u>Versatile Viewing  Cycle and Catch Up with YouTube Videos on TV for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-complimentary-access-to-50-premium-youtube-banners-for-2024/"><u>Your Complimentary Access to 50 Premium YouTube Banners for 2024</u></a></li>
+</ul></div>

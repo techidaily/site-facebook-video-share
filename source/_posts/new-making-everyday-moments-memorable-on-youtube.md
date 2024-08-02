@@ -1,7 +1,7 @@
 ---
 title: "[New] Making Everyday Moments Memorable on YouTube"
-date: 2024-06-05T14:54:25.541Z
-updated: 2024-06-06T14:54:25.541Z
+date: 2024-08-01T08:55:11.634Z
+updated: 2024-08-02T08:55:11.634Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/5cO1LUQFfX4NVuc9n02cqmWn5XU=/540x405/fi
 
 # 10 YouTube Video Ideas for Sharing Your Personal Story
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -45,6 +48,9 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
@@ -53,10 +59,17 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
@@ -65,6 +78,10 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
@@ -77,6 +94,9 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
@@ -85,6 +105,9 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -101,3 +124,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools/"><u>[New] 2024 Approved  10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-estimated-video-monetization-totals/"><u>[New] 2024 Approved  Estimated Video Monetization Totals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-experts-approach-to-inserting-subtitlescc-on-youtube-videos/"><u>[New] 2024 Approved  The Expert's Approach to Inserting Subtitles/CC on YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-best-camera-stabilizers-for-youtube-for-2024/"><u>[New] Best Camera Stabilizers for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-blueprint-for-creating-viral-trailers-in-the-world-of-youtube-for-2024/"><u>[New] Blueprint for Creating Viral Trailers in the World of YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-contents-impact-an-in-depth-look-at-youtube-thumbnail-size-for-2024/"><u>[New] Elevating Your Content's Impact  An In-Depth Look at YouTube Thumbnail Size for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-income-through-the-science-of-youtube-trailer-creation-for-2024/"><u>[New] Enhancing Income Through the Science of YouTube Trailer Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-detailed-exploration-youtubes-visionary-suite/"><u>[New] In 2024, A Detailed Exploration  YouTube's Visionary Suite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-asmr-content-deep-dive-101/"><u>[New] In 2024, ASMR Content Deep Dive 101</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exporting-your-creativity-imovie-videos-for-youtube-audiences/"><u>[New] In 2024, Exporting Your Creativity  IMovie Videos for YouTube Audiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtube-potential-expert-tips-for-wirecast-streaming/"><u>[New] Unlocking YouTube Potential  Expert Tips for WireCast Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-achieving-million-sub-milestone-the-youtube-guide/"><u>[Updated] 2024 Approved  Achieving Million-Sub Milestone  The YouTube Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-simple-process-for-preserving-tweets-imagesvideos/"><u>[Updated] 2024 Approved  Simple Process for Preserving Tweets' Images/Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-download-all-youtube-images-for-free-for-2024/"><u>[Updated] Download All YouTube Images for Free for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-hash-tags-that-catapult-you-to-6k-views-on-youtube/"><u>[Updated] Hash Tags That Catapult You to 6K Views on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>[Updated] In 2024, Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>[Updated] In 2024, Enhancing Content Reach  Keeping Creative Commons Engagement High</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-initiating-a-thriving-youtube-channel-avoid-these-8-essential-blunders/"><u>[Updated] Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ryans-wealth-wonders-a-kids-fortune-in-the-streaming-space/"><u>[Updated] Ryan’s Wealth Wonders  A Kid's Fortune in the Streaming Space</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-speeding-up-youtube-quick-video-rendering-and-transfer-tips/"><u>[Updated] Speeding Up YouTube  Quick Video Rendering & Transfer Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-your-potential-50-free-high-impact-banners-at-your-disposal/"><u>[Updated] Unlock Your Potential  50 FREE, High-Impact Banners at Your Disposal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-the-secrets-of-successful-youtube-collaborations/"><u>[Updated] Unlocking the Secrets of Successful YouTube Collaborations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-flexible-cam-balancer-toolkit/"><u>2024 Approved  Flexible Cam Balancer Toolkit</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-soundwaves-flow-into-imovie-effortlessly/"><u>2024 Approved  YouTube Soundwaves Flow Into iMovie Effortlessly</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-brief-bliss-in-photo-collage-crafting-the-google-way/"><u>In 2024, Brief Bliss in Photo Collage Crafting - The Google Way</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-instantaneous-ease-in-podcast-broadcasts/"><u>In 2024, Instantaneous Ease in Podcast Broadcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unleash-the-power-of-visuals-with-top-free-slideshow-designs/"><u>In 2024, Unleash the Power of Visuals with Top Free Slideshow Designs</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Vivo Y27 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-templates-increase-the-editing-possibilities-for-beginners-and-professionals-read-this-article-to-learn-about-some-customizable-slow-motio/"><u>New 2024 Approved Templates Increase the Editing Possibilities for Beginners and Professionals. Read This Article to Learn About some Customizable Slow-Motion CapCut Templates</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-xiaomi-redmi-note-13-proplus-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi Note 13 Pro+ 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategic-steps-for-effective-annotations-and-cards-on-your-youtube-videos-for-2024/"><u>Strategic Steps for Effective Annotations & Cards on Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tailoring-your-content-youtube-video-length-reduction-guide-for-2024/"><u>Tailoring Your Content  YouTube Video Length Reduction Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essential-guide-to-youtube-edits-with-premiere-pro-for-2024/"><u>The Essential Guide to YouTube Edits with Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/thrifty-mics-the-budgetists-guide-for-youtubers-for-2024/"><u>Thrifty Mics  The Budgetist's Guide for Youtubers for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/top-5-captivating-videos-from-the-world-of-fb/"><u>Top 5 Captivating Videos From the World of FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/understanding-the-impact-of-youtubes-creative-commons-on-videos-for-2024/"><u>Understanding the Impact of YouTube's Creative Commons on Videos for 2024</u></a></li>
+</ul></div>

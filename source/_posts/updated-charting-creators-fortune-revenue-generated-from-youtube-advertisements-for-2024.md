@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Charting Creator's Fortune  Revenue Generated From Youtube Advertisements for 2024\""
-date: 2024-06-05T13:14:06.064Z
-updated: 2024-06-06T13:14:06.064Z
+date: 2024-08-01T06:06:56.712Z
+updated: 2024-08-02T06:06:56.712Z
 tags:
   - ai video
   - ai youtube
@@ -24,6 +24,10 @@ YouTube is a great way to make money online through sponsorship and selling merc
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## **Part 1\. How Much Do YouTubers Make Per View?**
 
 Are you curious about how much YouTubers make per view? Most people are. The Influencer Marketing Hub estimates that the average YouTuber makes $0.018 per view. These rates vary from $0.10 to $0.30 per ad view depending on the type of video and location.
@@ -84,20 +88,35 @@ YouTube creates a clear path for the birth of a new breed of celebrities. They h
 * [Unspeakable - $28.5 million](#youtuber5)
 * [Nastya - $28 million](#youtuber6)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### **1\.** [**Mr. Beast (Jimmy Donaldson) - $54 Million**](https://www.youtube.com/channel/UCX6OQ3DkcsbYNE6H8uQQuVA)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![mr. beast](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-4.JPG)
 
 Ranked first among the highest-paid YouTubers, Jimmy has the most popular channel. With more than 150 million subscribers, he creates videos about challenges, pranks, and giveaways. The videos have accumulated billions of views, contributing to his estimated net worth of over $100 million. Another important source of income is the Mr. Beast Burger app and menu that lets fans order MrBeast-banded meals from over 1,600 restaurants across the country.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### 2\. [**Jake Paul - $45 million**](https://www.youtube.com/@jakepaul)
 
 ![jake paul](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-5.JPG)
 
 Jake Paul is a renowned American professional boxer. Widely famous on social media, his YouTube is also one of the most highly ranked. He shares different kinds of videos from his boxing games. He also does pranks and reviews about different products.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### 3\. [**Markiplier - $38 Million**](https://www.youtube.com/channel/UC7%5FYxT-KID8kRbqZo7MyscQ)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![markiplier](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-6.JPG)
 
 Markiplier makes videos about playing games. The YouTube channel, which started in 2021 is renowned for moving merch. In addition to ad revenue, Markiplier records high sales of T-shirts, hoodies, and other items tied to the Unus Annus series.
@@ -110,12 +129,18 @@ This YouTube channel started as the duo hosting a nerdy daily talk show called _
 
 ### **5\.** [**Unspeakable - $28.5 million**](https://www.youtube.com/channel/UCwIWAbIeu0xI0ReKWOcw3eg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![unspeakable](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-8.JPG)
 
 Unspeakable talks about Minecraft in the channel. Nathan Graham posts videos of himself playing this and other games. He also posts other kinds of entertaining content such as filling a room with live alligators. His creativity has allowed him to collaborate with brands in making different ads and promotions.
 
 ### **6\.** [**Nastya - $28 million**](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![nastya](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-9.JPG)
 
 Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
@@ -130,6 +155,9 @@ The amount of money a YouTuber earns depends on several factors. However, the am
 
 With the integration of AI, Filmora now offers a wide range of editing features that you can use to automate editing. Instantly generate images, remove image background, and now. These features help create visually appealing and engaging videos that will increase the chances of monetization on YouTube. One of the AI features that stands out is Instant Mode.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ### [**Filmora Instant Mode**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Instant Mode helps beginners design slideshow videos with minimal effort. You probably have no video editing experience or a professional content creator with no time to make more videos. With Instant Mode, you can create a video within minutes. Let’s have a look at the steps involved:
@@ -138,12 +166,18 @@ The Instant Mode helps beginners design slideshow videos with minimal effort. Yo
 
 After opening Filmora on your device, click on Instant Mode. This feature is on the left side of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![instant mode 1](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-10.JPG)
 
 #### **Step 2 – Choose a Template**
 
 From the Instant Mode window, choose the video template you want to use. Click on it and play to preview the Video. Once satisfied, click om the Download Slideshow button to start editing your video.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instant mode 2](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-11.JPG)
 
 #### **Step 3 – Import Media Items**
@@ -156,18 +190,27 @@ Click on the Import Your Media icon, and add all the media files you want to use
 
 From the top-left corner of the screen, click the “Titles” category. Then choose from the options available for the required title template.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![instant mode 4](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-13.JPG)
 
 #### **Step 5 – Replace Needed Media Items**
 
 Review all the media items in the timeline, and replace any that you want with another option. The Replace icon allows you to seamlessly achieve this. You can also import new files to replace it with.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instant mode 5](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-14.JPG)
 
 #### **Step 6: Add Project to Timeline**
 
 Once you are satisfied with your slideshow video, click on the Timeline button. This will take you to Filmora’s editing environment where you can add effects and other elements to enhance the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![instant mode 6](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-15.JPG)
 
 #### **Step 7 – Preview and Export Your Video**
@@ -176,6 +219,9 @@ Click on the Play icon to preview the edited video. Then export it in MP4 format
 
 ![instant mode 7](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-16.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Other Useful Filmora Video Editing Features**
 
 * [AI Portrait](https://tools.techidaily.com/wondershare/filmora/download/) – Remove the background of your videos with high accuracy and choose over 70 portrait and sticker effects.
@@ -200,3 +246,48 @@ Running a YouTube Channel is lucrative. Although it may take time to build a fol
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-a-brand-through-youtube-a-strategic-guide/"><u>[New] 2024 Approved  Building a Brand Through YouTube  A Strategic Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-converting-youtube-audio-securely-master-3-proven-techniques/"><u>[New] 2024 Approved  Converting YouTube Audio Securely  Master 3 Proven Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dial-up-the-impact-with-50-free-branding-graphics/"><u>[New] 2024 Approved  Dial Up the Impact with 50 FREE Branding Graphics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dissecting-your-profit-share-in-youtube-short-creation/"><u>[New] 2024 Approved  Dissecting Your Profit Share in YouTube Short Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-diverging-paths-youtube-licensing-and-creative-commons/"><u>[New] 2024 Approved  Diverging Paths  YouTube Licensing & Creative Commons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-android-and-ios-users-choice-top-playlist-saving-apps-for-youtube-for-2024/"><u>[New] Android & iOS Users' Choice  Top Playlist Saving Apps for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-the-best-12-cameras-to-elevate-your-vlogs-for-2024/"><u>[New] Discover the Best 12 Cameras to Elevate Your Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-top-6-short-video-download-sites-free-for-2024/"><u>[New] Discover Top 6 Short Video Download Sites (FREE) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-engagement-finding-your-youtube-segment-for-2024/"><u>[New] Elevating Engagement  Finding Your YouTube Segment for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cutting-edge-tools-to-snatch-and-save-videos-flawlessly/"><u>[New] In 2024, Cutting-Edge Tools to Snatch and Save Videos Flawlessly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-tips-for-flv-file-fusion-on-youtube/"><u>[New] In 2024, Essential Tips for FLV File Fusion on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-youtube-rules-for-content-creators/"><u>[New] In 2024, Essential YouTube Rules for Content Creators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-fusionvisualizer-ipadplusmacmedia-combining-tool/"><u>[New] In 2024, FusionVisualizer  IPad+MacMedia Combining Tool</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unheard-voices-on-youtube-livestream-success-beyond-1000-supporters-for-2024/"><u>[New] Unheard Voices on YouTube  Livestream Success Beyond 1000 Supporters for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unlocking-success-with-effective-video-praise-techniques/"><u>[New] Unlocking Success with Effective Video Praise Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-view-count-rewards-on-youtube-per-million/"><u>[New] View Count Rewards on YouTube – Per Million?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-10-viral-exercise-routines-to-keep-your-channel-thriving/"><u>[Updated] 2024 Approved  10 Viral Exercise Routines to Keep Your Channel Thriving</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-journey-through-the-digital-landscape-six-engaging-quizzes-for-every-vlogger-admirer/"><u>[Updated] 2024 Approved  A Journey Through the Digital Landscape  Six Engaging Quizzes for Every Vlogger Admirer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-access-tons-of-free-vocal-textures/"><u>[Updated] 2024 Approved  Access Tons of Free Vocal Textures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-youtube-to-gif-makers-you-should-use-online-and-desktop/"><u>[Updated] 2024 Approved  Best YouTube To GIF Makers You Should Use (Online & Desktop)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-confirming-youtube-pro-rated-earnings/"><u>[Updated] 2024 Approved  Confirming YouTube Pro-Rated Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-amplify-audience-on-both-platforms-youtube-plus-twitch-strategy-for-2024/"><u>[Updated] Amplify Audience on Both Platforms  Youtube + Twitch Strategy for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhance-creativity-with-6-premium-and-complimentary-video-downloaders-for-2024/"><u>[Updated] Enhance Creativity With 6 Premium and Complimentary Video Downloaders for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-haste-in-playlist-distribution-youtube-guide/"><u>[Updated] Haste in Playlist Distribution  YouTube Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-guide-to-youtube-to-igtv-conversion/"><u>[Updated] In 2024, A Step-by-Step Guide to YouTube to IGTV Conversion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boost-your-game-presence-a-comprehensible-guide-to-freegame-hashtags/"><u>[Updated] In 2024, Boost Your Game Presence  A Comprehensible Guide to FreeGame Hashtags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-supercharge-your-videos-with-powerful-tagging-techniques/"><u>[Updated] Supercharge Your Videos with Powerful Tagging Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-patience-slowing-down-videos-on-youtube-51-chars/"><u>[Updated] The Art of Patience  Slowing Down Videos on YouTube (51 Chars)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-dynamic-yoga-platforms-for-optimal-health-and-strength/"><u>[Updated] Top 10 Dynamic Yoga Platforms for Optimal Health & Strength</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-stitching-photographs-into-an-eye-catching-canvas/"><u>2024 Approved  Stitching Photographs Into an Eye-Catching Canvas</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-z2-masterclass-smartphone-smarter-than-ever/"><u>2024 Approved  Z2 Masterclass  Smartphone Smarter Than Ever?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-zero-cost-techniques-for-video-and-text-combination/"><u>2024 Approved  Zero-Cost Techniques for Video and Text Combination</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-infinix-note-30i-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Infinix Note 30i.</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-samsung-galaxy-a15-4g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Samsung Galaxy A15 4G Quickly | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Best Spy Watches For your Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimize-your-content-searchability-with-these-7-top-tier-youtube-tags-extractor-tools-for-2024/"><u>Optimize Your Content Searchability with These 7 Top-Tier Youtube Tags Extractor Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/personal-vlogs-that-resonate-deeply-with-viewers-for-2024/"><u>Personal Vlogs That Resonate Deeply With Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/seeing-the-upside-down-inventive-techniques-to-rewind-yt-media-for-2024/"><u>Seeing the Upside Down  Inventive Techniques to Rewind YT Media for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stand-out-as-an-elite-gamer-on-youtube-for-2024/"><u>Stand Out as an Elite Gamer on Youtube for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/streamline-your-presence-optimal-obs-use-on-facebook-feed/"><u>Streamline Your Presence  Optimal OBS Use on Facebook Feed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unpacking-online-influence-your-channel-versus-competitors-strategies-for-2024/"><u>Unpacking Online Influence  Your Channel Versus Competitors' Strategies for 2024</u></a></li>
+</ul></div>

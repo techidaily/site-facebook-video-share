@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Guide to Swift Youtube Discussion Management"
-date: 2024-06-05T14:58:07.089Z
-updated: 2024-06-06T14:58:07.089Z
+date: 2024-08-01T09:00:58.158Z
+updated: 2024-08-02T09:00:58.158Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,9 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -69,6 +72,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -83,6 +93,9 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -110,6 +123,9 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -118,6 +134,9 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -126,6 +145,9 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -142,3 +164,45 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-earning-potential-on-youtube-shorts/"><u>[New] 2024 Approved  Boosting Earning Potential on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-create-a-youtube-music-playlist-on-web-and-mobile-a-detailed-guidance/"><u>[New] 2024 Approved  Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-enable-zoom-grid-on-google-meet/"><u>[New] Enable Zoom Grid on Google Meet</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-websites-your-gateway-to-youtube-branded-content/"><u>[New] In 2024, Discover Websites  Your Gateway to YouTube Branded Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-every-viewing-moment-with-these-top-6-free-platforms-for-youtube-short-downloads/"><u>[New] In 2024, Enhance Every Viewing Moment with These Top 6 Free Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-success-snap-up-your-ideal-video-size/"><u>[New] Instagram Success  Snap Up Your Ideal Video Size</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-thumbnail-strategy-for-top-video-visibility/"><u>[New] The Essential Thumbnail Strategy for Top Video Visibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transparency-in-tracking-youtube-viewers/"><u>[New] Transparency in Tracking YouTube Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-trippy-techniques-secrets-to-excellent-tripod-use-in-vlogging/"><u>[New] Trippy Techniques  Secrets to Excellent Tripod Use in Vlogging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-understanding-and-proficiently-implementing-cc-copyrights/"><u>[New] Understanding and Proficiently Implementing CC Copyrights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-10-essential-vlog-editing-hacks-for-novice-creators/"><u>[Updated] 2024 Approved  10 Essential Vlog Editing Hacks for Novice Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-phone-ideas-to-online-presence-simple-youtube-channel-creation-tips/"><u>[Updated] From Phone Ideas to Online Presence  Simple YouTube Channel Creation Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-create-a-playlist-on-youtube/"><u>[Updated] How to Create a Playlist on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-adding-a-digital-clock-to-your-youtube-video-playback/"><u>[Updated] In 2024, Adding a Digital Clock to Your YouTube Video Playback</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-channels-growth-strategies-for-effective-trailers/"><u>[Updated] In 2024, Boosting Channels' Growth  Strategies for Effective Trailers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-comprehensive-tutorial-on-youtube-annotation/"><u>[Updated] In 2024, Comprehensive Tutorial on Youtube Annotation</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-the-digital-persona-shift-ultimate-guide-to-changing-your-tiktok-handle-for-2024/"><u>[Updated] Mastering the Digital Persona Shift  Ultimate Guide to Changing Your TikTok Handle for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-music-manifesto-constructing-your-signature-youtube-playlists/"><u>[Updated] Music Manifesto  Constructing Your Signature YouTube Playlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-to-platforms-for-youtube-influencer-partnerships/"><u>[Updated] Navigating to Platforms for YouTube Influencer Partnerships</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-simple-guide-sharing-tweets-with-imagesvideos-directly-to-twitter/"><u>[Updated] Simple Guide  Sharing Tweets with Images/Videos Directly to Twitter</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-free-online-youtube-mp3-converters/"><u>[Updated] The Ultimate Guide to Free Online YouTube-MP3 Converters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-years-most-memorable-youtube-music-dance-clips/"><u>[Updated] The Year's Most Memorable YouTube Music Dance Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-funny-youtube-shorts-video-ideas/"><u>[Updated] Top 10 Funny YouTube Shorts Video Ideas</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-earnings-potential-essential-view-numbers/"><u>[Updated] Unlocking Earnings Potential  Essential View Numbers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-beauty-titans-whos-leading/"><u>[Updated] YouTube's Beauty Titans  Who's Leading ?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-zany-zooms-a-list-of-10-hilarious-short-youtube-video-scenes/"><u>[Updated] Zany Zooms  A List of 10 Hilarious, Short YouTube Video Scenes</u></a></li>
+<li><a href="https://windows11.techidaily.com/biometric-betrayal-how-secure-is-your-windows-hello-lock/"><u>Biometric Betrayal: How Secure Is Your Windows Hello Lock?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-on-apple-iphone-13-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock On Apple iPhone 13 - 4 Easy Ways</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-huawei-p60-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Huawei P60</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-infinix-hot-40i-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Infinix Hot 40i Without PUK Codes</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-oppo-find-x7-ultra-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Oppo Find X7 Ultra to iPhone | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-techniques-for-moving-media-from-iphones/"><u>In 2024, Comprehensive Techniques for Moving Media From iPhones</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-realme-c51-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Realme C51 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-xiaomi-14-ultra-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Xiaomi 14 Ultra? Try These Fixes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-free-youtube-channel-art-templates-find-them-here/"><u>In 2024, Free YouTube Channel Art Templates - Find Them Here!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pioneering-visibility-on-youtube-through-proven-methods-for-2024/"><u>Pioneering Visibility on YouTube Through Proven Methods for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/studio-strategies-for-video-impact-and-growth-for-2024/"><u>Studio Strategies for Video Impact and Growth for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-creative-potential-access-free-sfx-for-2024/"><u>Unlock Creative Potential, Access Free SFX for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-art-of-digital-broadcasting-in-real-time-for-2024/"><u>Unveiling the Art of Digital Broadcasting in Real Time for 2024</u></a></li>
+</ul></div>

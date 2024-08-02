@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Essential Quick Steps for Effective Double Take Filming\""
-date: 2024-06-05T14:44:36.404Z
-updated: 2024-06-06T14:44:36.404Z
+date: 2024-08-01T08:39:37.475Z
+updated: 2024-08-02T08:39:37.475Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,9 @@ Wardrobe and Set Design
 
 Bright green occurs less naturally in costumes and set designs than other colors, making green the optimal choice for reducing the likelihood of color spill and keying issues. However, if you know your scene will have lots of green, it is probably best to film with a blue screen, so there’s less risk of color spill and less post-production work.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Setting up Your Own Chroma Key Studio
 
 Setting up your chroma key is convenient and straightforward, but there are some key factors to consider while setting up to ensure maximal performance.
@@ -110,6 +113,9 @@ The optimal distance between the subject and the green screen minimizes color sp
 
 As mentioned before, the choice of costume for Selecting appropriate clothing that doesn't match the chroma key color prevents transparency issues. Subjects also have to be positioned in such a way that there is minimal light interference and reflection. These contribute to a flawless chroma key outcome.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3 Basic Troubleshooting Strategies
 
 * Color Spill
@@ -140,8 +146,14 @@ In this simple guide, we'll delve into the fundamentals of the **chroma key effe
 
 [Create Video Backgrounds](https://tools.techidaily.com/wondershare/filmora/download/) [Create Video Backgrounds](https://tools.techidaily.com/wondershare/filmora/download/) [Learn Green Screen](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **How Does Chroma Key Work?**
 
 ![green screen shooting](https://images.wondershare.com/filmora/article-images/2024/a-quick-guide-to-chroma-key-background-2.jpg)
@@ -208,6 +220,9 @@ Proper subject and camera placement are necessary to ensure an even color-keying
 
 High-quality cameras are essential every time, especially for chroma keying. Images with better definition are easier to key, so camera quality significantly affects the outcome. Even if your camera isn’t the best, merely shooting well can ensure a clean color-keying process during editing, resulting in professional-looking visuals.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Recording Tips for Chroma Key
 
 * Proper Lighting
@@ -280,6 +295,9 @@ Music reaction videos are becoming increasingly more popular. Instead of a stand
 
 03 [How to make a Youtube music reaction video with Filmora](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## What is a music reaction video?
 
 When you are on YouTube, you will see many music reaction videos. The music reaction video is the video that is based on the song. According to the situation, the person who uploads the video reacts to the song and does something funny or crazy. Many people enjoy watching these kinds of videos because they are funny and entertaining in many ways.
@@ -288,6 +306,9 @@ The best thing about these videos is that you can learn from them. You can learn
 
 You can even make your music reaction video and share it with your friends on social media platforms like Facebook, Twitter, and Instagram. People will love it and appreciate it, and you can also learn how to make these kinds of videos by watching other people's reactions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 10 Best YouTube Music Reaction Video
 
 ### #1\. \[BANGTAN BOMB\] 'Dynamite' MV Reaction
@@ -310,6 +331,9 @@ In this video, many elders react to the Lil Dick's Music video. Their reactions 
 
 In this video, some kids react to the Eminem rap music videos and give their views about rap. Some of them are amused by the rap, and some of them find it difficult to understand. Overall their reaction is worth watching. The video got over 13M views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### #6\. Do Teens Know 90s Hip Hop?
 
 In this video, many teens listen to '90s hip-hop music videos, and their reactions are recorded. They are familiar with some of the songs, and some are totally new and amusing to them. The video got over 11M Views on Youtube.
@@ -318,6 +342,146 @@ In this video, many teens listen to '90s hip-hop music videos, and their reactio
 
 In this video, a couple of friends react to the Mans Not Hot Music video and record their reactions. They have reacted to the video quite funny, and their reactions are very amusing. People enjoy watching their reactions. The video has over 11M views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+### #8 BTS React To Fans Watching "Boy With Luv" Music Video For The First Time
+
+In this video, The famous Koran Band BTS reacts to their fan's videos, watching Boy With Luv Music video for the first time. So, in this video, you will see the reaction of BTS to the reaction of their fans. The video was a hit on Youtube, and it got over 9M views.
+
+### #9 "Don't Forget" Minecraft FNAF Animation Music Video
+
+This is a reaction mashup video in which a lot of creators are reacting to the Don't forget music video. You rarely get to see soo many reactions in a single video. The video is a hit and has over 9M views on Youtube.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### #10 Youtubers React To Top 10 Most Disliked Music Videos Of All Time
+
+In this video, many YouTubers react to the top 10 most disliked music videos in Youtube's history. Their reactions are priceless, and this video is definitely worth watching. The video has over 6M views on Youtube.
+
+## How to make a Youtube music reaction video with Filmora
+
+Reaction videos are the latest trend in the world of YouTube. So many people want to create their own reaction videos but either doesn't have the skills to do so or don't know how to get started. This guide should give you everything you need to get started on creating your very next reaction video.
+
+**Step 1:** First of all, make sure that you have downloaded and installed the latest version of Filmora on your computer. If you haven't already downloaded it, then you can install it from their official website.
+
+**Step 2:** Run the Filmora software and when a window appears on your screen, click on the new project and select the 16:9 aspect ratio of your project.
+
+**Step 3:** Now first, you need to record your reaction to a [music video](https://tools.techidaily.com/wondershare/filmora/download/). You can use Filmora's Built-In screen recorder to record your reaction along with your cam. You can also record your reactions separately and then merge them with the original music video using Filmora.
+
+**Step 4:** Now import the music video on which you want to react to the Filmora library along with your reaction video. You can do this by clicking on the file, import, and import media.
+
+**Step 5:** Now drag the music video from the Library and drop it into the Filmora timeline.
+
+**Step 6:** Now drag your reaction video and drop it above the original music video in the track.
+
+**Step 7:** Decrease the size of your reaction video by using the canvas controls in the preview window and adjusting it to any side of the window.
+
+![how to make reaction video with Filmora](https://images.wondershare.com/filmora/article-images/2022/04/youtube-music-reaction-videos-1.jpg)
+
+**Step 8:** If you want to keep your reaction video in a big frame and your music video in a small one, you can do the opposite.
+
+**Step 9:** If you want to add any effects or call-outs to your video, you can use the rich elements library of Filmora, where you can find hundreds of interactive elements.
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
+![how to make reaction video with Filmora - add effects](https://images.wondershare.com/filmora/article-images/2022/04/youtube-music-reaction-videos-2.jpg)
+
+**Step 10:** Once you have finalized the video, click on the import button and save the video to your computer in your desired format. Once the video is imported, you can share it on Youtube with your audience.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Conclusion
+
+**●** By following the steps above and using Filmora, you will be able to produce a high-quality **music reaction video** that can be shared with family, friends, or even your favorite artists. All of the steps above may look complicated when separated into different actions, but they became much easier and quicker when completed together and practiced in order.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Reaction videos are slowly taking over YouTube as the most popular type of channel. Everyone loves when someone reacts to something, and it can be anything from music, games, trending topics, or even random things like orange juice. They are so popular that people tag their friends to react to the series.
+
+Music reaction videos are becoming increasingly more popular. Instead of a standard lyric video, music reaction videos show a fan listening and singing to their favorite album or single from start to finish. There are tons of fan-made music reaction videos on YouTube, but some get hundreds of thousands or even millions of views!
+
+#### In this article
+
+01 [What is a music reaction video?](#part1)
+
+02 [10 Best YouTube Music Reaction Video](#part2)
+
+03 [How to make a Youtube music reaction video with Filmora](#part3)
+
+## What is a music reaction video?
+
+When you are on YouTube, you will see many music reaction videos. The music reaction video is the video that is based on the song. According to the situation, the person who uploads the video reacts to the song and does something funny or crazy. Many people enjoy watching these kinds of videos because they are funny and entertaining in many ways.
+
+The best thing about these videos is that you can learn from them. You can learn how to react in certain situations, but these situations might arise only once in your life. So, it is good to react to these funny videos and make yourself aware of what should be done in such a situation.
+
+You can even make your music reaction video and share it with your friends on social media platforms like Facebook, Twitter, and Instagram. People will love it and appreciate it, and you can also learn how to make these kinds of videos by watching other people's reactions.
+
+## 10 Best YouTube Music Reaction Video
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### #1\. \[BANGTAN BOMB\] 'Dynamite' MV Reaction
+
+In this video, a famous Korean Band named BTS reacts to many different music videos from the past. People love to see their reactions, and the video has over 25M views on Youtube.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
+### #2\. Rappers React to Rich Brian ft. Ghostface Killah, Desiigner, Tory Lanez & More
+
+In this video, many street rappers react to many famous rappers and give their views about them. The video became quite popular on Youtube and got 23M+ views.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### #3\. Dixie D'Amelio’s Family and Friends React to her Be Happy Music Video
+
+In this video, many people who are relatives of Dixie D'Amelio react to her music video. She recorded the reach of each one of them and shared it with the youtube community. The video got over 20M views on youtube.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+### #4\. Elders React To Lil Dicky - Earth
+
+In this video, many elders react to the Lil Dick's Music video. Their reactions are quite amusing to the audience, and the video got over 19M views on Youtube.
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
+### #5\. Kids React To Eminem
+
+In this video, some kids react to the Eminem rap music videos and give their views about rap. Some of them are amused by the rap, and some of them find it difficult to understand. Overall their reaction is worth watching. The video got over 13M views on Youtube.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### #6\. Do Teens Know 90s Hip Hop?
+
+In this video, many teens listen to '90s hip-hop music videos, and their reactions are recorded. They are familiar with some of the songs, and some are totally new and amusing to them. The video got over 11M Views on Youtube.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### #7\. Big Shaq - Mans Not Hot (Music Video)- Reaction
+
+In this video, a couple of friends react to the Mans Not Hot Music video and record their reactions. They have reacted to the video quite funny, and their reactions are very amusing. People enjoy watching their reactions. The video has over 11M views on Youtube.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #8 BTS React To Fans Watching "Boy With Luv" Music Video For The First Time
 
 In this video, The famous Koran Band BTS reacts to their fan's videos, watching Boy With Luv Music video for the first time. So, in this video, you will see the reaction of BTS to the reaction of their fans. The video was a hit on Youtube, and it got over 9M views.
@@ -366,6 +530,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** By following the steps above and using Filmora, you will be able to produce a high-quality **music reaction video** that can be shared with family, friends, or even your favorite artists. All of the steps above may look complicated when separated into different actions, but they became much easier and quicker when completed together and practiced in order.
@@ -398,26 +565,44 @@ You can even make your music reaction video and share it with your friends on so
 
 In this video, a famous Korean Band named BTS reacts to many different music videos from the past. People love to see their reactions, and the video has over 25M views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### #2\. Rappers React to Rich Brian ft. Ghostface Killah, Desiigner, Tory Lanez & More
 
 In this video, many street rappers react to many famous rappers and give their views about them. The video became quite popular on Youtube and got 23M+ views.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #3\. Dixie D'Amelio’s Family and Friends React to her Be Happy Music Video
 
 In this video, many people who are relatives of Dixie D'Amelio react to her music video. She recorded the reach of each one of them and shared it with the youtube community. The video got over 20M views on youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ### #4\. Elders React To Lil Dicky - Earth
 
 In this video, many elders react to the Lil Dick's Music video. Their reactions are quite amusing to the audience, and the video got over 19M views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### #5\. Kids React To Eminem
 
 In this video, some kids react to the Eminem rap music videos and give their views about rap. Some of them are amused by the rap, and some of them find it difficult to understand. Overall their reaction is worth watching. The video got over 13M views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ### #6\. Do Teens Know 90s Hip Hop?
 
 In this video, many teens listen to '90s hip-hop music videos, and their reactions are recorded. They are familiar with some of the songs, and some are totally new and amusing to them. The video got over 11M Views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #7\. Big Shaq - Mans Not Hot (Music Video)- Reaction
 
 In this video, a couple of friends react to the Mans Not Hot Music video and record their reactions. They have reacted to the video quite funny, and their reactions are very amusing. People enjoy watching their reactions. The video has over 11M views on Youtube.
@@ -430,6 +615,9 @@ In this video, The famous Koran Band BTS reacts to their fan's videos, watching 
 
 This is a reaction mashup video in which a lot of creators are reacting to the Don't forget music video. You rarely get to see soo many reactions in a single video. The video is a hit and has over 9M views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #10 Youtubers React To Top 10 Most Disliked Music Videos Of All Time
 
 In this video, many YouTubers react to the top 10 most disliked music videos in Youtube's history. Their reactions are priceless, and this video is definitely worth watching. The video has over 6M views on Youtube.
@@ -452,12 +640,18 @@ Reaction videos are the latest trend in the world of YouTube. So many people wan
 
 **Step 7:** Decrease the size of your reaction video by using the canvas controls in the preview window and adjusting it to any side of the window.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![how to make reaction video with Filmora](https://images.wondershare.com/filmora/article-images/2022/04/youtube-music-reaction-videos-1.jpg)
 
 **Step 8:** If you want to keep your reaction video in a big frame and your music video in a small one, you can do the opposite.
 
 **Step 9:** If you want to add any effects or call-outs to your video, you can use the rich elements library of Filmora, where you can find hundreds of interactive elements.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![how to make reaction video with Filmora - add effects](https://images.wondershare.com/filmora/article-images/2022/04/youtube-music-reaction-videos-2.jpg)
 
 **Step 10:** Once you have finalized the video, click on the import button and save the video to your computer in your desired format. Once the video is imported, you can share it on Youtube with your audience.
@@ -470,6 +664,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** By following the steps above and using Filmora, you will be able to produce a high-quality **music reaction video** that can be shared with family, friends, or even your favorite artists. All of the steps above may look complicated when separated into different actions, but they became much easier and quicker when completed together and practiced in order.
@@ -488,6 +685,9 @@ Music reaction videos are becoming increasingly more popular. Instead of a stand
 
 03 [How to make a Youtube music reaction video with Filmora](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is a music reaction video?
 
 When you are on YouTube, you will see many music reaction videos. The music reaction video is the video that is based on the song. According to the situation, the person who uploads the video reacts to the song and does something funny or crazy. Many people enjoy watching these kinds of videos because they are funny and entertaining in many ways.
@@ -496,8 +696,24 @@ The best thing about these videos is that you can learn from them. You can learn
 
 You can even make your music reaction video and share it with your friends on social media platforms like Facebook, Twitter, and Instagram. People will love it and appreciate it, and you can also learn how to make these kinds of videos by watching other people's reactions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## 10 Best YouTube Music Reaction Video
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #1\. \[BANGTAN BOMB\] 'Dynamite' MV Reaction
 
 In this video, a famous Korean Band named BTS reacts to many different music videos from the past. People love to see their reactions, and the video has over 25M views on Youtube.
@@ -506,6 +722,9 @@ In this video, a famous Korean Band named BTS reacts to many different music vid
 
 In this video, many street rappers react to many famous rappers and give their views about them. The video became quite popular on Youtube and got 23M+ views.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #3\. Dixie D'Amelio’s Family and Friends React to her Be Happy Music Video
 
 In this video, many people who are relatives of Dixie D'Amelio react to her music video. She recorded the reach of each one of them and shared it with the youtube community. The video got over 20M views on youtube.
@@ -534,6 +753,9 @@ In this video, The famous Koran Band BTS reacts to their fan's videos, watching 
 
 This is a reaction mashup video in which a lot of creators are reacting to the Don't forget music video. You rarely get to see soo many reactions in a single video. The video is a hit and has over 9M views on Youtube.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #10 Youtubers React To Top 10 Most Disliked Music Videos Of All Time
 
 In this video, many YouTubers react to the top 10 most disliked music videos in Youtube's history. Their reactions are priceless, and this video is definitely worth watching. The video has over 6M views on Youtube.
@@ -556,110 +778,9 @@ Reaction videos are the latest trend in the world of YouTube. So many people wan
 
 **Step 7:** Decrease the size of your reaction video by using the canvas controls in the preview window and adjusting it to any side of the window.
 
-![how to make reaction video with Filmora](https://images.wondershare.com/filmora/article-images/2022/04/youtube-music-reaction-videos-1.jpg)
-
-**Step 8:** If you want to keep your reaction video in a big frame and your music video in a small one, you can do the opposite.
-
-**Step 9:** If you want to add any effects or call-outs to your video, you can use the rich elements library of Filmora, where you can find hundreds of interactive elements.
-
-![how to make reaction video with Filmora - add effects](https://images.wondershare.com/filmora/article-images/2022/04/youtube-music-reaction-videos-2.jpg)
-
-**Step 10:** Once you have finalized the video, click on the import button and save the video to your computer in your desired format. Once the video is imported, you can share it on Youtube with your audience.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-## Conclusion
-
-**●** By following the steps above and using Filmora, you will be able to produce a high-quality **music reaction video** that can be shared with family, friends, or even your favorite artists. All of the steps above may look complicated when separated into different actions, but they became much easier and quicker when completed together and practiced in order.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Reaction videos are slowly taking over YouTube as the most popular type of channel. Everyone loves when someone reacts to something, and it can be anything from music, games, trending topics, or even random things like orange juice. They are so popular that people tag their friends to react to the series.
-
-Music reaction videos are becoming increasingly more popular. Instead of a standard lyric video, music reaction videos show a fan listening and singing to their favorite album or single from start to finish. There are tons of fan-made music reaction videos on YouTube, but some get hundreds of thousands or even millions of views!
-
-#### In this article
-
-01 [What is a music reaction video?](#part1)
-
-02 [10 Best YouTube Music Reaction Video](#part2)
-
-03 [How to make a Youtube music reaction video with Filmora](#part3)
-
-## What is a music reaction video?
-
-When you are on YouTube, you will see many music reaction videos. The music reaction video is the video that is based on the song. According to the situation, the person who uploads the video reacts to the song and does something funny or crazy. Many people enjoy watching these kinds of videos because they are funny and entertaining in many ways.
-
-The best thing about these videos is that you can learn from them. You can learn how to react in certain situations, but these situations might arise only once in your life. So, it is good to react to these funny videos and make yourself aware of what should be done in such a situation.
-
-You can even make your music reaction video and share it with your friends on social media platforms like Facebook, Twitter, and Instagram. People will love it and appreciate it, and you can also learn how to make these kinds of videos by watching other people's reactions.
-
-## 10 Best YouTube Music Reaction Video
-
-### #1\. \[BANGTAN BOMB\] 'Dynamite' MV Reaction
-
-In this video, a famous Korean Band named BTS reacts to many different music videos from the past. People love to see their reactions, and the video has over 25M views on Youtube.
-
-### #2\. Rappers React to Rich Brian ft. Ghostface Killah, Desiigner, Tory Lanez & More
-
-In this video, many street rappers react to many famous rappers and give their views about them. The video became quite popular on Youtube and got 23M+ views.
-
-### #3\. Dixie D'Amelio’s Family and Friends React to her Be Happy Music Video
-
-In this video, many people who are relatives of Dixie D'Amelio react to her music video. She recorded the reach of each one of them and shared it with the youtube community. The video got over 20M views on youtube.
-
-### #4\. Elders React To Lil Dicky - Earth
-
-In this video, many elders react to the Lil Dick's Music video. Their reactions are quite amusing to the audience, and the video got over 19M views on Youtube.
-
-### #5\. Kids React To Eminem
-
-In this video, some kids react to the Eminem rap music videos and give their views about rap. Some of them are amused by the rap, and some of them find it difficult to understand. Overall their reaction is worth watching. The video got over 13M views on Youtube.
-
-### #6\. Do Teens Know 90s Hip Hop?
-
-In this video, many teens listen to '90s hip-hop music videos, and their reactions are recorded. They are familiar with some of the songs, and some are totally new and amusing to them. The video got over 11M Views on Youtube.
-
-### #7\. Big Shaq - Mans Not Hot (Music Video)- Reaction
-
-In this video, a couple of friends react to the Mans Not Hot Music video and record their reactions. They have reacted to the video quite funny, and their reactions are very amusing. People enjoy watching their reactions. The video has over 11M views on Youtube.
-
-### #8 BTS React To Fans Watching "Boy With Luv" Music Video For The First Time
-
-In this video, The famous Koran Band BTS reacts to their fan's videos, watching Boy With Luv Music video for the first time. So, in this video, you will see the reaction of BTS to the reaction of their fans. The video was a hit on Youtube, and it got over 9M views.
-
-### #9 "Don't Forget" Minecraft FNAF Animation Music Video
-
-This is a reaction mashup video in which a lot of creators are reacting to the Don't forget music video. You rarely get to see soo many reactions in a single video. The video is a hit and has over 9M views on Youtube.
-
-### #10 Youtubers React To Top 10 Most Disliked Music Videos Of All Time
-
-In this video, many YouTubers react to the top 10 most disliked music videos in Youtube's history. Their reactions are priceless, and this video is definitely worth watching. The video has over 6M views on Youtube.
-
-## How to make a Youtube music reaction video with Filmora
-
-Reaction videos are the latest trend in the world of YouTube. So many people want to create their own reaction videos but either doesn't have the skills to do so or don't know how to get started. This guide should give you everything you need to get started on creating your very next reaction video.
-
-**Step 1:** First of all, make sure that you have downloaded and installed the latest version of Filmora on your computer. If you haven't already downloaded it, then you can install it from their official website.
-
-**Step 2:** Run the Filmora software and when a window appears on your screen, click on the new project and select the 16:9 aspect ratio of your project.
-
-**Step 3:** Now first, you need to record your reaction to a [music video](https://tools.techidaily.com/wondershare/filmora/download/). You can use Filmora's Built-In screen recorder to record your reaction along with your cam. You can also record your reactions separately and then merge them with the original music video using Filmora.
-
-**Step 4:** Now import the music video on which you want to react to the Filmora library along with your reaction video. You can do this by clicking on the file, import, and import media.
-
-**Step 5:** Now drag the music video from the Library and drop it into the Filmora timeline.
-
-**Step 6:** Now drag your reaction video and drop it above the original music video in the track.
-
-**Step 7:** Decrease the size of your reaction video by using the canvas controls in the preview window and adjusting it to any side of the window.
-
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to make reaction video with Filmora](https://images.wondershare.com/filmora/article-images/2022/04/youtube-music-reaction-videos-1.jpg)
 
 **Step 8:** If you want to keep your reaction video in a big frame and your music video in a small one, you can do the opposite.
@@ -696,3 +817,48 @@ For macOS 10.12 or later
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-term-roi-analysis./"><u>[New] __Energy Savings Calculations__  While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis.</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-must-try-microphones-for-exceptional-asmr-sounds/"><u>[New] 2024 Approved  10 Must-Try Microphones for Exceptional ASMR Sounds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-steps-to-curate-youtube-music-selections/"><u>[New] 2024 Approved  Essential Steps to Curate YouTube Music Selections</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-lightweightscreencapture-no-fuss-just-fun/"><u>[New] 2024 Approved  LightweightScreenCapture - No Fuss, Just Fun</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-becoming-a-billionaire-on-the-blockchain-non-ad-profits-on-youtube-for-2024/"><u>[New] Becoming a Billionaire on the Blockchain  Non-Ad Profits on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-building-a-diverse-content-portfolio-on-youtube-shorts-for-2024/"><u>[New] Building a Diverse Content Portfolio on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-captivate-audiences-unveiling-secrets-for-striking-youtube-banners-for-2024/"><u>[New] Captivate Audiences  Unveiling Secrets for Striking YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-construct-a-careerscape-on-camera-by-critiquing-closets-for-2024/"><u>[New] Construct a Careerscape on Camera by Critiquing Closets for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-functionality-of-youtubes-media-hub-for-2024/"><u>[New] Decoding the Functionality of YouTube's Media Hub for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-youtube-tagging-strategies-for-optimal-visibility-for-2024/"><u>[New] Essential YouTube Tagging Strategies for Optimal Visibility for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-content-delivery-comparison-vimeo-vs-youtube-vs-dailymotion/"><u>[Updated] 2024 Approved  Content Delivery Comparison  Vimeo vs YouTube vs Dailymotion</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-top-picks-of-external-ssds-for-xbox-gaming/"><u>[Updated] 2024 Approved  Top Picks of External SSDs for Xbox Gaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-8-key-money-making-moves-for-youtube-rookies-for-2024/"><u>[Updated] 8 Key Money-Making Moves for YouTube Rookies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-affordable-tutorial-on-professional-looking-youtube-introsends-for-2024/"><u>[Updated] Affordable Tutorial on Professional Looking YouTube Intros/Ends for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-charting-a-course-through-youtubes-copyright-maze-for-2024/"><u>[Updated] Charting a Course Through YouTube's Copyright Maze for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-composing-correspondents-curtains-for-2024/"><u>[Updated] Composing Correspondents' Curtains for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-customize-video-speed-to-match-your-desired-watch-time-for-2024/"><u>[Updated] Customize Video Speed to Match Your Desired Watch Time for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-detailed-instructions-for-embedding-and-displaying-youtube-playlists-online-for-2024/"><u>[Updated] Detailed Instructions for Embedding and Displaying YouTube Playlists Online for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-guide-never-see-youtube-shorts-again-for-2024/"><u>[Updated] Effortless Guide  Never See YouTube Shorts Again for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-youtube-experience-tips-on-channel-art-and-sizes-for-2024/"><u>[Updated] Elevating Your YouTube Experience  Tips on Channel Art and Sizes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exclusive-guide-10-immersive-youtube-vr-films/"><u>[Updated] Exclusive Guide  10 Immersive YouTube VR Films</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-upload-shorts-video-on-youtube/"><u>[Updated] How to Upload Shorts Video on YouTube?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-virality-youtube-promotion-no-cost-involved/"><u>[Updated] In 2024, Achieving Virality  YouTube Promotion No Cost Involved</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-an-inviting-subscribe-icon-for-youtube-videographers/"><u>[Updated] In 2024, Crafting an Inviting Subscribe Icon for YouTube Videographers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-proven-pathways-to-peeling-away-pesky-backdrops-with-affinity-photo-tools/"><u>[Updated] Proven Pathways to Peeling Away Pesky Backdrops with Affinity Photo Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-guide-iphones-video-loop-functionality/"><u>[Updated] Quick Guide  IPhone's Video Loop Functionality</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-convenient-way-to-mute-youtube-channels-on-pcmobile/"><u>[Updated] The Convenient Way to Mute Youtube Channels on PC/Mobile</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-youtube-potential-with-smart-tags-and-titles/"><u>[Updated] Unleash YouTube Potential with Smart Tags and Titles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-mystery-of-youtubes-monetization-rates/"><u>[Updated] Unveiling the Mystery of YouTube's Monetization Rates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-melody-to-video-quick-sound-import-tricks/"><u>2024 Approved  Melody to Video  Quick Sound Import Tricks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-masterclass-beginners-kit-free-courses-collection/"><u>2024 Approved  YouTube Masterclass Beginners Kit  Free Courses Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-assessment-for-(securityfacebookmailcom)-as-a-secure-mail-service/"><u>Authenticity Assessment for @<security@facebookmail.com> as a Secure Mail Service</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypassing-windows-task-sequence-error-0x8007000f/"><u>Bypassing Windows Task Sequence Error 0X8007000f</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/grasping-the-balance-positives-and-negatives-of-vr-for-2024/"><u>Grasping the Balance  Positives and Negatives of VR for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Pause Life360 Location Sharing For Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/inspirational-insta-captions-to-elevate-your-social-presence/"><u>Inspirational Insta Captions to Elevate Your Social Presence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-your-videos-focus-with-simple-blurring-techniques-for-2024/"><u>Perfect Your Video's Focus with Simple Blurring Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-guide-overcoming-youtube-short-hurdles-for-2024/"><u>Quick Guide  Overcoming YouTube Short Hurdles for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spelling-missteps-in-english-uncovered-top-100-list/"><u>Spelling Missteps in English Uncovered - Top 100 List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/swaying-scripts-an-introduction-to-bouncy-text-animations-for-2024/"><u>Swaying Scripts  An Introduction to Bouncy Text Animations for 2024</u></a></li>
+</ul></div>

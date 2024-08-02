@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Expert Tips on Camera Lens Selection For Professional Vloggers"
-date: 2024-06-05T13:01:41.556Z
-updated: 2024-06-06T13:01:41.556Z
+date: 2024-08-01T05:46:01.200Z
+updated: 2024-08-02T05:46:01.200Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/dd1b377f0a177d81939c2e9879a9449aa15d2816c
 
 # A Vlogger's Guide To Camera Lenses
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -56,6 +60,9 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -82,6 +89,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
@@ -101,8 +112,14 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ### Aperture
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
@@ -141,6 +158,9 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -157,3 +177,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-explore-and-review-free-powerful-and-user-friendly-ios-edits/"><u>[New] 2024 Approved  Explore & Review  Free, Powerful, and User-Friendly iOS Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-practical-guide-to-applying-creative-commons-rights-for-2024/"><u>[New] A Practical Guide To Applying Creative Commons Rights for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-aesthetic-ambitions-launching-a-youtube-channel-for-makeup-maven-for-2024/"><u>[New] Aesthetic Ambitions  Launching a YouTube Channel for Makeup Maven for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-broadview-networks-navigating-mcn-choices-for-2024/"><u>[New] Broadview Networks  Navigating MCN Choices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-techniques-for-yt-video-tweaking-with-wm-maker-for-2024/"><u>[New] Essential Techniques for YT Video Tweaking with WM Maker for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-best-mac-apps-for-high-quality-gif-saving/"><u>[New] In 2024, Best Mac Apps for High-Quality GIF Saving</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-captivating-youtube-openers-two-ways/"><u>[New] In 2024, Creating Captivating YouTube Openers - Two Ways</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhancing-beauty-on-streams-via-color-grading/"><u>[New] In 2024, Enhancing Beauty on Streams via Color Grading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-how-to-edit-youtube-videos-in-finalcut-pro/"><u>[New] In 2024, How to Edit YouTube Videos in Finalcut Pro</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-no-rush-realms-top-12-serene-titles-for-2024/"><u>[New] No-Rush Realms  Top 12 Serene Titles for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-step-by-step-guide-to-watching-facebook-live-events/"><u>[New] Step-by-Step Guide to Watching Facebook Live Events</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-smart-approach-to-video-marketing-for-smbs/"><u>[New] The SMART Approach to Video Marketing for SMBs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effective-youtube-card-usage-guide/"><u>[Updated] 2024 Approved  Effective YouTube Card Usage Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-youtube-beginnings-15-editing-samples-for-2024/"><u>[Updated] Best YouTube Beginnings  15 Editing Samples for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-finest-tiktok-creation-software-for-windows-desktop-for-2024/"><u>[Updated] Finest TikTok Creation Software for Windows Desktop for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-convert-youtube-to-igtv-videos-3-ways/"><u>[Updated] How to Convert YouTube to IGTV Videos? [3 Ways]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-get-your-youtube-video-seen-6-easy-steps/"><u>[Updated] How to Get Your YouTube Video Seen - 6 Easy Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-launch-your-first-sporty-video-channel-on-apple-systems/"><u>[Updated] How to Launch Your First Sporty Video Channel on Apple Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-igtv-vs-youtube-differences-and-which-one-should-you-use/"><u>[Updated] IGTV VS YouTube  Differences and Which One Should You Use?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-a-viral-path-best-hashtags-for-youtube-riches/"><u>[Updated] In 2024, Crafting a Viral Path  Best Hashtags for YouTube Riches</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-youtube-video-to-text-conversion-at-no-cost/"><u>[Updated] In 2024, Effortless YouTube Video to Text Conversion at No Cost</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-secrets-to-successful-hash-tag-application-for-improved-campaigns-on-facebook/"><u>[Updated] Secrets to Successful Hash Tag Application for Improved Campaigns on Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-10-tips-for-remotely-recording-your-podcasts-for-2024/"><u>[Updated] Top 10 Tips for Remotely Recording Your Podcasts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-elevate-your-videography-premiere-to-youtube-upload/"><u>2024 Approved  Elevate Your Videography  Premiere to YouTube Upload</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-samsung-galaxy-f04-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Samsung Galaxy F04 System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-civi-3-disney-100th-anniversary-edition-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Civi 3 Disney 100th Anniversary Edition Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-tecno-spark-20-proplus-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Tecno Spark 20 Pro+ to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-nokia-c12-plus-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Nokia C12 Plus to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-from-your-iphone-13-pro-max-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID From your iPhone 13 Pro Max without Security Questions?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-pixel-art-generator-in-2024/"><u>New What Is AI Pixel Art Generator, In 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pushing-photography-to-new-heights-with-lightrooms-hdr-for-2024/"><u>Pushing Photography to New Heights with Lightroom's HDR for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stream-like-never-before-turning-on-youtubes-av1-for-2024/"><u>Stream Like Never Before  Turning On YouTube's AV1 for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/technical-mishap-printer-setup-misstep/"><u>Technical Mishap: Printer Setup Misstep!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transform-your-content-3-effective-techniques-for-youtube-reaction-magic-for-2024/"><u>Transform Your Content  3 Effective Techniques for YouTube Reaction Magic for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-infinix-zero-5g-2023-turbo-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Infinix Zero 5G 2023 Turbo Users</u></a></li>
+</ul></div>

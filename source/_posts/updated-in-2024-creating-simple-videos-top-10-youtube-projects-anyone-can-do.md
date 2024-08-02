@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-06-05T14:28:17.639Z
-updated: 2024-06-06T14:28:17.639Z
+date: 2024-08-01T08:12:18.394Z
+updated: 2024-08-02T08:12:18.394Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/98a90a980daafb5d4122c6bec488811f000154f10
 
 # 10 Easy YouTube Video Ideas Everyone Can Make It
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -47,6 +50,9 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
@@ -67,24 +73,45 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. What’s on Your Phone?
 
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Make a Slideshow
 
 There's no need to constantly produce new videos because you can just take some royalty-free music and create a slideshow from your old or new photos. The slideshow format will certainly allow you to try something different on your YouTube channel, while the photos you use in the slideshow can create a clear picture of who you are and what you do for your viewers.
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
@@ -111,6 +138,9 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -127,3 +157,44 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-auditing-for-accuracy-youtube-monetization-compliance/"><u>[New] 2024 Approved  Auditing for Accuracy  YouTube Monetization Compliance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-copyright-concerns-with-recording-youtube-content/"><u>[New] 2024 Approved  Copyright Concerns with Recording YouTube Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-crafting-a-chorus-of-images-and-sound-on-instagram/"><u>[New] 2024 Approved  Crafting a Chorus of Images & Sound on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-video-appeal-with-filmmaker-friendly-subscribe-button-tutorials-filmora/"><u>[New] 2024 Approved  Enhance Video Appeal with Filmmaker-Friendly Subscribe Button Tutorials (Filmora)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dynamic-videos-made-easy-with-best-stabilizers/"><u>[New] In 2024, Dynamic Videos Made Easy with Best Stabilizers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimized-data-backup-on-android-leading-cloud-apps-2024-edition/"><u>[New] Optimized Data Backup on Android  Leading Cloud Apps 2024 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-stunning-video-capture-best-youtube-cameras-reviewed/"><u>[New] Stunning Video Capture  Best YouTube Cameras Reviewed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tech-triumphs-cutting-edge-vr-devices-reviewed/"><u>[New] Tech Triumphs  Cutting-Edge VR Devices Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-digital-green-magic-comprecipate-free-lessons-from-4-masterful-channels/"><u>[New] The Ultimate Guide to Digital Green Magic  Comprecipate Free Lessons From 4 Masterful Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transform-flv-into-youtube-hits-with-these-top-alternatives/"><u>[New] Transform FLV Into YouTube Hits with These Top Alternatives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transforming-web-popularity-into-video-concepts-using-google-trends/"><u>[New] Transforming Web Popularity Into Video Concepts Using Google Trends</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-potential-in-your-channel-through-studio/"><u>[New] Unleashing Potential in Your Channel Through Studio</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtube-secrets-sharing-videos-in-google-wallet/"><u>[New] Unlocking YouTube Secrets  Sharing Videos in Google Wallet</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-accelerate-your-channel-growth-affordable-subscribers-available/"><u>[Updated] 2024 Approved  Accelerate Your Channel Growth - Affordable Subscribers Available</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audiovisual-quality-its-significance-in-video-ranking/"><u>[Updated] 2024 Approved  Audiovisual Quality  Its Significance in Video Ranking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-become-a-pro-in-calculating-youtube-ratio-measures/"><u>[Updated] 2024 Approved  Become a Pro in Calculating YouTube Ratio Measures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-capture-clarity-high-quality-screen-recordings-for-youtubers-pcmac/"><u>[Updated] 2024 Approved  Capture Clarity  High-Quality Screen Recordings for YouTubers (PC/Mac)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-decoding-digital-dynamics-unveiling-the-secret-sauce-for-youtube-success-and-revenue/"><u>[Updated] 2024 Approved  Decoding Digital Dynamics  Unveiling the Secret Sauce for YouTube Success & Revenue</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-heartstrings-harmony-best-music-to-accompany-your-engagement/"><u>[Updated] 2024 Approved  Heartstrings Harmony  Best Music to Accompany Your Engagement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-restore-order-fixing-compromised-fb-profile/"><u>[Updated] 2024 Approved  Restore Order  Fixing Compromised Fb Profile</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beginners-guide-to-budget-friendly-webinars-using-youtube-for-2024/"><u>[Updated] Beginner's Guide to Budget-Friendly Webinars  Using YouTube for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-best-websites-to-find-3d-gold-text-effects/"><u>[Updated] Best Websites to Find 3D Gold Text Effects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-accelerate-how-to-swiftly-broadcast-playlists/"><u>[Updated] In 2024, Accelerate  How To Swiftly Broadcast Playlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-video-reach-on-youtube-an-in-depth-guide-to-seo-techniques/"><u>[Updated] In 2024, Boosting Video Reach on YouTube  An In-Depth Guide to SEO Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elite-audio-modifying-tools-tailored-to-youtube-creators/"><u>[Updated] In 2024, Elite Audio Modifying Tools Tailored to YouTube Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-endless-creativity-free-youtube-art-resources/"><u>[Updated] In 2024, Endless Creativity  FREE YouTube Art Resources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-instantaneous-viewership-metering/"><u>[Updated] Instantaneous Viewership Metering</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategic-trailer-planning-for-increased-channels-profitability/"><u>[Updated] Strategic Trailer Planning for Increased Channels' Profitability</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-streamline-your-virtual-sessions-with-these-top-10-tools/"><u>[Updated] Streamline Your Virtual Sessions with These Top 10 Tools</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-zero-to-hero-amplifying-youtube-influence-via-famebit-partnerships/"><u>2024 Approved  From Zero to Hero  Amplifying YouTube Influence via FameBit Partnerships</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-mastering-zoom-transcribing-top-5-suggestions-for-all-budgets/"><u>In 2024, Mastering Zoom Transcribing  Top 5 Suggestions for All Budgets</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unlock-insightful-revelations-instagram-snapshot-audiences/"><u>In 2024, Unlock Insightful Revelations  Instagram Snapshot Audiences</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/nailing-instagram-aesthetics-tips-for-video-dimensions-for-2024/"><u>Nailing Instagram Aesthetics  Tips for Video Dimensions for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-resolve-print-management-service-absence-in-windows/"><u>Steps to Resolve 'Print Management' Service Absence in Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-prime-list-cutting-through-the-noise-to-find-top-9-free-tools-for-2024/"><u>The Prime List  Cutting Through the Noise to Find Top 9 FREE Tools for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-picks-in-affordable-home-cinema-setups-with-4k/"><u>Top Picks in Affordable Home Cinema Setups with 4K</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-partnership-unlocked-break-through-at-10k-vistas-for-2024/"><u>YouTube Partnership Unlocked  Break Through at 10K Vistas for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-shorts-thumbnail-woes-a-quick-guide-to-solutions-for-2024/"><u>YouTube Shorts Thumbnail Woes  A Quick Guide to Solutions for 2024</u></a></li>
+</ul></div>

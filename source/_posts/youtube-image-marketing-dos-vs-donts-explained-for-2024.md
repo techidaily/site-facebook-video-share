@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Image Marketing  Dos vs Don'ts Explained for 2024\""
-date: 2024-06-05T15:35:05.005Z
-updated: 2024-06-06T15:35:05.005Z
+date: 2024-08-01T10:04:41.096Z
+updated: 2024-08-02T10:04:41.096Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 * **[What Should I Write on Banner?](#write)**
 * **[How Can I Make My Channel Art Look Good?](#good)**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 1: What Kind of Background Should I Use?
@@ -51,8 +55,14 @@ When choosing great photos for your background, pick ones that are high quality 
 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -69,6 +79,9 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
@@ -91,6 +104,9 @@ Social media accounts are important to include in your channel art because we li
 
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 _Make sure everything important fits in the safe area!_
@@ -125,6 +141,9 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -147,3 +166,50 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-acquiring-free-music-youtube-video-edition/"><u>[New] 2024 Approved  Acquiring Free Music  YouTube Video Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>[New] 2024 Approved  Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-rules-of-engagement-on-youtube/"><u>[New] 2024 Approved  Essential Rules of Engagement on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-live-tv-saving-made-simple-with-free-software-tools/"><u>[New] 2024 Approved  Live TV Saving Made Simple with Free Software Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles-for-2024/"><u>[New] Enhancing User Experience  A Quick How-To for YouTube CC & Subtitles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-perfect-youtube-music-sets/"><u>[New] In 2024, Crafting Perfect YouTube Music Sets</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-cutting-edge-techniques-for-audience-engagement-on-twitch/"><u>[New] In 2024, Cutting-Edge Techniques for Audience Engagement on Twitch</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-how-can-i-view-friends-shared-vids-and-photos/"><u>[New] In 2024, How Can I View Friend’s Shared Vids and Photos?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-comprehensive-selection-of-top-10-free-srt-changers/"><u>[New] In 2024, The Comprehensive Selection of Top 10 FREE SRT Changers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-what-to-do-when-you-spot-your-own-face-during-a-call/"><u>[New] In 2024, What to Do When You Spot Your Own Face During a Call?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-post-upload-functionality-in-youtube-videos/"><u>[New] Unraveling Post-Upload Functionality in YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-using-youtubes-cc-licensing/"><u>[Updated] 2024 Approved  A Comprehensive Guide to Using YouTube's CC Licensing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>[Updated] 2024 Approved  Diving Into Video Quality  DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-your-videos-reach-top-8-youtube-ranks-unveiled/"><u>[Updated] 2024 Approved  Elevating Your Video's Reach - Top 8 YouTube Ranks Unveiled</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-transforming-vids-10-leading-apps-for-instagram-video-editing/"><u>[Updated] 2024 Approved  Transforming Vids  10 Leading Apps for Instagram Video Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-8-free-online-video-editors-for-youtube/"><u>[Updated] 8 Free Online Video Editors for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-clipcrafter-app/"><u>[Updated] ClipCrafter App</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-excellent-10-tech-choices-for-livestream-monitoring-for-2024/"><u>[Updated] Excellent 10 Tech Choices for Livestream Monitoring for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-imagecraft-tools/"><u>[Updated] ImageCraft Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capture-clarity-high-quality-screen-recordings-for-youtubers-pcmac/"><u>[Updated] In 2024, Capture Clarity  High-Quality Screen Recordings for YouTubers (PC/Mac)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-secrets-to-successfully-archive-facebook-messenger-chat/"><u>[Updated] In 2024, Secrets to Successfully Archive Facebook Messenger Chat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ultimate-guide-to-best-youtube-banner-size-and-channel-art-dimension/"><u>[Updated] In 2024, Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-the-art-of-viral-video-marketing/"><u>[Updated] Mastering the Art of Viral Video Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-live-top-webcam-selection-tips/"><u>[Updated] Mastering YouTube Live  Top Webcam Selection Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mobile-harmony-6-essential-free-apps-to-download-youtube-tracks/"><u>[Updated] Mobile Harmony  6 Essential Free Apps to Download YouTube Tracks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-preventing-total-loss-of-image-in-streaming-videos-on-youtube/"><u>[Updated] Preventing Total Loss of Image in Streaming Videos on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prime-8-chart-tracer-apex-of-youtube-rankings/"><u>[Updated] Prime 8 Chart Tracer  Apex of YouTube Rankings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-swift-strategies-randomize-your-video-playlist-quickly/"><u>[Updated] Swift Strategies  Randomize Your Video Playlist Quickly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-top-10-memes-blending-hilarity-and-emotional-depth-on-insta-for-2024/"><u>[Updated] Top 10 Memes Blending Hilarity and Emotional Depth on Insta for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-5-cozy-winter-scenes-for-video-aesthetics/"><u>[Updated] Top 5 Cozy Winter Scenes for Video Aesthetics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-engagement-posting-youtube-video-on-fb/"><u>2024 Approved  Elevate Engagement  Posting YouTube Video on FB</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-organizing-elements-for-dynamic-youtube-videos/"><u>2024 Approved  Organizing Elements for Dynamic YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-visionaries-coordinated-consumption-across-channels/"><u>2024 Approved  Video Visionaries  Coordinated Consumption Across Channels</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-poco-m6-pro-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Poco M6 Pro 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/epson-printers-odd-behavior-unnecessary-paper-usage/"><u>Epson Printer's Odd Behavior: Unnecessary Paper Usage</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-add-subtitles-to-igtv-videos-for-2024/"><u>How to Add Subtitles to IGTV Videos for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-malfunctioning-your-drivers-with-windows-device-manager-on-windows-7-by-drivereasy-guide/"><u>Identify malfunctioning your drivers with Windows Device Manager on Windows 7</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-masterclass-choose-your-development-stage/"><u>In 2024, YouTube Masterclass  Choose Your Development Stage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-earnings-go-up-with-500-subs/"><u>In 2024, YouTube's Earnings Go Up With 500 Subs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-vlc-mp4-and-various-format-conversion-techniques/"><u>Mastering VLC  MP4 & Various Format Conversion Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pioneering-a-dual-perspective-3-innovative-techniques-for-viewpoint-based-youtube-reactions-for-2024/"><u>Pioneering a Dual Perspective  3 Innovative Techniques for Viewpoint-Based YouTube Reactions for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/revealing-hidden-group-sharing-in-chat-space/"><u>Revealing Hidden Group Sharing in Chat Space</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/thriving-in-the-freefire-arena-with-pro-gamers-guide-for-2024/"><u>Thriving in the FreeFire Arena with Pro Gamers' Guide for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-oppo-a38-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Oppo A38 Phones</u></a></li>
+</ul></div>

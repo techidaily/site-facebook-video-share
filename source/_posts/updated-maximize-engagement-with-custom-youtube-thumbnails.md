@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Maximize Engagement with Custom YouTube Thumbnails"
-date: 2024-06-05T12:53:58.505Z
-updated: 2024-06-06T12:53:58.505Z
+date: 2024-08-01T05:32:50.597Z
+updated: 2024-08-02T05:32:50.597Z
 tags:
   - ai video
   - ai youtube
@@ -20,8 +20,14 @@ There is a saying that first impressions last, and this is proven true, especial
 
 This technique not only attract viewers to watch your video, but it also gives a glimpse of your content. In this article, we will provide you with a quick tutorial on how to resize a YouTube thumbnail and suggest handy tools you can use to create the perfect YouTube video thumbnail!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube thumbnail resize](https://images.wondershare.com/filmora/article-images/resize-youtube-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best YouTube Thumbnail Size
 
 According to YouTube's help center, there are some things to remember when creating a thumbnail for your YouTube videos.
@@ -60,6 +66,9 @@ Step3 Set the width to **1280** and the height to **720**. Then **tick** the box
 
 Step4 Click the upload thumbnail button on YouTube and **import** your resized image.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![upload resized thumbnail in youtube](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-finished.jpg)
 
 ### Method 2\. Online YouTube Thumbnail Size Converter
@@ -70,6 +79,9 @@ There are various YouTube thumbnail resizers available online. Some of the most 
 
 Promo is a free online software you can use to convert an image to a YouTube thumbnail. It is one of the best YouTube Thumbnail tools as it uses simple operation steps and automatically resizes your image without losing its quality.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![promo YouTube thumbnail size maker](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size-converter-promo.JPG)
 
 Here are the steps on how to use the Promo YouTube thumbnail size converter:
@@ -80,8 +92,23 @@ Step1 Go to Promo's [official website](https://promo.com/tools/image-resizer/) a
 
 Step2 Scroll down and find the YouTube thumbnail size where your resized image is displayed. Then, **click "Download."**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![promo download YouTube thumbnail](https://images.wondershare.com/filmora/article-images/promo-download-youtube-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 3: Convert the Image to YouTube Thumbnail Using Wondershare Filmora
 
 It is without a doubt that online YouTube thumbnail resizers are great tools for converting your image to an ideal YouTube thumbnail. But it would be much better if you resize your video using the same app you use for editing. That way, you will save time using two separate apps, and your task will be much more efficient using an all-in-one video editing tool.
@@ -98,18 +125,27 @@ Here is the step-by-step tutorial on how to use Filmora in resizing your YouTube
 
 Step1 Open the video in the timeline, **click** the play icon in the player window, and **pause** when you reach the desired frame for the YouTube thumbnail. **Click** the camera icon to take a snapshot.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora open video](https://images.wondershare.com/filmora/article-images/filmora-open-video.jpg)
 
 Step2 In the snapshot window, **choose** to **save** the snapshot as a PNG or JPG file.
 
 Step3 Select the output storage location and **click OK**.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora save snapshot](https://images.wondershare.com/filmora/article-images/filmora-save-snapshot.jpg)
 
 **2\. Resize the YouTube Thumbnail**
 
 Step1 Import the image into the app timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora import snapshot](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 Step2 Drag and drop the image into the timeline and **click** the green "**Export**" button. In the popup Export window, select **GIF**. Next, click "**Settings**" to adjust the resolution.
@@ -118,8 +154,14 @@ Step2 Drag and drop the image into the timeline and **click** the green "**Expor
 
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora adjust resolution](https://images.wondershare.com/filmora/article-images/filmora-adjust-resolution.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### Method 4\. Convert Images to YouTube Thumbnail Using Third-Party Software
 
 In addition to using dedicated video editing software, several third-party image editing programs can be used to resize images for use as YouTube thumbnails. Programs like [GIMP](https://www.gimp.org/) are popular for this purpose, as it offers a wide range of tools and features for editing and resizing images.
@@ -130,6 +172,9 @@ To resize an image using an image editing program like GIMP, follow these steps:
 
 Step1 Install and **launch** GIMP on your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![gimp install](https://images.wondershare.com/filmora/article-images/gimp-install.JPG)
 
 Step2 Click on "**File**" > "**Open**," then search for the file you want to resize.
@@ -138,16 +183,25 @@ Step2 Click on "**File**" > "**Open**," then search for the file you want to res
 
 Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution is 1920 by 1080.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gimp edit resolution](https://images.wondershare.com/filmora/article-images/gimp-edit-resolution.JPG)
 
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gimp export format](https://images.wondershare.com/filmora/article-images/gimp-export-format.JPG)
 
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
 
 ![gimp export thumbnail](https://images.wondershare.com/filmora/article-images/gimp-export-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Comparison of These 4 YouTube Thumbnail Resizing Methods
 
 Now that we've explored the four methods for resizing YouTube thumbnails, it's time to compare the pros and cons of each method. In this section, we'll consider factors such as ease of use, speed, quality, cost, and compatibility to help you determine the best option for your needs.
@@ -192,6 +246,10 @@ Step2 In the snapshot window, **choose** to **save** the snapshot as a PNG or JP
 
 Step3 Select the output storage location and **click OK**.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![filmora save snapshot](https://images.wondershare.com/filmora/article-images/filmora-save-snapshot.jpg)
 
 **2\. Resize the YouTube Thumbnail**
@@ -222,6 +280,9 @@ Step1 Install and **launch** GIMP on your computer.
 
 Step2 Click on "**File**" > "**Open**," then search for the file you want to resize.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gimp open thumbnail](https://images.wondershare.com/filmora/article-images/gimp-open-thumbnail.JPG)
 
 Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution is 1920 by 1080.
@@ -234,8 +295,14 @@ Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Ty
 
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gimp export thumbnail](https://images.wondershare.com/filmora/article-images/gimp-export-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Comparison of These 4 YouTube Thumbnail Resizing Methods
 
 Now that we've explored the four methods for resizing YouTube thumbnails, it's time to compare the pros and cons of each method. In this section, we'll consider factors such as ease of use, speed, quality, cost, and compatibility to help you determine the best option for your needs.
@@ -304,6 +371,9 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How Revenue is Calculated
 
 In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
@@ -318,6 +388,9 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understanding CPM and CPCs
 
 ### What is CPM?
@@ -332,6 +405,82 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
+## Changes on YouTube and How You Can Earn More
+
+Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
+
+Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
+
+[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
+
+Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
+
+[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
+
+So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
+
+#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+02 [How is the revenue calculated?](#part2)
+
+03 [CPMs and CPCs](#part3)
+
+04 [How monetization is changing](#part4)
+
+## $2000 for 1 Million Views
+
+In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
+
+Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
+
+If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
+
+## How Revenue is Calculated
+
+In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
+
+In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
+
+As of February 2018, to qualify for ad revenue, the YouTube channel must have:
+
+1\. You will need to have 1,000 subscribers.
+
+2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
+
+The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
+## Understanding CPM and CPCs
+
+### What is CPM?
+
+CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
+
+Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
+
+For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### What is CPC?
+
+CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Changes on YouTube and How You Can Earn More
 
 Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
@@ -384,6 +533,9 @@ The AdSense revenue that you earn through YouTube will vary depending on a large
 
 ## Understanding CPM and CPCs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### What is CPM?
 
 CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
@@ -396,6 +548,9 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## Changes on YouTube and How You Can Earn More
 
 Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
@@ -416,6 +571,9 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 02 [How is the revenue calculated?](#part2)
@@ -424,6 +582,9 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 04 [How monetization is changing](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -456,74 +617,16 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
-## Changes on YouTube and How You Can Earn More
-
-Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
-
-Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
-
-[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
-
-Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
-
-[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
-
-So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
-
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-02 [How is the revenue calculated?](#part2)
-
-03 [CPMs and CPCs](#part3)
-
-04 [How monetization is changing](#part4)
-
-## $2000 for 1 Million Views
-
-In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
-
-Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
-
-If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
-
-## How Revenue is Calculated
-
-In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
-
-In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
-
-As of February 2018, to qualify for ad revenue, the YouTube channel must have:
-
-1\. You will need to have 1,000 subscribers.
-
-2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
-
-The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
-
-## Understanding CPM and CPCs
-
-### What is CPM?
-
-CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
-
-Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
-
-For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
-
-### What is CPC?
-
-CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
-
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Changes on YouTube and How You Can Earn More
 
 Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
@@ -560,3 +663,40 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-becoming-a-pro-at-using-a-tripod-for-clear-high-quality-vlogs/"><u>[New] 2024 Approved  Becoming a Pro at Using a Tripod for Clear, High-Quality Vlogs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-restoring-visibility-in-your-youtube-screens/"><u>[New] 2024 Approved  Restoring Visibility in Your YouTube Screens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-personalizing-youtube-visuals/"><u>[New] Mastering the Art of Personalizing YouTube Visuals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-elite-makeup-vloggers-shaping-2024s-beauty-scene/"><u>[New] The Elite Makeup Vloggers Shaping 2024'S Beauty Scene</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-fastest-to-reach-a-billion-views-on-youtube/"><u>[New] The Fastest to Reach a Billion Views on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-glossary-of-youtube-shorts-terms/"><u>[New] The Ultimate Glossary of YouTube Shorts Terms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-naming-excellence-tips-and-strategies/"><u>[Updated] 2024 Approved  Channel Naming Excellence  Tips & Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-edu-favorites-best-learning-yt-channels/"><u>[Updated] 2024 Approved  Edu-Favorites  Best Learning YT Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-10-screen-recorders-for-youtube-for-2024/"><u>[Updated] Best 10 Screen Recorders for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-directly-posting-your-videos-from-idevice-to-youtube-for-2024/"><u>[Updated] Directly Posting Your Videos From iDevice to YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-online-presence-with-captivating-haul-videos-for-2024/"><u>[Updated] Elevate Your Online Presence with Captivating Haul Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-explore-the-top-7-innovative-apps-for-effortless-youtube-live-broadcasts-on-iphone-and-android-for-2024/"><u>[Updated] Explore the Top 7 Innovative Apps for Effortless YouTube LIVE Broadcasts on iPhone and Android for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-elevate-youtube-rankings-with-optimized-metadata/"><u>[Updated] How to Elevate YouTube Rankings with Optimized Metadata</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-improve-viewability-master-the-art-of-adding-timestamps-to-youtube-urls/"><u>[Updated] Improve Viewability  Master the Art of Adding Timestamps to YouTube URLs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-youtube-content-with-7-premium-free-audio-sounds/"><u>[Updated] In 2024, Elevate Your YouTube Content With 7 Premium, Free Audio Sounds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-video-seo-5-steps-to-surge-in-youtube-popularity/"><u>[Updated] Mastering Video SEO  5 Steps to Surge in YouTube Popularity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-most-reliable-platforms-to-gather-video-intro-templates/"><u>[Updated] Most Reliable Platforms to Gather Video Intro Templates</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-sculpt-visual-jokes-for-giphy-space/"><u>[Updated] Sculpt Visual Jokes for Giphy Space</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-secrets-of-snapping-finding-missing-private-images/"><u>[Updated] Secrets of Snapping  Finding Missing Private Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-securing-youtube-partnership-a-comprehensive-guide-for-video-creators/"><u>[Updated] Securing YouTube Partnership  A Comprehensive Guide for Video Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-editing-and-uploading-360-videos-on-youtube/"><u>[Updated] Step-by-Step  Editing & Uploading 360 Videos on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ceasing-noise-during-obs-recordings/"><u>Ceasing Noise During OBS Recordings</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-nokia-g42-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Nokia G42 5G in Minutes | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-y200-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Vivo Y200 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-expert-strategies-to-master-the-instagram-query-tag/"><u>In 2024, Expert Strategies to Master the Instagram Query Tag</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-g2-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo G2 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vimeo-and-youtube-the-ultimate-showdown/"><u>In 2024, Vimeo and YouTube  The Ultimate Showdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vloggers-guide-top-5-audio-excellence-headphones/"><u>In 2024, Vloggers’ Guide  Top 5 Audio Excellence Headphones</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-adobe-premiere-tutorial-importing-and-exporting-videos-like-a-pro/"><u>New In 2024, Adobe Premiere Tutorial Importing and Exporting Videos Like a Pro</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/pc-videography-leveraging-windows-hdr/"><u>PC Videography  Leveraging Windows HDR</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionizing-video-revenue-a-conducive-guide-to-youtube-profits-for-2024/"><u>Revolutionizing Video Revenue  A Conducive Guide to Youtube Profits for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/unlock-success-top-12-tycoon-games-to-capture-your-attention/"><u>Unlock Success  Top 12 Tycoon Games to Capture Your Attention</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-infinix-smart-7-hd-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Infinix Smart 7 HD Users</u></a></li>
+</ul></div>

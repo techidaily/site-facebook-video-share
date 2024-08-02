@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Becoming a Master at the Art of Engaging Thumbnails for 2024"
-date: 2024-06-05T12:31:50.966Z
-updated: 2024-06-06T12:31:50.966Z
+date: 2024-08-01T04:55:34.719Z
+updated: 2024-08-02T04:55:34.719Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/zMpzmUsiz9u9cI7ifqEIl6_RowU=/300x200/fi
 
 # The Ultimate Guide to YouTube Thumbnails that Get Views
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,8 +45,14 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 
 Here are some examples of popular thumbnail styles.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -117,6 +126,9 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -131,6 +143,9 @@ You can make changes to the colors in your Spark thumbnail easily by selecting a
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
 Here are the top 10 best practices for creating effective YouTube thumbnails:
@@ -181,6 +196,9 @@ Alright, now that you know everything about YouTube thumbnails, go make one! Tel
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -199,3 +217,40 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-biggest-fifa-visuals-youtube-insights-graphed/"><u>[New] 2024 Approved  Biggest FIFA Visuals  YouTube Insights Graphed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-comprehensive-directory-extracting-yt-template-videos-online/"><u>[New] 2024 Approved  Comprehensive Directory  Extracting YT Template Videos Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-list-6-free-online-platforms-for-youtube-short-downloads/"><u>[New] 2024 Approved  Essential List  6 Free Online Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-learn-the-art-of-engaging-video-startups-with-imovie/"><u>[New] Learn the Art of Engaging Video Startups with iMovie</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-the-art-of-youtube-thumbnails-in-minutes/"><u>[New] Master the Art of YouTube Thumbnails in Minutes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-role-of-analytics-in-amplifying-your-youtube-presence/"><u>[New] The Role of Analytics in Amplifying Your YouTube Presence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-windows-movie-maker-a-toolkit-for-youtube-videographers/"><u>[New] Windows Movie Maker  A Toolkit for YouTube Videographers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools-for-2024/"><u>[Updated] 10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-10-easy-youtube-video-ideas-everyone-can-make-it/"><u>[Updated] 2024 Approved  10 Easy YouTube Video Ideas Everyone Can Make It</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-chronicles-of-time-student-approved-historical-yt-content/"><u>[Updated] 2024 Approved  Chronicles of Time  Student-Approved Historical YT Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-tools-free-youtube-intro-creators/"><u>[Updated] 2024 Approved  Cutting-Edge Tools  Free YouTube Intro Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-videography-premiere-to-youtube-upload/"><u>[Updated] 2024 Approved  Elevate Your Videography  Premiere to YouTube Upload</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-earning-big-on-youtube-shorts-must-haves-opportunities-and-more-for-2024/"><u>[Updated] Earning Big on YouTube Shorts  Must-Haves, Opportunities and More for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-guide-to-secure-and-free-youtube-music-downloads-for-2024/"><u>[Updated] Effortless Guide to Secure and Free YouTube Music Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhancing-income-through-the-science-of-youtube-trailer-creation-for-2024/"><u>[Updated] Enhancing Income Through the Science of YouTube Trailer Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-video-embedding-for-dynamic-online-articles/"><u>[Updated] Free Video Embedding for Dynamic Online Articles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-convert-youtube-videos-to-mp3-songs-on-mac-2023-update/"><u>[Updated] How to Convert YouTube Videos to MP3 Songs on Mac-2023 Update</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-10-volume-magnifiers-for-windowsmacos/"><u>[Updated] In 2024, Best 10 Volume Magnifiers for Windows/MacOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-the-excess-a-guide-to-shortening-youtube-videos/"><u>[Updated] In 2024, Cutting the Excess  A Guide to Shortening YouTube Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-secure-social-space-end-following-protocols/"><u>[Updated] In 2024, Secure Social Space  End Following Protocols</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-key-lights-and-soft-shadows-for-vloggers/"><u>[Updated] Key Lights and Soft Shadows for Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-leverage-youtubes-cp2024-the-ultimate-guidebook/"><u>[Updated] Leverage YouTube's CP2024  The Ultimate Guidebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximize-views-download-youtube-artwork-for-free/"><u>[Updated] Maximize Views  Download YouTube Artwork for Free</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-your-ultimate-guide-to-best-free-game-recording-apps/"><u>[Updated] Your Ultimate Guide to Best Free Game Recording Apps</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-creative-potential-utilizing-luts-to-enhance-video-quality/"><u>2024 Approved  Unlock Creative Potential  Utilizing LUTs to Enhance Video Quality</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On OnePlus Ace 3? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-honor-90-pro-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Honor 90 Pro to Protect Your Individual Information</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-tecno-spark-go-2023-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Tecno Spark Go (2023) Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-infinix-note-30-vip-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Infinix Note 30 VIP</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-samsung-galaxy-s23plus-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Samsung Galaxy S23+ Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/insta-angle-alchemy-crafting-content-with-a-twist-for-maximum-impact-for-2024/"><u>Insta-Angle Alchemy  Crafting Content with a Twist for Maximum Impact for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolved-graphics-driver-error-22/"><u>Resolved Graphics Driver Error 22</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/uncovered-the-hidden-youtube-shorts-fix-for-2024/"><u>Uncovered  The Hidden YouTube Shorts Fix for 2024</u></a></li>
+</ul></div>

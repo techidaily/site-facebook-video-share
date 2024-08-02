@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Beginner's Tutorial  How to Insert On-Screen Dialogue in Video Formats for 2024\""
-date: 2024-06-05T13:05:45.187Z
-updated: 2024-06-06T13:05:45.187Z
+date: 2024-08-01T05:52:51.892Z
+updated: 2024-08-02T05:52:51.892Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,9 @@ Before uploading the video to YouTube, it is recommended to add text to the vide
 
 There are plenty of Text effects built in Filmora, you can apply motions and animation to texts, titles, subtitles, end credits and openers as well. Each title preset will present different effects. You can add multiple text boxes and place the text to any position in need. Besides writing texts to video, you can select the target font, size and color and customize the text effect in detail as well. To add text to a video in Filmora is easy, just follow the steps below:
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
@@ -46,6 +49,9 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 * To change the color of your text, go into the **Customize**  menu. You will find it near the top left of your screen. While you are in **Customize** there will be a section called **Fill**. This is where you select the color of your text. You can even change the fill type to ‘gradient fill’ and have your text transition between two colors.
 * All of Filmora’s text options are animated – they fade, move around the screen, or perform some other type of action as they appear and disappear. To change the animation of your text select **Animation** next to **Customize**. A selection of different animations will appear. Double click on the one you want to apply to your text.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -67,6 +73,9 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 
 [Adding text to YouTube videos in Sony Vegas](https://tools.techidaily.com/wondershare/filmora/download/) is not so complicated if you are new to this software. You can adjust the color, size, font and duration of the text effect and add fade in and fade out effects. Follow the steps below to add texts to video in Vegas:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
 
 * Launch Sony Vegas Movie Studio.
@@ -120,6 +129,9 @@ When you make use of this editor, you cannot shorten the clips for music. Moreov
 
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Top 3 Tips for Adding Text to YouTube Videos
 
 #### 1\. Leave Room
@@ -140,8 +152,19 @@ Text is a great tool for making something stand out. However, if you try to use 
 
 Try to use text to emphasize only the most important things you say.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -158,3 +181,55 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-bright-idea-boost-your-videos-impact-on-youtube/"><u>[New] 2024 Approved  A Bright Idea  Boost Your Video's Impact on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-youtube-rules-for-content-creators/"><u>[New] 2024 Approved  Essential YouTube Rules for Content Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-aural-clarity-unleashed-secrets-to-high-quality-audio-for-2024/"><u>[New] Aural Clarity Unleashed  Secrets to High-Quality Audio for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-best-screen-grabber-gadgets-for-youtube-channels-for-2024/"><u>[New] Best Screen Grabber Gadgets for YouTube Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-capture-the-magic-our-list-of-top-12-cameras-for-exceptional-vlogs-for-2024/"><u>[New] Capture the Magic  Our List of Top 12 Cameras for Exceptional Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-craft-a-unique-channel-look-for-free-for-2024/"><u>[New] Craft a Unique Channel Look for Free for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cut-the-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt-for-2024/"><u>[New] Cut the Clutter, Convert Videos  Discover the Best Alternatives for Flv to YT for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-becoming-a-wealthy-beauty-channel-host/"><u>[New] In 2024, Becoming a Wealthy Beauty Channel Host</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discreet-youtube-playback-on-mobile-devices/"><u>[New] In 2024, Discreet YouTube Playback on Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-9-simple-and-economical-editing-solutions-for-your-projects/"><u>[New] In 2024, Explore 9 Simple & Economical Editing Solutions for Your Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-leading-linux-editors-top-8-video-cutters/"><u>[New] Leading Linux Editors  Top 8 Video Cutters</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-maximizing-your-google-photos-experience/"><u>[New] Maximizing Your Google Photos Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-swift-modification-youtube-aspect-ratio-on-mac/"><u>[New] Swift Modification  YouTube Aspect Ratio on MAC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-tips-for-discarding-unwanted-youtube-files/"><u>[New] The Essential Tips for Discarding Unwanted YouTube Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thriving-in-thumbnails-creating-impressive-youtube-on-macos/"><u>[New] Thriving in Thumbnails  Creating Impressive Youtube on macOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-creative-filmmaking-youtube-guides-and-extras/"><u>[New] Unleash Creative Filmmaking  YouTube Guides & Extras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveil-the-secrets-to-excellent-youtube-thumbnails/"><u>[New] Unveil the Secrets to Excellent YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-charting-the-course-of-monetization-for-creator-economy-on-youtubeshorts/"><u>[Updated] 2024 Approved  Charting the Course of Monetization for Creator Economy on YouTubeshorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-transformation-unleash-potential-with-tubebuddy-for-2024/"><u>[Updated] Channel Transformation  Unleash Potential with TubeBuddy for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-craft-a-unique-channel-look-for-free-for-2024/"><u>[Updated] Craft a Unique Channel Look for Free for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-end-screen-creation-made-simple-free-templates-and-guides-for-2024/"><u>[Updated] End Screen Creation Made Simple - Free Templates & Guides for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-tips-for-youtube-channel-aesthetics-finding-optimal-sizes/"><u>[Updated] Expert Tips for YouTube Channel Aesthetics  Finding Optimal Sizes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-photo-background-blur-apps-for-iphone-and-android-phones/"><u>[Updated] In 2024, Best Photo Background Blur Apps for iPhone and Android Phones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-editors-elite-gadgets-best-machines-for-screen-magic/"><u>[Updated] In 2024, Editor’s Elite Gadgets  Best Machines for Screen Magic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>[Updated] In 2024, Elevate Your Content  A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essentials-to-skyrocketing-video-views-on-youtube/"><u>[Updated] In 2024, Essentials to Skyrocketing Video Views on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-explore-the-pinnacle-of-editing-android-edition/"><u>[Updated] In 2024, Explore the Pinnacle of Editing  Android Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-channel-lockdowns-device-specific-tips/"><u>[Updated] Mastering YouTube Channel Lockdowns  Device-Specific Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-cash-flow-on-youtube-maximizing-earnings-with-short-videos/"><u>[Updated] Quick Cash Flow on YouTube  Maximizing Earnings with Short Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-must-watch-global-journey-vids-on-youtube/"><u>[Updated] Top 10 Must-Watch Global Journey Vids on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-transforming-viewership-a-proven-guide-to-implementing-youtubes-featured-listings/"><u>[Updated] Transforming Viewership  A Proven Guide to Implementing Youtube's Featured Listings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-premium-free-fb-imagemotion-graphics-builder/"><u>2024 Approved  Premium Free FB Image/Motion Graphics Builder</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-checklist-for-understanding-the-value-of-youtube-tv/"><u>2024 Approved  The Ultimate Checklist for Understanding the Value of YouTube TV</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/elite-no-cost-fb-imagemovie-design-toolkit-for-2024/"><u>Elite No-Cost FB Image/Movie Design Toolkit for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-motorola-g54-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Motorola G54 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-all-you-need-to-know-about-youtube-shorts-fund/"><u>In 2024, All You Need to Know About YouTube Shorts Fund</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-elevate-your-discord-statues-with-fun-emoji-add-ons/"><u>In 2024, Elevate Your Discord Statues with Fun Emoji Add-Ons</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-transforming-mac-screenshot-file-extensions/"><u>In 2024, Transforming Mac Screenshot File Extensions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-where-the-magic-of-video-editing-begins-on-youtube/"><u>In 2024, Where the Magic of Video Editing Begins on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-link-building-101-a-content-marketers-guide/"><u>In 2024, YouTube Link-Building 101  A Content Marketer's Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/iphone-exposed-the-art-of-prolonged-photography-for-2024/"><u>IPhone Exposed  The Art of Prolonged Photography for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-chatgpt/"><u>New 2024 Approved What Is ChatGPT?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pazera-unchained-master-your-music-extraction-techniques-for-2024/"><u>Pazera Unchained  Master Your Music Extraction Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/seamless-search-for-your-youtube-comments-across-platforms-for-2024/"><u>Seamless Search for Your YouTube Comments Across Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/simply-save-your-streamed-content-with-these-premium-tools-for-2024/"><u>Simply Save Your Streamed Content with These Premium Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essentials-of-earning-on-youtube-latest-changes-for-2024/"><u>The Essentials of Earning on YouTube  Latest Changes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/turbo-charge-your-playlist-exposure-youtube-style-for-2024/"><u>Turbo-Charge Your Playlist Exposure, YouTube Style for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/visionblend-editor-for-2024/"><u>VisionBlend Editor for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtubes-prime-stream-essential-tech-equipment-guide-for-creators-for-2024/"><u>YouTube's Prime Stream  Essential Tech, Equipment Guide for Creators for 2024</u></a></li>
+</ul></div>

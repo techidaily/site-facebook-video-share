@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Engaging Viewers with Ease  The Art of Confidently Filming for 2024\""
-date: 2024-06-05T13:13:13.899Z
-updated: 2024-06-06T13:13:13.899Z
+date: 2024-08-01T06:05:28.683Z
+updated: 2024-08-02T06:05:28.683Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/f35affd0446f81f879a70f50fd131f599003c290d
 
 # 8 Tips on How to Vlog Confidently Like Popular YouTubers
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -50,6 +53,9 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -58,6 +64,9 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -66,6 +75,9 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -78,6 +90,9 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -120,6 +135,9 @@ Do you have any vlogging tricks of your own? Leave a comment below.
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**, which will definitely enhance your productivity and helps you to make money by making videos much easier.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -138,3 +156,37 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-audioarchive-compiler-download-playback-and-test/"><u>[New] 2024 Approved  AudioArchive Compiler  Download, Playback & Test</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-prominence-mastery-a-comprehensive-youtube-guide/"><u>[New] 2024 Approved  Channel Prominence Mastery  A Comprehensive YouTube Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-download-playback-streaming-youtube-videos-on-ios-securely-and-smoothly/"><u>[New] 2024 Approved  Download Playback  Streaming Youtube Videos on iOS Securely and Smoothly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-advice-for-staying-copyright-compliant-online/"><u>[New] 2024 Approved  Expert Advice for Staying Copyright Compliant Online</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-ultimate-techniques-for-precise-iptv-screen-imaging/"><u>[New] 2024 Approved  Ultimate Techniques for Precise IPTV Screen Imaging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boost-engagement-on-youtube-by-adding-emojis-for-2024/"><u>[New] Boost Engagement on YouTube by Adding Emojis for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-powerful-tagging-tactics-a-guide-to-amplifying-freegame-content-for-2024/"><u>[New] Discover Powerful Tagging Tactics  A Guide to Amplifying FreeGame Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-5-top-3d-design-apps-for-engaging-youtube-beginnings/"><u>[New] In 2024, 5 Top 3D Design Apps for Engaging YouTube Beginnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-youtube-tagging-strategies-for-optimal-visibility/"><u>[New] In 2024, Essential YouTube Tagging Strategies for Optimal Visibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expressive-commentary-utilizing-emojis-on-youtube/"><u>[New] In 2024, Expressive Commentary  Utilizing Emojis on YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-yt-thumbnail-design-for-enhanced-views/"><u>[New] Mastering YT Thumbnail Design for Enhanced Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-the-secret-how-to-display-youtube-playlists-on-websites/"><u>[New] Unlocking the Secret  How to Display YouTube Playlists on Websites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-chart-topping-video-content-on-youtube/"><u>[Updated] 2024 Approved  Chart-Topping Video Content on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-creating-impactful-outros-top-6-free-tools/"><u>[Updated] 2024 Approved  Creating Impactful Outros  Top 6 FREE Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-smartphone-shots-best-camera-accessories-for-filmmakers/"><u>[Updated] 2024 Approved  Elevate Your Smartphone Shots  Best Camera Accessories for Filmmakers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boost-your-gaming-presence-with-these-top-14-video-ideas-for-2024/"><u>[Updated] Boost Your Gaming Presence with These Top 14 Video Ideas for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engaging-presentations-tips-for-uploading-youtube-videos-into-slides-for-2024/"><u>[Updated] Engaging Presentations  Tips for Uploading YouTube Videos Into Slides for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-high-end-drones-get-yours-now/"><u>[Updated] High-End Drones  Get Yours Now</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-the-youtube-view-number-for-profitability/"><u>[Updated] In 2024, Decoding the YouTube View Number for Profitability</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-infographics-boosting-buzz-through-social-videos/"><u>[Updated] Infographics  Boosting Buzz Through Social Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-make-big-bucks-fast-with-a-focus-on-youtube-short-video-creation/"><u>[Updated] Make Big Bucks Fast with a Focus on YouTube Short Video Creation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-tier-hd-screen-recording-technology-for-2024/"><u>[Updated] Top-Tier HD Screen Recording Technology for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-photographic-fundamentals-in-5-minutes-with-snapseed/"><u>2024 Approved  Photographic Fundamentals in 5 Minutes with Snapseed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-turning-horizons-into-heights-uploading-videos-to-igtv/"><u>2024 Approved  Turning Horizons Into Heights  Uploading Videos to IGTV</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-editing-competitors-ranked-top-5-non-youtube-sites-list/"><u>2024 Approved  YouTube Editing Competitors Ranked  Top 5 Non-YouTube Sites List</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-8-private-video-downloaders/"><u>Best 8 Private Video Downloaders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/compact-content-leading-5-services-to-compress-video-urls-for-2024/"><u>Compact Content  Leading 5 Services to Compress Video URLs for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-perfectly-suited-8-recommended-tools-for-subtitles-and-srts/"><u>In 2024, Perfectly Suited  8 Recommended Tools for Subtitles & SRTs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-witness-youtube-techniques-for-rapid-rendering-for-2024/"><u>Quick-Witness YouTube Techniques for Rapid Rendering for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/starting-smart-with-windows-hidden-folders/"><u>Starting Smart with Windows' Hidden Folders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-list-of-free-user-friendly-editing-apps-for-2024/"><u>The Ultimate List of Free, User-Friendly Editing Apps for 2024</u></a></li>
+</ul></div>

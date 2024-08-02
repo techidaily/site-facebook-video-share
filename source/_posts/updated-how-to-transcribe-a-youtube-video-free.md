@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Transcribe a YouTube Video [FREE]"
-date: 2024-06-05T14:55:52.838Z
-updated: 2024-06-06T14:55:52.838Z
+date: 2024-08-01T08:57:28.039Z
+updated: 2024-08-02T08:57:28.039Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/85e69845f10f793c5b081e6eac45cea976095820d
 
 # How to Transcribe a YouTube Video for FREE
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,6 +35,9 @@ If you want to transcribe your videos to make the dialogs and speeches available
 * [Part 3: Benefits of Transcribing YouTube Videos](#part3)
 * [Part 4: YouTube Video Transcription FAQs](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Transcribe YouTube Video Automatically for Free \[2 Ways\]
 
 Besides the [basic video editing features on the YouTube](https://tools.techidaily.com/wondershare/filmora/download/) platform, you can now quickly **transcribe YouTube videos to the text** as well. The good thing is, you can either use the automatic transcription feature that YouTube offers, or upload it manually while adjusting the timing as you go further.
@@ -51,6 +58,9 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
 
 #### Step 3  Publish the Video
@@ -75,6 +85,9 @@ In the video subtitle page of the target video, hover mouse on the **Published A
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
 
 ### Method 2: Get YouTube Transcription when Watching
@@ -107,6 +120,9 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 **Step 3: Download the Transcription File**
@@ -169,6 +185,9 @@ If the speaker in the video is from a different region and is using an accent th
 
 If you own a blog that you have embedded your video to, the transcription could be used to add text to it so the target audience can get a fair idea of what the video is all about. This is useful because many people prefer reading over watching.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### YouTube Video Transcription FAQs
 
 #### 1. How to Transcribe YouTube Video to Text
@@ -194,6 +213,9 @@ If you made any modifications to the transcript that was automatically generated
 * Click **Edit on Classic Studio**
 * On the next page, click **Edit** from the top-right corner
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Edit YouTube subtitles](https://images.wondershare.com/filmora/article-images/edit-automatic-youtube-video-transcription.jpg)
 
 * Click to open the **Actions** drop-down list from the upper-left corner
@@ -205,6 +227,10 @@ If you made any modifications to the transcript that was automatically generated
 
 If you are looking for a quick and easy way of adding subtitles to your videos, letting **YouTube transcribe** for you could be a good approach. However, because these auto-generated transcriptions are created by machine learning algorithms, their accuracy cannot be counted on. Therefore, the best way to get the job done accurately is, let YouTube auto-transcribe your video, download the transcription file, make the necessary changes to it, and then upload the file back to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -221,3 +247,38 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-compact-cities-for-a-sustainable-future/"><u>[New] 2024 Approved  Crafting Compact Cities for a Sustainable Future</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-dive-deep-accessing-facebooks-story-vault/"><u>[New] 2024 Approved  Dive Deep  Accessing Facebook's Story Vault</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-deciding-on-the-best-videography-camera-type-dslr-or-mirrorless-in-2024/"><u>[New] Deciding on the Best Videography Camera Type  DSLR or Mirrorless, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-best-online-companion-for-customizing-your-video-branding/"><u>[New] The Best Online Companion for Customizing Your Video Branding</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-affiliate-marketing-how-to-make-money-with-it/"><u>[New] YouTube Affiliate Marketing  How to Make Money with It</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-artistry-in-a-click-10-prime-apps-for-banner-crafting/"><u>[Updated] 2024 Approved  Channel Artistry in a Click  10 Prime Apps for Banner Crafting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-device-friendly-tutorial-inserting-your-shorts-into-youtube/"><u>[Updated] 2024 Approved  Device-Friendly Tutorial  Inserting Your Shorts Into YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dodging-doubts-a-guide-to-vloggings-most-common-anxieties/"><u>[Updated] 2024 Approved  Dodging Doubts  A Guide to Vlogging's Most Common Anxieties</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>[Updated] 2024 Approved  Enhancing Your YouTube Content  Basic Premiere Pro Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhancing-youtube-videos-proper-lighting-methods/"><u>[Updated] 2024 Approved  Enhancing YouTube Videos  Proper Lighting Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-can-youtube-sub4sub-really-enhance-viewing-experience/"><u>[Updated] In 2024, Can YouTube Sub4Sub Really Enhance Viewing Experience?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-deciphering-digital-marketing-the-power-of-youtube-keywords/"><u>[Updated] In 2024, Deciphering Digital Marketing  The Power of YouTube Keywords</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-lights-camera-action-youtubes-17-essentials/"><u>[Updated] Lights, Camera, Action! - YouTube's #17 Essentials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-screencast-pro-efficient-recording-macpc-upload-to-youtube/"><u>[Updated] ScreenCast Pro  Efficient Recording, Mac/PC Upload to YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-free-logo-blueprints-to-refine-and-personalize-your-symbol/"><u>2024 Approved  Free Logo Blueprints to Refine and Personalize Your Symbol</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-watch-what-you-liked-no-more-unveiling-yt-deletions-online/"><u>2024 Approved  Watch What You Liked No More  Unveiling YT Deletions Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-first-flight-drones-for-youngsters-and-new-pilots/"><u>Best First Flight Drones for Youngsters & New Pilots</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/creating-captivating-reels-the-role-of-background-music-for-2024/"><u>Creating Captivating Reels  The Role of Background Music for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/dxgkrnlsys-and-winos-error-blue-screens-resolved/"><u>dxgkrnl.sys & WinOS Error: Blue Screens Resolved</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-tecno-pova-5-by-drfone-android/"><u>How to Show Wi-Fi Password on Tecno Pova 5</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-the-social-maze-tweets-plus-tumble-videos/"><u>Navigating the Social Maze  Tweets + Tumble Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/setting-the-price-for-higher-youtube-engagement/"><u>Setting the Price for Higher YouTube Engagement</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-guide-performing-a-soft-reboot-on-your-iphone/"><u>Step-by-Step Guide: Performing a Soft Reboot on Your iPhone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streaming-services-face-off-facebook-youtube-and-spaces-for-2024/"><u>Streaming Services Face-Off  FACEbook, YOUTube, & Spaces for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/structuring-videos-for-maximum-impact-on-youtube-for-2024/"><u>Structuring Videos for Maximum Impact on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/sweep-viewers-off-their-feet-templates-that-work-wonders-for-2024/"><u>Sweep Viewers Off Their Feet  Templates That Work Wonders for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unpacking-the-impact-of-youtubes-shorts-programme-for-2024/"><u>Unpacking the Impact of YouTube's Shorts Programme for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-infinix-hot-30-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Infinix Hot 30 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/will-real-time-likes-elevate-my-video-visibility-in-2024/"><u>Will Real-Time Likes Elevate My Video Visibility, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/yules-magic-unfolds-access-nine-premium-whole-film-holiday-movies-for-free-for-2024/"><u>Yule's Magic Unfolds  Access Nine Premium, Whole-Film Holiday Movies for Free for 2024</u></a></li>
+</ul></div>

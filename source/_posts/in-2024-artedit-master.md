@@ -1,7 +1,7 @@
 ---
 title: "In 2024, ArtEdit Master"
-date: 2024-06-05T12:54:43.654Z
-updated: 2024-06-06T12:54:43.654Z
+date: 2024-08-01T05:34:05.850Z
+updated: 2024-08-02T05:34:05.850Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,9 @@ Step 2: Open it after installation and tap on the “+” button to choose the v
 
 Step 3: To apply filters to the video or image, tap “Effects” and choose the filter that you would like to use. In the same section, you will see several tools that you can use to customize your video in many ways including adding additional images and saving the completed video.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Video Editor & Maker- Love Edit
 
 Love-Edit is a mobile video editor that you can use to create professional videos that you can use for various purposes including marketing purposes. The tool has a simple user interface that can be used to make simple changes to a video such as cutting away sections of the video that you don’t want to include the video or even merging various clips to create a single video.
@@ -66,6 +69,9 @@ Step 2: When the installation is complete, open the app and then click on the �
 
 Step 3: If you would like to add a filter to the video, tap “Effects” and then choose the filter that you would like to use. To add an image to the video, tap “Images” and then select the image that you would like to add. Resize the image to fit the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 There are very many apps that you can use to edit photos and videos on your device. But most of them can be quite expensive. The options above are easy to use, cost-effective, and have the necessary features to help you easily edit your images and videos.
@@ -114,22 +120,48 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 ## Step-By-Step guide
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 1:** To get started,open Filmora X. On your upper left corner, click on the "Sample Colors," select the Green color and drag it to Video Track into the timeline. We are using a Green background to easily remove it using the green screen feature in Filmora to use it in our future projects after exporting it, without creating it again. Adjust the duration of this track according to your requirement. In my case, I am trying to make an animated subscribe button of 5 seconds.![subscribe-button1](https://images.wondershare.com/filmora/article-images/subs-button1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 **Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
 
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
 
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
@@ -150,10 +182,123 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
+**Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+**Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
+
+**Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
+
+You may also like: [**How to Get People to Subscribe Channel**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Conclusion：Your own Animated Subscribe Button is ready to be used in your future videos and projects. This is a ready-to-use subscribe button that can be easily used using the green screen effect in Filmora. Just import the clip, remove the green screen, and you are good to go. You can also customize this Subscribe Animation using your channel and more. Keep experimenting with new things using Filmora.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The main goal of every content creator is to increase its audience to expand its reach and views. To do so, it's essential to provide something unique and different to the viewer. Without providing them the content they are looking for, it is impossible to grow your channel and reach. Once your content is ready and you are getting many views, it is essential to make these potential viewers your permanent viewers. The animated subscribe button will help you achieve this goal. While your viewers are watching your videos, you must remind them about subscribing to your channel for receiving such incredible content in the future. Subscribe animation plays a vital role in converting your viewers into subscribers.
+
+There are so many platforms on the internet from where you can get Youtube subscribe button animation free, and you can also purchase these subscribe png gifs. But creating your own animated subscribe button can make you stand out from the crowd and make your videos unique and exclusive. Because it enables you to design it the way you want according to your brand, so, let's create your own subscribe animation using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Step-By-Step guide
+
+**Step 1:** To get started,open Filmora X. On your upper left corner, click on the "Sample Colors," select the Green color and drag it to Video Track into the timeline. We are using a Green background to easily remove it using the green screen feature in Filmora to use it in our future projects after exporting it, without creating it again. Adjust the duration of this track according to your requirement. In my case, I am trying to make an animated subscribe button of 5 seconds.![subscribe-button1](https://images.wondershare.com/filmora/article-images/subs-button1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
+**Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
+**Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
+
+**Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
+
+**Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
+
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
+**Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
+
+**Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
+
+**Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
+
+**Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
+
+**Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+**Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
+
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
+
+**Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
+
 **Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
 
 **Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
 
 You may also like: [**How to Get People to Subscribe Channel**](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -180,40 +325,78 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Step-By-Step guide
 
 **Step 1:** To get started,open Filmora X. On your upper left corner, click on the "Sample Colors," select the Green color and drag it to Video Track into the timeline. We are using a Green background to easily remove it using the green screen feature in Filmora to use it in our future projects after exporting it, without creating it again. Adjust the duration of this track according to your requirement. In my case, I am trying to make an animated subscribe button of 5 seconds.![subscribe-button1](https://images.wondershare.com/filmora/article-images/subs-button1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 **Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
 
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
 
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
 
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 **Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
 
 **Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 **Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
 
 **Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
@@ -228,6 +411,9 @@ You may also like: [**How to Get People to Subscribe Channel**](https://tools.te
 
 Conclusion：Your own Animated Subscribe Button is ready to be used in your future videos and projects. This is a ready-to-use subscribe button that can be easily used using the green screen effect in Filmora. Just import the clip, remove the green screen, and you are good to go. You can also customize this Subscribe Animation using your channel and more. Keep experimenting with new things using Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -248,12 +434,33 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Step-By-Step guide
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 **Step 1:** To get started,open Filmora X. On your upper left corner, click on the "Sample Colors," select the Green color and drag it to Video Track into the timeline. We are using a Green background to easily remove it using the green screen feature in Filmora to use it in our future projects after exporting it, without creating it again. Adjust the duration of this track according to your requirement. In my case, I am trying to make an animated subscribe button of 5 seconds.![subscribe-button1](https://images.wondershare.com/filmora/article-images/subs-button1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 **Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
@@ -262,12 +469,24 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
 
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
@@ -280,74 +499,9 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
 
-**Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
-
-**Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
-
-**Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
-
-**Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
-
-**Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
-
-**Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
-
-You may also like: [**How to Get People to Subscribe Channel**](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Conclusion：Your own Animated Subscribe Button is ready to be used in your future videos and projects. This is a ready-to-use subscribe button that can be easily used using the green screen effect in Filmora. Just import the clip, remove the green screen, and you are good to go. You can also customize this Subscribe Animation using your channel and more. Keep experimenting with new things using Filmora.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-The main goal of every content creator is to increase its audience to expand its reach and views. To do so, it's essential to provide something unique and different to the viewer. Without providing them the content they are looking for, it is impossible to grow your channel and reach. Once your content is ready and you are getting many views, it is essential to make these potential viewers your permanent viewers. The animated subscribe button will help you achieve this goal. While your viewers are watching your videos, you must remind them about subscribing to your channel for receiving such incredible content in the future. Subscribe animation plays a vital role in converting your viewers into subscribers.
-
-There are so many platforms on the internet from where you can get Youtube subscribe button animation free, and you can also purchase these subscribe png gifs. But creating your own animated subscribe button can make you stand out from the crowd and make your videos unique and exclusive. Because it enables you to design it the way you want according to your brand, so, let's create your own subscribe animation using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
----
-
-## Step-By-Step guide
-
-**Step 1:** To get started,open Filmora X. On your upper left corner, click on the "Sample Colors," select the Green color and drag it to Video Track into the timeline. We are using a Green background to easily remove it using the green screen feature in Filmora to use it in our future projects after exporting it, without creating it again. Adjust the duration of this track according to your requirement. In my case, I am trying to make an animated subscribe button of 5 seconds.![subscribe-button1](https://images.wondershare.com/filmora/article-images/subs-button1.png)
-
-**Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
-
-**Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
-
-**Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
-
-**Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
-
-**Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
-
-**Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
-
-**Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
-
-**Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
-
-**Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
-
-**Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
-
-**Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
-
-**Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
-
-**Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
-
-**Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
-
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
 
 **Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
@@ -388,3 +542,55 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-best-vr-videos-on-youtube-to-have-immersive-experience/"><u>[New] 2024 Approved  10 Best VR Videos on YouTube to Have Immersive Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-100-safe-audio-download-techniques-from-youtube/"><u>[New] 2024 Approved  100%% Safe Audio Download Techniques From YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-7-multimedia-cameras-for-quality-live-streams-and-video-blogs/"><u>[New] 2024 Approved  Best 7 Multimedia Cameras For Quality Live Streams & Video Blogs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-browsing-boredom-away-15-chuckle-inducing-youtubers/"><u>[New] 2024 Approved  Browsing Boredom Away  15 Chuckle-Inducing YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-compelling-videos-youtubes-best-thumbnail-practices/"><u>[New] 2024 Approved  Crafting Compelling Videos  YouTube's Best Thumbnail Practices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cultivate-creativity-10-inspiration-boosting-videos/"><u>[New] 2024 Approved  Cultivate Creativity  10 Inspiration-Boosting Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-broadcast-your-music-mp3-conversion-and-upload-on-youtube-for-2024/"><u>[New] Broadcast Your Music  MP3 Conversion and Upload on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-budget-friendly-methods-for-youtube-card-creation-for-2024/"><u>[New] Budget-Friendly Methods for YouTube Card Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-can-you-broadcast-ontv-the-era-of-fb-videos-begins-in-2024/"><u>[New] Can You Broadcast OnTV  The Era of FB Videos Begins, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-earning-stream-start-small-see-big-on-youtube-for-2024/"><u>[New] Earning Stream  Start Small, See Big on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-skills-for-youtube-success-8-free-online-courses-for-2024/"><u>[New] Essential Skills for YouTube Success  8 Free Online Courses for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-explore-8plus-places-for-gratis-hdr-environments-and-clips-for-2024/"><u>[New] Explore 8+ Places for Gratis HDR Environments & Clips for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breakdown-of-profit-earning-potential-from-each-youtube-sponsored-post/"><u>[New] In 2024, Breakdown of Profit  Earning Potential From Each YouTube Sponsored Post?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-diving-deep-into-your-twitter-archive/"><u>[New] In 2024, Diving Deep Into Your Twitter Archive</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhancing-video-discoverability-through-youtube-images/"><u>[New] In 2024, Enhancing Video Discoverability Through Youtube Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-audio-techniques-capturing-clear-sound/"><u>[New] In 2024, Essential Audio Techniques  Capturing Clear Sound</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-strategies-for-posting-and-uploading-gifs-on-instagram/"><u>[New] In 2024, Step-by-Step Strategies for Posting & Uploading GIFs on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tasty-talent-a-filmmakers-recipe-for-success/"><u>[New] Tasty Talent  A Filmmaker's Recipe for Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-financial-framework-of-youtube-snippet-creation/"><u>[New] The Financial Framework of YouTube Snippet Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-facebook-live-vs-youtube-live-vs-twitter-periscope/"><u>[Updated] 2024 Approved  Facebook Live Vs YouTube Live Vs Twitter Periscope</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-apex-top-youtube-videos-watch-count-heaven-for-2024/"><u>[Updated] Apex Top YouTube Videos  Watch Count Heaven for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-captivating-cold-ideal-snowy-scenes-to-brighten-videos-for-2024/"><u>[Updated] Captivating Cold  Ideal Snowy Scenes to Brighten Videos for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-create-digital-humor-kapwings-meme-builder/"><u>[Updated] Create Digital Humor  Kapwing's Meme Builder</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-download-youtubes-best-moments-without-full-streaming-for-2024/"><u>[Updated] Download YouTube's Best Moments Without Full Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficient-ways-to-delete-previewed-content-from-youtubes-queue-for-2024/"><u>[Updated] Efficient Ways to Delete Previewed Content From YouTube's Queue for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-instagram-presence-through-bigger-video-content-for-2024/"><u>[Updated] Elevating Instagram Presence Through Bigger Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-high-revenue-video-visionaries/"><u>[Updated] High-Revenue Video Visionaries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audio-upheavals-top-rhythmic-disruptors-for-devices/"><u>[Updated] In 2024, Audio Upheavals  Top Rhythmic Disruptors for Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cultivating-confidence-for-captivating-your-youtube-audience/"><u>[Updated] In 2024, Cultivating Confidence for Captivating Your YouTube Audience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-download-youtube-gallery-files-instantly/"><u>[Updated] In 2024, Download YouTube Gallery Files Instantly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-leading-7-video-streaming-apps-to-enhance-your-youtube-mobile-experience/"><u>[Updated] Leading 7 Video Streaming Apps to Enhance Your YouTube Mobile Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mediameld-mixer/"><u>[Updated] MediaMeld Mixer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pioneer-your-way-through-youtube-shorts-production/"><u>[Updated] Pioneer Your Way Through YouTube Shorts Production</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-techniques-to-improve-video-visibility-on-youtube-platform/"><u>[Updated] Techniques to Improve Video Visibility on YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-warmth-in-winter-top-5-video-backdrop-choices/"><u>[Updated] The Art of Warmth in Winter  Top 5 Video Backdrop Choices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-transform-your-classroom-with-youtubes-educational-content/"><u>[Updated] Transform Your Classroom with YouTube's Educational Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-watch-youtube-green-screen-videos-and-get-your-green-screen-ideas/"><u>[Updated] Watch Youtube Green Screen Videos and Get Your Green Screen Ideas</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-banners-makers-10-online-tools-to-create-channel-art/"><u>[Updated] YouTube Banners Makers  10 Online Tools to Create Channel Art</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/accelerate-your-retro-play-with-best-ps2-android-emulators/"><u>Accelerate Your Retro Play with Best Ps2 Android Emulators</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-realme-v30t-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Realme V30T to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/open-source-banner-resources-a-gift-to-youtubers-for-2024/"><u>Open Source Banner Resources  A Gift to YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-captioning-method-for-enhanced-youtube-video-quality-for-2024/"><u>Quick Captioning Method for Enhanced YouTube Video Quality for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-resize-youtube-to-fit-mac-display-ratio-for-2024/"><u>Quick Resize  YouTube to Fit Mac Display Ratio for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionize-your-videos-top-10-mobile-editing-apps-on-iosandroid-for-2024/"><u>Revolutionize Your Videos  Top 10 Mobile Editing Apps on iOS/Android for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/teach-with-technology-effective-use-of-youtube-in-education-for-2024/"><u>Teach with Technology  Effective Use of YouTube in Education for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-the-secrets-behind-youtube-shorts-success-for-2024/"><u>Unlocking the Secrets Behind YouTube Shorts Success for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unlocking-zooms-potential-learn-how-to-use-video-filters/"><u>Unlocking Zoom's Potential  Learn How to Use Video Filters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/which-channel-pulls-more-money-dailymotion-versus-youtube-monetization-for-2024/"><u>Which Channel Pulls More Money? Dailymotion Versus YouTube Monetization for 2024</u></a></li>
+</ul></div>

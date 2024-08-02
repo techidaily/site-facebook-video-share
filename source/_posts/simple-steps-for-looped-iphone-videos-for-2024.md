@@ -1,7 +1,7 @@
 ---
 title: "Simple Steps for Looped iPhone Videos for 2024"
-date: 2024-06-05T15:09:10.223Z
-updated: 2024-06-06T15:09:10.223Z
+date: 2024-08-01T09:20:14.368Z
+updated: 2024-08-02T09:20:14.368Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/2151304b15358b5e0486365b1b4e0f5fc2185a445
 
 # How to Loop A Video on iPhone?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -28,12 +31,18 @@ thumbnail: https://thmb.techidaily.com/2151304b15358b5e0486365b1b4e0f5fc2185a445
 
 For Win 7 or later (64-bit)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -75,8 +84,14 @@ To do this, capture a live photo by opening your camera app. Then click on the l
 1. Select the effect you want to create (loop) and save the file. The loop feature plays the video in a one-way order. So, to make it more interesting, you can select the bounce effect, which makes it play back and forth.
 2. You can share the created loop video with the share icon at the lower-left corner.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![iPhone save live photos to loop](https://images.wondershare.com/filmora/article-images/iphone-live-photos-save-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Repeat Slideshow to Loop Video on iPhone for Free
 
 Slideshow videos are a very fun way to see your content. People gather around a screen to enjoy these beautiful memories of their life. Here is a step-by-step guide on how to loop a slideshow video on iPhone.
@@ -91,6 +106,9 @@ Now open that video from the album and start playing the video. That video will 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to Loop YouTube Videos On iPhone?
 
 Now coming to the part that we discussed in the intro, how to loop YouTube videos on iPhone. So here, we will show you a step-by-step guide on how to loop the videos on your iPhone.
@@ -106,6 +124,9 @@ Check this ultimate guide to [looping YouTube videos](https://tools.techidaily.c
 
 ### 1. [Loopideo - Loop Videos](https://apps.apple.com/us/app/loopideo-loop-videos/id798990531)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![Loopideo - Loop Videos](https://images.wondershare.com/filmora/article-images/loopideo-loop-videos-iphone.jpg)
 
 Loopideo is the app on our list that is an answer to **how to loop a video on iPhone**. It lets you import any video from your play that you want to play in a loop. This is a great tool when it comes to individual and organizational presentations. This powerful app can be very useful for you in many cases.
@@ -118,6 +139,9 @@ The second app on our list is Loop Video GIF Maker. It is very fun and easy to u
 
 ### 3. [Loopideo Pro](https://apps.apple.com/us/app/loopideo-pro-loop-videos/id1343372109)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Loopideo Pro](https://images.wondershare.com/filmora/article-images/loopideo-pro-loop-videos.jpg)
 
 Loopideo Pro is a more feature-filled app on the App Store. Loopideo allows you to make the videos loop an unlimited amount of times. You can also choose the formats that you want to convert the looping video into. This app also gives you the option to choose the playback speed and then can also convert it into GIF speed so that you can save it in your gallery.
@@ -126,6 +150,9 @@ Loopideo Pro is a more feature-filled app on the App Store. Loopideo allows you 
 
 iMovie is a more professional app that is available on the list. This app allows you to loop not only the video but also edit the video. This allows you to play the video in a loop for an unlimited amount of time in the built-in player, but when it comes to saving the looping video, it is not possible because you would need an unlimited amount of space to save that video.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 5. [Looper](https://apps.apple.com/us/app/looper/id936806191)
 
 ![Looper video iphone](https://images.wondershare.com/filmora/article-images/looper-app-iphone.jpg)
@@ -153,6 +180,9 @@ To make the video with the Instagram Boomerang feature:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## Part 5: What If You'd Like to Loop Videos on Computer?
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the most popular video editors among video creators. It gives you high-quality end product, smooth slowing down & speeding up movements, voiceovers on top of music tracks and transitions between audio & video clips. But another amazing benefit of this [computer video editor](https://tools.techidaily.com/wondershare/filmora/download/) is that you can produce a loop video.
@@ -176,6 +206,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -195,6 +228,9 @@ Launch Filmora video editor on your Windows or Mac computer and then make a new 
 
 After drag and drop the video to the timeline, make a copy of it (Ctrl+C). Go to the last frame and paste this video again.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![copy and paste the video](https://images.wondershare.com/filmora/article-images/copy-paste-clips-filmora.jpg)
 
  **Step 3: Enable Reverse Speed effect**
@@ -215,12 +251,18 @@ We hope you found this post helpful in learning how to create looping video with
 
 For Win 7 or later (64-bit)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -246,6 +288,9 @@ No, YouTube will not count repeated views if they all come over and over again f
 
 For Win 7 or later (64-bit)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -259,6 +304,9 @@ or Try Filmora App for mobile >>>
 
 [download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -275,3 +323,52 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-success-metrics-subscriber-and-play-buttons/"><u>[New] 2024 Approved  Channel Success Metrics  Subscriber & Play Buttons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-deletion-methods-for-youtubes-backlogged-video-collection/"><u>[New] 2024 Approved  Deletion Methods for YouTube's Backlogged Video Collection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-guide-to-writing-click-worthy-youtube-titles/"><u>[New] 2024 Approved  Essential Guide to Writing Click-Worthy Youtube Titles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-guiding-you-through-youtubes-security-settings/"><u>[New] 2024 Approved  Guiding You Through YouTube's Security Settings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-your-gaming-channel-on-youtube-for-2024/"><u>[New] Crafting Your Gaming Channel on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-visual-experience-youtubes-quality-boosting-guide-for-2024/"><u>[New] Elevating Visual Experience  YouTube's Quality Boosting Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-androids-best-youtube-video-downloaders-reviewed/"><u>[New] In 2024, Android's Best YouTube Video Downloaders Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-calculating-clickers-contribution-to-youtube-earnings/"><u>[New] In 2024, Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-downloading-standardized-youtube-images-with-ease-and-precision/"><u>[New] In 2024, Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-unlocking-smooth-twitch-video-captures/"><u>[New] In 2024, Unlocking Smooth Twitch Video Captures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-video-impact-on-youtube-top-video-formats/"><u>[New] Maximizing Video Impact on YouTube – Top Video Formats</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-accelerated-conversion-of-yt-content-for-mac-screens/"><u>[Updated] 2024 Approved  Accelerated Conversion of YT Content for MAC Screens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-banner-bliss-get-a-peek-at-our-library-of-50-free-youtube-banners/"><u>[Updated] Banner Bliss  Get a Peek at Our Library of 50 Free YouTube Banners!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-carminatis-gig-economy-ajays-youtube-wealth-stream-for-2024/"><u>[Updated] Carminati's Gig Economy  AJay's YouTube Wealth Stream for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-elite-list-top-10-zero-dollar-videochats-with-desktops/"><u>[Updated] Elite List  Top 10 Zero-Dollar Videochats with Desktops</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-flip-flop-your-watching-anchoring-yourself-at-the-end-of-queue/"><u>[Updated] Flip-Flop Your Watching  Anchoring Yourself at the End of Queue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harnessing-technology-the-art-of-capturing-ios-devices-in-media/"><u>[Updated] Harnessing Technology  The Art of Capturing iOS Devices in Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-creativity-choosing-high-quality-camera-lenses/"><u>[Updated] In 2024, Cutting Edge Creativity  Choosing High-Quality Camera Lenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ease-and-speed-effective-methods-for-comment-removal/"><u>[Updated] In 2024, Ease and Speed  Effective Methods for Comment Removal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effective-color-difference-filters-in-film-making/"><u>[Updated] In 2024, Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-video-descriptions-on-instagram-for-2024/"><u>[Updated] Mastering Video Descriptions on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-professional-thumbnails-from-your-phone-for-youtube/"><u>[Updated] Professional Thumbnails From Your Phone for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-profit-strategies-in-youtube-marketing/"><u>[Updated] Profit Strategies in YouTube Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-up-your-mobile-filmmaking-with-these-9-must-have-tools/"><u>[Updated] Step Up Your Mobile Filmmaking with These 9 Must-Have Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-inserting-timestamps-in-youtube-urls/"><u>[Updated] The Ultimate Guide to Inserting Timestamps in YouTube URLs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[Updated] Top Choices  Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-uncover-free-photo-and-video-resources-from-esteemed-4-online-sources/"><u>[Updated] Uncover Free Photo and Video Resources From Esteemed 4 Online Sources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-power-of-social-sharing-for-your-youtube-videos/"><u>[Updated] Unlock the Power of Social Sharing for Your YouTube Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-top-8-collaborative-video-collage-android-apps-freepremium/"><u>[Updated] Unveiling Top 8 Collaborative Video Collage Android Apps (Free/Premium)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-video-excellence-started-with-quality-cameras-and-lenses/"><u>[Updated] Video Excellence Started with Quality Cameras and Lenses</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/10-best-camera-apps-for-iphone-x88-plus7-7-plus-free-and-paid/"><u>10 Best Camera Apps for iPhone X/8/8 Plus/7/ 7 Plus - Free & Paid</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-imovies-crop-technique-a-guide/"><u>2024 Approved  IMovie's Crop Technique  A Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-elite-gear-top-5-video-chat-headsets/"><u>2024 Approved  YouTube's Elite Gear  Top 5 Video Chat Headsets</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-samsung-galaxy-m54-5g-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://article-posts.techidaily.com/frame-flair-choosing-the-best-video-cameras-for-deliberate-moves/"><u>Frame Flair  Choosing the Best Video Cameras for Deliberate Moves</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-13t-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Xiaomi 13T Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-itel-a70-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Itel A70 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/r-higher-rankings-on-yt-the-best-seo-tips-and-tricks-1-11-for-2024/"><u>Master Higher Rankings on YT  The Best SEO Tips and Tricks (1-11) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/next-level-recording-discover-budget-friendly-choices-for-2024/"><u>Next-Level Recording  Discover Budget-Friendly Choices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/self-balancing-snap-shots-without-supports-for-2024/"><u>Self-Balancing  Snap Shots Without Supports for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/simplify-multitasking-on-iphone-activatedeactivate-youtubes-pip-feature-for-2024/"><u>Simplify Multitasking on iPhone  Activate/Deactivate YouTube's PIP Feature for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-strategies-how-to-create-stellar-youtube-shorts-for-2024/"><u>Step-by-Step Strategies  How to Create Stellar YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/techniques-for-swiftly-cleaning-your-youtube-buffered-queue-for-2024/"><u>Techniques for Swiftly Cleaning Your YouTube Buffered Queue for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-choices-pro-shake-free-cameras-for-video-streams-for-2024/"><u>Top Choices  Pro Shake-Free Cameras for Video Streams for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-image-files-made-simple-online-desktop-and-terminal-steps-for-2024/"><u>Youtube’s Image Files Made Simple  Online, Desktop & Terminal Steps for 2024</u></a></li>
+</ul></div>

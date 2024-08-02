@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide  Video Setup Must-Haves for 2024\""
-date: 2024-06-05T16:09:26.625Z
-updated: 2024-06-06T16:09:26.625Z
+date: 2024-08-01T11:03:19.608Z
+updated: 2024-08-02T11:03:19.608Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,9 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -82,8 +85,14 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Smartphone Camera Gear
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -94,10 +103,20 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Equipment with Easy-to-Use Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -114,3 +133,45 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-audience-organically-tactics-that-deliver-views/"><u>[New] 2024 Approved  Building Audience Organically  Tactics That Deliver Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-compelling-end-screens-in-youtube-videos/"><u>[New] 2024 Approved  Crafting Compelling End Screens in YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-end-screen-magic-free-templates-to-boost-video-appeal/"><u>[New] 2024 Approved  End-Screen Magic  Free Templates to Boost Video Appeal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-evaluating-earnings-from-one-million-youtube-watches/"><u>[New] 2024 Approved  Evaluating Earnings From One Million YouTube Watches</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exciting-vlog-subjects-daily-selection/"><u>[New] 2024 Approved  Exciting Vlog Subjects Daily Selection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-5-dynamic-fitness-series-ideas-to-enhance-viewer-retention/"><u>[New] In 2024, 5 Dynamic Fitness Series Ideas to Enhance Viewer Retention</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-avoid-mainstream-underrated-movies-of-the-year/"><u>[New] In 2024, Avoid Mainstream  Underrated Movies of the Year</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-2023-youtubers-for-daily-inspiration-from-animated-series/"><u>[New] In 2024, Best 2023 YouTubers for Daily Inspiration From Animated Series</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-a-stellar-visual-identity-the-ultimate-guide-to-yt-design/"><u>[New] In 2024, Crafting a Stellar Visual Identity  The Ultimate Guide to YT Design</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-your-youtube-banner-essential-guide-for-creators/"><u>[New] Master Your YouTube Banner  Essential Guide for Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-the-digital-landscape-free-tools-for-youtube-audio-to-text/"><u>[New] Navigating the Digital Landscape  FREE Tools for YouTube Audio to Text</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-pioneering-avengers-the-marvellous-world-builders/"><u>[New] Pioneering Avengers  The Marvellous World-Builders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transforming-channels-with-powerful-visual-branding-strategies/"><u>[New] Transforming Channels with Powerful Visual Branding Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-behind-the-screen-a-strategic-approach-for-secret-youtube-videos-for-2024/"><u>[Updated] Behind the Screen  A Strategic Approach for Secret YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-breakdown-of-profit-earning-potential-from-each-youtube-sponsored-post-for-2024/"><u>[Updated] Breakdown of Profit  Earning Potential From Each YouTube Sponsored Post for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-diy-video-mastery-10-straightforward-concepts-everyone-should-try-for-2024/"><u>[Updated] DIY Video Mastery  10 Straightforward Concepts Everyone Should Try for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-five-cozy-seasons-ideal-backgrounds-to-warm-up-videos/"><u>[Updated] Five Cozy Seasons  Ideal Backgrounds to Warm Up Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-a-journalistic-closing-statement/"><u>[Updated] In 2024, Crafting a Journalistic Closing Statement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-nextgen-videostreaming-platforms/"><u>[Updated] In 2024, Exploring NextGen Videostreaming Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-initiate-ideate-implement-step-by-step-guide-to-building-a-youtube-channel/"><u>[Updated] Initiate, Ideate, Implement  Step-by-Step Guide to Building a YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-online-oasis-media-mashup/"><u>[Updated] Online Oasis Media Mashup</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-gain-techniques-to-expand-your-channels-audience/"><u>[Updated] Quick-Gain Techniques to Expand Your Channel's Audience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-for-elevating-your-youtube-feedback-with-emojis/"><u>[Updated] Step-by-Step Guide for Elevating Your Youtube Feedback with Emojis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-swaying-scripts-an-introduction-to-bouncy-text-animations/"><u>[Updated] Swaying Scripts  An Introduction to Bouncy Text Animations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-top-8-yt-thumbnails-that-increase-watch-time-and-interests-for-2024/"><u>[Updated] The Top 8 YT Thumbnails that Increase Watch Time and Interests for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-obs-configurations-on-frugal-devices/"><u>2024 Approved  Top OBS Configurations on Frugal Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-your-guide-to-favorite-tiktok-backgrounds/"><u>2024 Approved  Your Guide to Favorite TikTok Backgrounds</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-meizu-21-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Meizu 21 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/audio-drivers-for-windows-a-comprehensive-update-guide/"><u>Audio Drivers for Windows: A Comprehensive Update Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-free-fcp-download-options/"><u>In 2024, Explore FREE FCP Download Options</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-from-separation-to-synergy-unite-obs-with-zoom/"><u>In 2024, From Separation to Synergy  Unite OBS with Zoom</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/instantly-personalize-your-phones-from-tiktok-sounds-to-ringtones-for-2024/"><u>Instantly Personalize Your Phones  From TikTok Sounds to Ringtones for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-samsung-galaxy-xcover-6-pro-tactical-edition-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Samsung Galaxy XCover 6 Pro Tactical Edition? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/plotline-path-to-youtube-prosperity-for-2024/"><u>Plotline Path to YouTube Prosperity for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/premium-8-editors-compatible-with-linux-for-2024/"><u>Premium 8 Editors Compatible with Linux for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-nokia-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Nokia Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essentials-of-monetization-youtube-policy-update-for-2024/"><u>The Essentials of Monetization  YouTube Policy Update for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-the-code-to-content-creator-commerce-with-carminati-ajay-for-2024/"><u>Unlocking the Code to Content Creator Commerce with Carminati (AJay) for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-how-to-create-ken-burns-effect-detaied-steps-for-2024/"><u>Updated How to Create Ken Burns Effect? Detaied Steps for 2024</u></a></li>
+</ul></div>

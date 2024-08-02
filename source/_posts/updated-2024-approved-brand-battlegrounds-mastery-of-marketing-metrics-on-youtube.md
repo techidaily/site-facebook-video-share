@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Brand Battlegrounds  Mastery of Marketing Metrics on YouTube\""
-date: 2024-06-05T16:17:57.750Z
-updated: 2024-06-06T16:17:57.750Z
+date: 2024-08-01T11:17:51.167Z
+updated: 2024-08-02T11:17:51.167Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,18 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
 # YouTube Analytics – How to analyze your and Competitor's YouTube Video
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -26,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
  Tracking your brand's YouTube metrics is not enough to ensure success in YouTube. Unless you garner deep insights of your competitors. You must be thinking how can you gauge their company insights using YouTube and track the data movement as well. There is nothing to worry about, we have got you covered. We will show you how to analyze your own channel as well as that of your competitors' YouTube analytics. Let's now explore about it!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## How to analyze your own YouTube channel/video?
 
  It is important to have reliable YouTube analytics tools for your brand, as videos on YouTube are searchable through Google. They contribute to generate organic traffic for you using both Google and YouTube as a medium. YouTube has a default dedicated analytics mechanism to measure how the video fares in YouTube to gain the most out of it.
@@ -50,6 +66,18 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
 #### 4\.  Traffic sources
@@ -62,12 +90,19 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
 #### 7\.  Likes and dislikes
@@ -80,6 +115,9 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
@@ -96,6 +134,9 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
 
 #### 11\.  Cards
@@ -116,6 +157,9 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## How to analyze your competitors
 
  Although, you can't see the dashboard data of your competitor, there are still some ways to observe and study your competitors' successful videos and from their views, favorites, ratings, and comments find out the driving force behind it.
@@ -140,6 +184,9 @@ thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550
 
  Read More to Get: [5 Methods to Go Frame by Frame on YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -156,3 +203,45 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-10plus-proven-methods-to-enhance-zoom-session-captures/"><u>[New] 2024 Approved  10+ Proven Methods to Enhance Zoom Session Captures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-amplify-your-creative-impact-youtube-studio-editing-essentials/"><u>[New] 2024 Approved  Amplify Your Creative Impact  YouTube Studio Editing Essentials</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-craft-captivating-narratives-the-best-of-the-best-10-igtv-strategies-for-brands/"><u>[New] 2024 Approved  Craft Captivating Narratives  The Best of the Best 10 IGTV Strategies for Brands</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-youtube-videos-proper-lighting-methods/"><u>[New] 2024 Approved  Enhancing YouTube Videos  Proper Lighting Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-explore-9-simple-and-economical-editing-solutions-for-your-projects/"><u>[New] 2024 Approved  Explore 9 Simple & Economical Editing Solutions for Your Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-celebratory-moments-captured-a-list-of-the-most-beautiful-wedding-videos-8-for-2024/"><u>[New] Celebratory Moments Captured  A List of the Most Beautiful Wedding Videos (8) for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-critical-analysis-the-best-skype-recorders-of-2023/"><u>[New] Critical Analysis  The Best Skype Recorders of 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-debugging-techniques-identifying-and-resolving-common-javascript-errors-for-2024/"><u>[New] Debugging Techniques  Identifying and Resolving Common JavaScript Errors for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exploring-the-law-recording-youtube-content-playback-for-2024/"><u>[New] Exploring the Law  Recording YouTube Content Playback for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audience-appreciation-assessment-self-and-seekers-vs-rival-repertoires/"><u>[New] In 2024, Audience Appreciation Assessment  Self and Seekers Vs. Rival Repertoires</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-leading-tech-review-the-top-10-screen-recorders/"><u>[New] Leading Tech Review  The Top 10 Screen Recorders</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-smartphone-identity-iphone-x-and-galaxy-phones-through-the-lens-of-faces/"><u>[New] Smartphone Identity  IPhone X and Galaxy Phones Through the Lens of Faces</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-online-earnings-youtubes-money-matrix/"><u>[New] The Art of Online Earnings  YouTube's Money Matrix</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tiny-vid-creators/"><u>[New] Tiny Vid Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-understanding-youtubes-legal-framework-vs-cc/"><u>[New] Understanding YouTube's Legal Framework Vs. CC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-block-automated-youtube-content-triggers/"><u>[Updated] 2024 Approved  Block Automated YouTube Content Triggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-youtube-traffic-perfecting-titles-and-tags-for-max-views/"><u>[Updated] 2024 Approved  Boosting YouTube Traffic  Perfecting Titles & Tags for Max Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-asmr-apps-for-android-and-ios-you-should-know-for-2024/"><u>[Updated] Best ASMR Apps for Android and iOS You Should Know for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cultivating-a-distinctive-presence-in-the-marketplace-for-2024/"><u>[Updated] Cultivating a Distinctive Presence in the Marketplace for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-delving-into-youtubes-digital-video-workshop/"><u>[Updated] In 2024, Delving Into YouTube's Digital Video Workshop</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-velocity-ventures-discover-the-freshest-5-virtual-race-titles/"><u>[Updated] In 2024, Velocity Ventures  Discover the Freshest 5 Virtual Race Titles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-settled-silent-shorter-showcase-ended/"><u>[Updated] Settled  Silent Shorter Showcase Ended</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-three-secure-approaches-for-youtube-to-mp3-file-conversion/"><u>[Updated] Three Secure Approaches for YouTube-to-MP3 File Conversion</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-first-time-streamers-unite-learn-obs-and-broadcast-to-youtube/"><u>2024 Approved  First-Time Streamers Unite  Learn OBS & Broadcast to Youtube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-the-world-of-cost-free-graphic-designs/"><u>2024 Approved  Navigating the World of Cost-Free Graphic Designs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-comprehensive-analysis-ergonomic-furnitures-impact-on-efficiency-for-2024/"><u>A Comprehensive Analysis  Ergonomic Furniture's Impact on Efficiency for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-huawei-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Huawei</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/excellence-in-efficiency-top-5-chromes-for-vids-from-fb/"><u>Excellence in Efficiency  Top 5 Chromes for Vids From FB</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-soaring-stories-crafting-engaging-drone-video-narratives/"><u>In 2024, Soaring Stories  Crafting Engaging Drone Video Narratives</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-poco-x5-pro-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Poco X5 Pro FRP Without Computer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/short-film-synopsis-must-know-points-for-2024/"><u>Short Film Synopsis  Must-Know Points for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streaming-showdown-best-channels-for-your-audience/"><u>Streaming Showdown  Best Channels for Your Audience</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-xiaomi-civi-3-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Xiaomi Civi 3 FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-great-video-platform-debate-vimeo-and-youtube-for-2024/"><u>The Great Video Platform Debate  Vimeo & YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transitioning-artistry-in-inshot-videos/"><u>Transitioning Artistry in Inshot Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unique-channels-generating-top-notch-video-naming-for-2024/"><u>Unique Channels  Generating Top-Notch Video Naming for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/vidvault-prodigies-mastering-the-download-of-tweeted-videos-for-2024/"><u>VidVault Prodigies  Mastering the Download of Tweeted Videos for 2024</u></a></li>
+</ul></div>

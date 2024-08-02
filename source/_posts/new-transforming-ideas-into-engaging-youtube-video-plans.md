@@ -1,7 +1,7 @@
 ---
 title: "[New] Transforming Ideas Into Engaging YouTube Video Plans"
-date: 2024-06-05T16:11:45.641Z
-updated: 2024-06-06T16:11:45.641Z
+date: 2024-08-01T11:07:14.298Z
+updated: 2024-08-02T11:07:14.298Z
 tags:
   - ai video
   - ai youtube
@@ -39,22 +39,38 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
@@ -85,6 +101,9 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -113,3 +132,44 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-bite-sized-broadcasting-maintaining-quality-in-quick-posts/"><u>[New] 2024 Approved  Bite-Sized Broadcasting  Maintaining Quality in Quick Posts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-cool-youtube-previews-in-imovie-easily/"><u>[New] 2024 Approved  Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dance-of-words-crafting-bouncing-text-effects/"><u>[New] 2024 Approved  Dance of Words  Crafting Bouncing Text Effects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-youtube-exchange-threads-for-2024/"><u>[New] Decoding YouTube Exchange Threads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-direct-conversion-of-spotify-music-5-tools-for-youtube-streaming-for-2024/"><u>[New] Direct Conversion of Spotify Music  5 Tools for YouTube Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-earning-insights-from-viewing-data-on-youtube-for-2024/"><u>[New] Earning Insights From Viewing Data on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-youtube-content-with-text-overlays-for-2024/"><u>[New] Enhancing YouTube Content with Text Overlays for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>[New] In 2024, Embrace Cold  Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-engagement-how-to-pick-perfect-youtube-collaborators/"><u>[New] Maximizing Engagement  How to Pick Perfect YouTube Collaborators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-shot-selection-best-stabilizers-reviewed/"><u>[New] Ultimate Shot Selection - Best Stabilizers Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtube-potential-editing-after-the-upload-process/"><u>[New] Unlocking YouTube Potential  Editing After the Upload Process</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-arctic-athleticism-revealed-the-top-of-the-line-in-olympic-snowboard-cross/"><u>[Updated] 2024 Approved  Arctic Athleticism Revealed  The Top of the Line in Olympic Snowboard Cross</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-earning-strategies-with-youtubes-adsense-payout-per-k-viewers/"><u>[Updated] 2024 Approved  Earning Strategies with Youtube's AdSense  Payout per K Viewers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-free-form-funny-meme-tools-on-a-shoestring-budget/"><u>[Updated] 2024 Approved  Free-Form Funny  Meme Tools on a Shoestring Budget</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-reverse-the-norm-flipping-videos-for-social-media/"><u>[Updated] 2024 Approved  Reverse the Norm  Flipping Videos for Social Media</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-celestial-high-definition-images-online-guide/"><u>[Updated] Celestial High Definition Images Online Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-fast-fortnite-icons-in-minutes-for-2024/"><u>[Updated] Crafting Fast Fortnite Icons in Minutes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-content-creators-dilemma-which-site-reigns-vimeo-youtube/"><u>[Updated] In 2024, Content Creators' Dilemma  Which Site Reigns - Vimeo, YouTube?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-correct-facebook-status-update-delays/"><u>[Updated] In 2024, Correct Facebook Status Update Delays</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-direct-youtube-file-access-tips/"><u>[Updated] In 2024, Direct YouTube File Access Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-efficient-use-of-snap-features-to-boost-online-collaboration/"><u>[Updated] In 2024, Efficient Use of Snap Features to Boost Online Collaboration</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfecting-your-playlists-adapting-spotify-to-the-youtube-music-ecosystem/"><u>[Updated] Perfecting Your Playlists  Adapting Spotify to the YouTube Music Ecosystem</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premier-10-decibel-boosters-macos-to-mobile-devices/"><u>[Updated] Premier 10 Decibel Boosters  MacOS to Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-seamless-conversion-excellence-with-these-top-8-tools/"><u>[Updated] Seamless Conversion Excellence with These Top 8 Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-steer-clear-of-obscurity-secure-a-top-spot-with-youtube-seo-tips/"><u>[Updated] Steer Clear of Obscurity  Secure a Top Spot with YouTube SEO Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-vocal-transformation-programs-for-video-makers/"><u>[Updated] The Best Vocal Transformation Programs for Video Makers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-2023s-best-device-compatible-entry-editor-solutions/"><u>2024 Approved  2023'S Best Device-Compatible Entry Editor Solutions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-streampulse-app-testimonials/"><u>2024 Approved  StreamPulse App Testimonials</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlocking-your-fb-social-media-treasures/"><u>2024 Approved  Unlocking Your FB Social Media Treasures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-virtual-victory-channel-over-a-hundred-heroes-rise/"><u>2024 Approved  Virtual Victory Channel  Over a Hundred Heroes Rise</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-yt-thumbnails-downloading-via-browser-app-and-command-line/"><u>2024 Approved  YT Thumbnails  Downloading via Browser, App & Command Line</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-honor-90-lite-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Honor 90 Lite without App | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/crucial-mistakes-to-sidestep-on-your-first-day-with-windows-11/"><u>Crucial Mistakes to Sidestep on Your First Day with Windows 11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-xiaomi-redmi-13c-5g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Xiaomi Redmi 13C 5G</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/highest-quality-capture-software-showdown/"><u>Highest Quality Capture Software Showdown</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-oppo-reno-9a-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Oppo Reno 9A? Fixed | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-textual-tricks-for-tickling-funny-bones/"><u>In 2024, Textual Tricks for Tickling Funny Bones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-vlogger-vogue-launching-your-cosmetic-channel/"><u>The Ultimate Guide to Vlogger Vogue  Launching Your Cosmetic Channel</u></a></li>
+</ul></div>

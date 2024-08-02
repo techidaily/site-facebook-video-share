@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Visionary Video Planning Using the Power of Google Trends\""
-date: 2024-06-05T15:06:28.162Z
-updated: 2024-06-06T15:06:28.162Z
+date: 2024-08-01T09:15:30.795Z
+updated: 2024-08-02T09:15:30.795Z
 tags:
   - ai video
   - ai youtube
@@ -34,8 +34,14 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## Part 1: Seeing The Big Picture
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
@@ -46,6 +52,9 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -76,6 +85,9 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -92,6 +104,9 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
@@ -122,8 +137,14 @@ Want to make coming up with YouTube video ideas a habit? [This post here](https:
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -140,3 +161,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discovering-the-most-innovative-youtube-channel-names-a-vloggers-must-have-list-maximum-length-156-characters/"><u>[New] 2024 Approved  Discovering the Most Innovative Youtube Channel Names  A Vlogger's Must-Have List (Maximum Length  156 Characters)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-jake-pauls-youtube-success-story/"><u>[New] 2024 Approved  Jake Paul's YouTube Success Story</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-amplify-your-vlog-presence-with-tubebuddys-tools-for-2024/"><u>[New] Amplify Your Vlog Presence with TubeBuddy's Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-banter-bonanza-the-best-comedians-on-the-web-for-2024/"><u>[New] Banter Bonanza  The Best Comedians on the Web for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-escape-the-top-chart-unexpected-flick-winners-for-2024/"><u>[New] Escape the Top Chart  Unexpected Flick Winners for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creative-camerawork-innovative-techniques-for-video-savvy-youtubers/"><u>[New] In 2024, Creative Camerawork  Innovative Techniques for Video-Savvy YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-monetization-matrix-how-maker-gains-from-shorter-videos/"><u>[New] The Monetization Matrix  How Maker Gains From Shorter Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-studio-optimization-device-agnostic-approaches/"><u>[New] Youtube Studio Optimization  Device-Agnostic Approaches</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-club-vibes-best-dj-template-video-selections/"><u>[Updated] 2024 Approved  Club Vibes  Best DJ Template Video Selections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-impact-best-9-video-thumbnail-makers-reviewed/"><u>[Updated] 2024 Approved  Crafting Impact  Best 9 Video Thumbnail Makers Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-to-navigate-top-10-youtube-downloader-tools/"><u>[Updated] 2024 Approved  Easy-to-Navigate Top 10 YouTube Downloader Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-media-content-via-youtube-studio-editing-skills/"><u>[Updated] 2024 Approved  Elevate Your Media Content via YouTube Studio Editing Skills</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-8plus-places-for-gratis-hdr-environments-and-clips/"><u>[Updated] 2024 Approved  Explore 8+ Places for Gratis HDR Environments & Clips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-transform-your-video-chats-using-zooms-filters/"><u>[Updated] 2024 Approved  Transform Your Video Chats Using Zoom's Filters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beginners-companion-to-choosing-youtube-cameras-for-2024/"><u>[Updated] Beginner’s Companion to Choosing YouTube Cameras for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-practices-for-inserting-text-on-youtube-videos-effectively-for-2024/"><u>[Updated] Best Practices for Inserting Text on YouTube Videos Effectively for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-budget-friendly-vlogging-cameras-unveiled-our-picks-for-2024/"><u>[Updated] Budget-Friendly Vlogging Cameras Unveiled  Our Picks for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-elevate-your-media-management-with-best-videographers-on-vimeo-for-2024/"><u>[Updated] Elevate Your Media Management with Best Videographers on Vimeo for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-engage-grow-and-rise-triple-threat-tactics-for-facebook-pages-for-2024/"><u>[Updated] Engage, Grow, and Rise  Triple Threat Tactics for Facebook Pages for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-fundamental-codex-for-online-video-communities/"><u>[Updated] Fundamental Codex for Online Video Communities</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-icon-and-logo-inspiration-the-top-6-website-roundup/"><u>[Updated] Icon & Logo Inspiration  The Top 6 Website Roundup</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-control-over-your-youtube-viewing-rhythm/"><u>[Updated] Master Control Over Your YouTube Viewing Rhythm</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-guide-to-correcting-hidden-shorts-on-youtube/"><u>[Updated] Quick Guide to Correcting Hidden Shorts on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-framework-for-captivating-streams-on-youtube/"><u>[Updated] The Ultimate Framework for Captivating Streams on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-harvest-hits-roundup-next-gen-farming-game-picks/"><u>2024 Approved  Harvest Hits Roundup  Next-Gen Farming Game Picks</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-itel-p55plus-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Itel P55+</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discovering-the-top-5-engine-choices-for-your-drones/"><u>Discovering the Top 5 Engine Choices for Your Drones</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-enhance-content-top-10-mobile-and-desktop-friendly-editors/"><u>In 2024, Enhance Content  Top 10 Mobile & Desktop-Friendly Editors</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-samsung-galaxy-f04-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Samsung Galaxy F04</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-poco-c50-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Poco C50? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-unlocking-the-power-of-language-adaptation-advanced-techniques-for-video-dubbing-via-filmora/"><u>In 2024, Unlocking the Power of Language Adaptation Advanced Techniques for Video Dubbing via Filmora</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/master-image-tweaks-with-snapseed-for-newbies-for-2024/"><u>Master Image Tweaks with Snapseed for Newbies for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/novices-compendium-understanding-pixel-perfection-for-2024/"><u>Novice's Compendium  Understanding Pixel Perfection for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/reversing-camera-apps-loss-of-recorded-images/"><u>Reversing Camera App's Loss of Recorded Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rhythm-rendezvous-optimal-dj-video-selections-for-2024/"><u>Rhythm Rendezvous  Optimal DJ Video Selections for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-voyage-guide-from-novice-to-esteemed-travel-blogger-for-2024/"><u>The Ultimate Voyage Guide  From Novice to Esteemed Travel Blogger for 2024</u></a></li>
+</ul></div>

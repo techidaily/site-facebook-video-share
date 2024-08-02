@@ -1,7 +1,7 @@
 ---
 title: "\"Unraveling the Mystery of Ad-Driven Content Creation (CPM) for 2024\""
-date: 2024-06-05T14:18:14.558Z
-updated: 2024-06-06T14:18:14.558Z
+date: 2024-08-01T07:55:15.399Z
+updated: 2024-08-02T07:55:15.399Z
 tags:
   - ai video
   - ai youtube
@@ -22,6 +22,10 @@ YouTube is a great way to make money online through sponsorship and selling merc
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## **Part 1\. How Much Do YouTubers Make Per View?**
@@ -60,6 +64,9 @@ The figures above are just estimates. YouTubers often make more or less this amo
 
 To get paid from revenues, you need to be eligible for the YouTube Partner Program (YPP). The following is the eligibility criteria.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ypp eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-3.JPG)
 
 The specific eligibility criteria include the following:
@@ -84,26 +91,45 @@ YouTube creates a clear path for the birth of a new breed of celebrities. They h
 * [Unspeakable - $28.5 million](#youtuber5)
 * [Nastya - $28 million](#youtuber6)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **1\.** [**Mr. Beast (Jimmy Donaldson) - $54 Million**](https://www.youtube.com/channel/UCX6OQ3DkcsbYNE6H8uQQuVA)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![mr. beast](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-4.JPG)
 
 Ranked first among the highest-paid YouTubers, Jimmy has the most popular channel. With more than 150 million subscribers, he creates videos about challenges, pranks, and giveaways. The videos have accumulated billions of views, contributing to his estimated net worth of over $100 million. Another important source of income is the Mr. Beast Burger app and menu that lets fans order MrBeast-banded meals from over 1,600 restaurants across the country.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. [**Jake Paul - $45 million**](https://www.youtube.com/@jakepaul)
 
 ![jake paul](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-5.JPG)
 
 Jake Paul is a renowned American professional boxer. Widely famous on social media, his YouTube is also one of the most highly ranked. He shares different kinds of videos from his boxing games. He also does pranks and reviews about different products.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. [**Markiplier - $38 Million**](https://www.youtube.com/channel/UC7%5FYxT-KID8kRbqZo7MyscQ)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![markiplier](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-6.JPG)
 
 Markiplier makes videos about playing games. The YouTube channel, which started in 2021 is renowned for moving merch. In addition to ad revenue, Markiplier records high sales of T-shirts, hoodies, and other items tied to the Unus Annus series.
 
 ### **4\.** [**Rhett and Link - $30 million**](https://www.youtube.com/channel/UCbochVIwBCzJb9I2lLGXGjQ)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![rhett and link](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-7.JPG)
 
 This YouTube channel started as the duo hosting a nerdy daily talk show called _Good Mythical Morning_. It quickly grew into an empire with brand extensions and spinoffs that boosted its views and earnings on YouTube.
@@ -120,6 +146,9 @@ Unspeakable talks about Minecraft in the channel. Nathan Graham posts videos of 
 
 Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Part 5\.** **Edit Your Videos for Monetization with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 The amount of money a YouTuber earns depends on several factors. However, the amount can be increased by uploading quality videos. YouTube will quality and engaging content attract more audience, increasing the opportunities for revenue generation. Wondershare Filmora is one such software, that allows you to tell your story in a better way.
@@ -162,20 +191,32 @@ From the top-left corner of the screen, click the “Titles” category. Then ch
 
 Review all the media items in the timeline, and replace any that you want with another option. The Replace icon allows you to seamlessly achieve this. You can also import new files to replace it with.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instant mode 5](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-14.JPG)
 
 #### **Step 6: Add Project to Timeline**
 
 Once you are satisfied with your slideshow video, click on the Timeline button. This will take you to Filmora’s editing environment where you can add effects and other elements to enhance the video.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instant mode 6](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-15.JPG)
 
 #### **Step 7 – Preview and Export Your Video**
 
 Click on the Play icon to preview the edited video. Then export it in MP4 format for quick upload to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![instant mode 7](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-16.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **Other Useful Filmora Video Editing Features**
 
 * [AI Portrait](https://tools.techidaily.com/wondershare/filmora/download/) – Remove the background of your videos with high accuracy and choose over 70 portrait and sticker effects.
@@ -184,12 +225,20 @@ Click on the Play icon to preview the edited video. Then export it in MP4 format
 * [Auto Reframe](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically resize your videos within minutes to use on both YouTube and Shorts.
 * [Auto Beat Sync](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically match the footage with music, giving your video a smooth flow with the music you choose.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Conclusion**
 
 Running a YouTube Channel is lucrative. Although it may take time to build a following, YouTube is a great platform for generating revenue. Most YouTubers have monetized their channels through the YPP program. The program allows you to earn revenue from the ads that show up in your videos. This means that a successful YouTube needs high-quality videos. We recommend Wondershare Filmora for editing your videos and improving their rate of engagement with the audience. This is a key step in building recurring revenue with YouTube monetization options.
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 
@@ -200,3 +249,49 @@ Running a YouTube Channel is lucrative. Although it may take time to build a fol
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-best-screen-recorder-no-ads-for-android/"><u>[New] 2024 Approved  Best Screen Recorder No Ads for Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>[New] 2024 Approved  Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-effective-engagement-incorporating-youtube-videos-into-slides/"><u>[New] 2024 Approved  Effective Engagement  Incorporating YouTube Videos Into Slides</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-crafting-a-huge-impact-youtube-titles-that-sell/"><u>[New] Crafting a Huge Impact  YouTube Titles That Sell</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-youtube-presence-with-these-8-free-courses-for-2024/"><u>[New] Elevate Your YouTube Presence with These 8 Free Courses for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-ace-search-engine-rankings-on-youtube-11-proven-seo-methods/"><u>[New] In 2024, Ace Search Engine Rankings on YouTube  11 Proven SEO Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-matchmaking-in-the-youtube-collaboration-arena/"><u>[New] The Art of Matchmaking in the YouTube Collaboration Arena</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-unlocking-the-potential-ps4-recording-techniques-in-obs/"><u>[New] Unlocking the Potential  PS4 Recording Techniques in OBS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-youtube-shorts-video-editing-apps-for-ios-and-android/"><u>[Updated] 2024 Approved  Best YouTube Shorts Video Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortlessly-transform-youtube-tunes-to-mp3-with-mac/"><u>[Updated] 2024 Approved  Effortlessly Transform YouTube Tunes to MP3 with Mac</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-freefire-gameplay-on-youtube-channels/"><u>[Updated] 2024 Approved  Elevate Your FreeFire Gameplay on YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-advanced-techniques-for-youtube-card-use-for-2024/"><u>[Updated] Advanced Techniques for YouTube Card Use for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beauty-behind-the-screen-color-correction-insights-for-2024/"><u>[Updated] Beauty Behind the Screen  Color Correction Insights for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-capturing-the-action-ps4-to-video-using-obs-for-2024/"><u>[Updated] Capturing the Action  PS4 to Video Using OBS for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-chime-chronicles-mastering-the-art-of-tamil-ringtones-for-2024/"><u>[Updated] Chime Chronicles  Mastering the Art of Tamil Ringtones for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-content-choosing-right-youtube-duosgroups-for-2024/"><u>[Updated] Elevating Your Content  Choosing Right YouTube Duos/Groups for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-rediscover-the-past-watching-youtubes-lost-footage/"><u>[Updated] How to Rediscover the Past  Watching Youtube's Lost Footage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-name-inspiration-strategies-for-success/"><u>[Updated] In 2024, Channel Name Inspiration  Strategies for Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dominating-the-digital-space-with-trending-content/"><u>[Updated] In 2024, Dominating the Digital Space with Trending Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-learn-from-the-greats-strategies-for-confident-online-sharing/"><u>[Updated] Learn From the Greats  Strategies for Confident Online Sharing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-networking-with-influencers-partnerships-for-viral-video-potential/"><u>[Updated] Networking with Influencers  Partnerships for Viral Video Potential</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocket-to-the-top-on-youtube-secrets-of-effective-seo-tactics-1-11/"><u>[Updated] Skyrocket to the Top on YouTube  Secrets of Effective SEO Tactics (1-11)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tailored-tunes-creating-custom-youtube-playlists/"><u>[Updated] Tailored Tunes  Creating Custom Youtube Playlists</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-art-of-xbox-playback-tips-for-clear-video/"><u>[Updated] The Art of Xbox Playback  Tips for Clear Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-who-holds-sway-over-youtube-subscribers/"><u>[Updated] Who Holds Sway Over YouTube Subscribers?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-circumventing-virtual-classroom-videos-without-hesitation/"><u>2024 Approved  Circumventing Virtual Classroom Videos Without Hesitation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-import-audio-tracks-in-premiere-pro/"><u>2024 Approved  Import Audio Tracks in Premiere Pro</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leveraging-fb-media-speeds-up-strategies/"><u>2024 Approved  Leveraging FB Media  Speeds Up Strategies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-cutting-edge-in-photo-framing-techniques-2023-software-guide/"><u>2024 Approved  The Cutting Edge in Photo Framing Techniques, 2023 Software Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-vida-unveiled-a-gateway-to-professional-video-craftsmanship/"><u>2024 Approved  Vida Unveiled  A Gateway to Professional Video Craftsmanship</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-integration-youtube-images-in-slide-decks/"><u>2024 Approved  Video Integration  YouTube Images in Slide Decks</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-oppo-a38-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-beyond-the-standard-unique-augmented-reality-stickers/"><u>In 2024, Beyond the Standard  Unique Augmented Reality Stickers</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-timeless-media-capturing-device/"><u>In 2024, Timeless Media Capturing Device</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-future-proof-audio-editing-platforms-top-choices/"><u>New In 2024, Future-Proof Audio Editing Platforms Top Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-guide-to-rearranging-your-youtube-collection-for-2024/"><u>Quick Guide to Rearranging Your YouTube Collection for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tactics-for-making-youtube-videos-go-viral-for-2024/"><u>Tactics for Making YouTube Videos Go Viral for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/unlock-iphone-xs-lock-with-icloud-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone XS lock with iCloud</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/upgrade-video-experience-activate-av1-on-youtube-for-2024/"><u>Upgrade Video Experience  Activate AV1 on YouTube for 2024</u></a></li>
+</ul></div>

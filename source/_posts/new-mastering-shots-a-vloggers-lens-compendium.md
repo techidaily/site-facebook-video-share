@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Shots  A Vlogger’s Lens Compendium\""
-date: 2024-06-05T16:10:31.164Z
-updated: 2024-06-06T16:10:31.164Z
+date: 2024-08-01T11:05:09.635Z
+updated: 2024-08-02T11:05:09.635Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/521ad24db07aed403ac9c63a8882a3a87b12e15e0
 
 # A Vlogger's Guide To Camera Lenses
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -56,6 +59,9 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -78,10 +84,17 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
@@ -115,6 +128,9 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -129,6 +145,10 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -157,3 +177,53 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-biggest-fifa-visuals-youtube-insights-graphed/"><u>[New] 2024 Approved  Biggest FIFA Visuals  YouTube Insights Graphed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-comprehensive-directory-extracting-yt-template-videos-online/"><u>[New] 2024 Approved  Comprehensive Directory  Extracting YT Template Videos Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-list-6-free-online-platforms-for-youtube-short-downloads/"><u>[New] 2024 Approved  Essential List  6 Free Online Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-complete-scrutiny-of-camstudio-screencapture-tech/"><u>[New] 2024 Approved  The Complete Scrutiny of CamStudio ScreenCapture Tech</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-deciphering-the-language-of-youtube-thumbnails-effectiveness-for-2024/"><u>[New] Deciphering the Language of YouTube Thumbnails Effectiveness for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-how-to-manipulate-iphone-pics-flip-tilt-and-more/"><u>[New] In 2024, How to Manipulate iPhone Pics  Flip, Tilt & More</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-learn-the-art-of-engaging-video-startups-with-imovie/"><u>[New] Learn the Art of Engaging Video Startups with iMovie</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-master-content-creation-video-and-photo-synergy/"><u>[New] Master Content Creation  Video & Photo Synergy</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-master-racing-must-try-bicycle-titles-for-2024/"><u>[New] Master Racing  Must-Try Bicycle Titles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-the-art-of-youtube-thumbnails-in-minutes/"><u>[New] Master the Art of YouTube Thumbnails in Minutes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-video-uploads-past-standard-limits-on-instagram-for-2024/"><u>[New] Mastering Video Uploads Past Standard Limits on Instagram for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-precise-participation-the-key-to-zooming-in-on-google-meet-talks/"><u>[New] Precise Participation  The Key to Zooming in on Google Meet Talks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-role-of-analytics-in-amplifying-your-youtube-presence/"><u>[New] The Role of Analytics in Amplifying Your YouTube Presence</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-path-for-influencers-in-advertising-and-sponsorships/"><u>[New] The Ultimate Path for Influencers in Advertising & Sponsorships</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-hd-vision-utilizing-youtube-for-clear-videos/"><u>[New] Unleash HD Vision  Utilizing YouTube for Clear Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-video-platform-profiles-vimeo-vs-youtube-comparison/"><u>[New] Video Platform Profiles  Vimeo vs YouTube Comparison</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-windows-movie-maker-a-toolkit-for-youtube-videographers/"><u>[New] Windows Movie Maker  A Toolkit for YouTube Videographers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools-for-2024/"><u>[Updated] 10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-chronicles-of-time-student-approved-historical-yt-content/"><u>[Updated] 2024 Approved  Chronicles of Time  Student-Approved Historical YT Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-tools-free-youtube-intro-creators/"><u>[Updated] 2024 Approved  Cutting-Edge Tools  Free YouTube Intro Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-videography-premiere-to-youtube-upload/"><u>[Updated] 2024 Approved  Elevate Your Videography  Premiere to YouTube Upload</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-dive-deep-into-tiktok-mastery-50-must-know-quotes-for-2024/"><u>[Updated] Dive Deep Into TikTok Mastery  50 Must-Know Quotes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-earning-big-on-youtube-shorts-must-haves-opportunities-and-more-for-2024/"><u>[Updated] Earning Big on YouTube Shorts  Must-Haves, Opportunities and More for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-guide-to-secure-and-free-youtube-music-downloads-for-2024/"><u>[Updated] Effortless Guide to Secure and Free YouTube Music Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhancing-income-through-the-science-of-youtube-trailer-creation-for-2024/"><u>[Updated] Enhancing Income Through the Science of YouTube Trailer Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-video-embedding-for-dynamic-online-articles/"><u>[Updated] Free Video Embedding for Dynamic Online Articles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-idea-to-impact-top-8-online-courses-for-new-creators/"><u>[Updated] From Idea to Impact  Top 8 Online Courses for New Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-convert-youtube-videos-to-mp3-songs-on-mac-2023-update/"><u>[Updated] How to Convert YouTube Videos to MP3 Songs on Mac-2023 Update</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-the-excess-a-guide-to-shortening-youtube-videos/"><u>[Updated] In 2024, Cutting the Excess  A Guide to Shortening YouTube Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-directing-tiktok-video-viewers-to-facebook-pages/"><u>[Updated] In 2024, Directing TikTok Video Viewers to Facebook Pages</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-introduction-to-kinetic-graphic-principles/"><u>[Updated] Introduction to Kinetic Graphic Principles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-key-lights-and-soft-shadows-for-vloggers/"><u>[Updated] Key Lights and Soft Shadows for Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-leverage-youtubes-cp2024-the-ultimate-guidebook/"><u>[Updated] Leverage YouTube's CP2024  The Ultimate Guidebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-perfect-your-recordings-the-ultimate-guide-to-adobe-presenter-for-2024/"><u>[Updated] Perfect Your Recordings  The Ultimate Guide to Adobe Presenter for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-viral-flair-identifying-powerful-tags-for-youtube-short-success/"><u>2024 Approved  Viral Flair  Identifying Powerful Tags for YouTube Short Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/avoid-livestream-frustration-addressing-facebook-outages/"><u>Avoid Livestream Frustration  Addressing Facebook Outages</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-creating-professional-level-xbox-screen-recordings/"><u>In 2024, Creating Professional-Level Xbox Screen Recordings</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-no-more-complexities-record-with-nvidia/"><u>In 2024, No More Complexities  Record with NVIDIA</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-optimized-screen-capture-on-pcmac-with-elite-tools/"><u>In 2024, Optimized Screen Capture on PC/Mac with Elite Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-tools-to-embellish-photos-with-words/"><u>In 2024, Pioneering Tools to Embellish Photos with Words</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-apple-iphone-12-mini-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from Apple iPhone 12 mini iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unlocking-the-secrets-of-successful-instagram-posts-through-hashtags/"><u>In 2024, Unlocking the Secrets of Successful Instagram Posts Through Hashtags</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-unleash-your-creativity-best-sony-vegas-alternatives-for-windows/"><u>New 2024 Approved Unleash Your Creativity Best Sony Vegas Alternatives for Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essential-guide-to-zero-cost-webinars-on-youtube-for-2024/"><u>The Essential Guide to Zero-Cost Webinars on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/uncovered-the-hidden-youtube-shorts-fix-for-2024/"><u>Uncovered  The Hidden YouTube Shorts Fix for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-joy-with-9-complete-uncut-films-celebrating-christmas-day-online-for-2024/"><u>Unleash Joy with 9 Complete, Uncut Films Celebrating Christmas Day Online for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-12-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From iPhone 12?</u></a></li>
+</ul></div>

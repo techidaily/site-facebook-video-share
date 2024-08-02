@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-06-05T16:35:12.185Z
-updated: 2024-06-06T16:35:12.185Z
+date: 2024-08-01T11:47:23.839Z
+updated: 2024-08-02T11:47:23.839Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -45,12 +48,18 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -67,6 +76,9 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -87,8 +99,14 @@ Sea monkeys can survive in space.
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Customize Your Vlog Stories with Powerful Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **We’ve got a new eBook out!**
@@ -111,3 +129,43 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-audiovisual-experts-choices-the-ultimate-video-editing-gear/"><u>[New] 2024 Approved  Audiovisual Experts' Choices  The Ultimate Video Editing Gear</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decoding-and-practicing-with-creative-commons-licenses/"><u>[New] 2024 Approved  Decoding and Practicing with Creative Commons Licenses</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamline-visual-content-expert-mac-tips-for-instagram-video-size/"><u>[New] 2024 Approved  Streamline Visual Content  Expert Mac Tips for Instagram Video Size</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-compreshift-guide-to-creating-profitable-and-engaging-youtube-collaborations-for-2024/"><u>[New] A Compreshift Guide to Creating Profitable & Engaging YouTube Collaborations for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-android-and-ios-leaders-in-asmr-content-for-2024/"><u>[New] Android & iOS Leaders in ASMR Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-wrap-up-strategies-free-youtube-end-screens-tutorial/"><u>[New] In 2024, Channel Wrap-Up Strategies - Free YouTube End Screens Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earning-excellence-a-guide-to-maximize-money-from-mobile-youtube-viewers/"><u>[New] In 2024, Earning Excellence  A Guide to Maximize Money From Mobile YouTube Viewers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-revolutionize-mobile-broadcasting-integrating-obs-studio-into-android/"><u>[New] Revolutionize Mobile Broadcasting  Integrating OBS Studio Into Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-definitive-list-of-top-quality-mics-for-yt-styles/"><u>[New] The Definitive List of Top-Quality Mics for YT Styles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-websites-your-source-for-youtube-branding-collabs/"><u>[New] Unveiling Websites  Your Source for YouTube Branding Collabs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-shorts-are-back-on-youtube/"><u>[New] Your Shorts Are Back on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ease-into-content-creation-crafting-the-top-10-accessible-youtube-videos/"><u>[Updated] 2024 Approved  Ease Into Content Creation  Crafting the Top 10 Accessible YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-comprehenensive-guide-to-youtube-studios-editing-features-for-2024/"><u>[Updated] A Comprehenensive Guide to YouTube Studio's Editing Features for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-content-hub-hierarchy-stand-out-amongst-titans-vimeo-youtube-and-dailymotion-in-2024/"><u>[Updated] Content Hub Hierarchy  Stand Out Amongst Titans – Vimeo, YouTube & Dailymotion, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-embark-on-your-video-vision-start-your-youtube-channel-for-2024/"><u>[Updated] Embark on Your Video Vision  Start Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhance-videos-at-no-extra-cost-best-editors-ranked-top-9-for-2024/"><u>[Updated] Enhance Videos at No Extra Cost  Best Editors Ranked (Top 9) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audio-aesthetics-high-quality-dj-template-videos-downloaded/"><u>[Updated] In 2024, Audio Aesthetics  High-Quality DJ Template Videos Downloaded</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-to-making-your-youtube-content-stand-out/"><u>[Updated] Step-by-Step Guide to Making Your YouTube Content Stand Out</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-trendsetting-images-their-histories/"><u>[Updated] Trendsetting Images  Their Histories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-secrets-of-youtube-monetization-key-viewer-numbers/"><u>[Updated] Unlock the Secrets of YouTube Monetization  Key Viewer Numbers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-solutions-to-youtube-short-pitfalls/"><u>[Updated] Unveiling Solutions to YouTube Short Pitfalls</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-your-gateway-to-success-with-a-bundle-of-50-free-adornments/"><u>[Updated] Your Gateway to Success with a Bundle of 50 FREE Adornments</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-metaverse-chronicles-the-best-sci-fi-movies-to-explore-new-universes/"><u>2024 Approved  Metaverse Chronicles  The Best Sci-Fi Movies to Explore New Universes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-list-of-video-recording-apps-for-iphone/"><u>2024 Approved  Top List of Video Recording Apps for iPhone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-gionee-f3-pro-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Gionee F3 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gopros-greatest-hits-max-360-vs-hero-11-comparison-for-2024/"><u>GoPro's Greatest Hits  Max 360 vs Hero 11 Comparison for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-make-a-living-with-reddit-even-for-novices-top-13-easy-strategies/"><u>In 2024, Make a Living with Reddit (Even for Novices!)  Top 13 Easy Strategies</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-own-soundtrack-awaits-step-by-step-youtube-playlist-creation-guide-webmobile/"><u>In 2024, Your Own Soundtrack Awaits  Step-by-Step YouTube Playlist Creation Guide (Web/Mobile)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/integrating-youtube-into-the-world-of-instagram-stories-for-2024/"><u>Integrating YouTube Into the World of Instagram Stories for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/inventory-a-multitude-of-video-recorders-for-2024/"><u>Inventory  A Multitude of Video Recorders for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pioneering-artistry-top-5-trailblazers-blending-visuals-plus-music-into-masterpieces/"><u>Pioneering Artistry  Top 5 Trailblazers Blending Visuals + Music Into Masterpieces</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube-for-2024/"><u>Streamlining the Process of Finding Your Own Musical Compilation on Youtube for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-essential-studio-handbook-xvideo-studio-guide/"><u>The Essential Studio Handbook  XVideo Studio Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tips-for-youtube-video-shooting-for-2024/"><u>Tips for YouTube Video Shooting for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-vivo-s18e-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Vivo S18e Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-apple-iphone-se-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and Apple iPhone SE</u></a></li>
+</ul></div>

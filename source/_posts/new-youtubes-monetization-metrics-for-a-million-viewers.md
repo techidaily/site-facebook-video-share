@@ -1,7 +1,7 @@
 ---
 title: "[New] Youtube's Monetization Metrics for A Million Viewers"
-date: 2024-06-05T13:44:28.380Z
-updated: 2024-06-06T13:44:28.380Z
+date: 2024-08-01T06:58:00.617Z
+updated: 2024-08-02T06:58:00.617Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,82 @@ When you hit 1 million views on any video on YouTube, you'll have a nice paychec
 
 04 [How monetization is changing](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
+## $2000 for 1 Million Views
+
+In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
+
+Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
+
+If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How Revenue is Calculated
+
+In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
+
+In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
+
+As of February 2018, to qualify for ad revenue, the YouTube channel must have:
+
+1\. You will need to have 1,000 subscribers.
+
+2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
+
+The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
+
+## Understanding CPM and CPCs
+
+### What is CPM?
+
+CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
+
+Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
+
+For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+### What is CPC?
+
+CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Changes on YouTube and How You Can Earn More
+
+Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
+
+Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
+
+[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
+
+Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
+
+[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
+
+So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
+
+#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+02 [How is the revenue calculated?](#part2)
+
+03 [CPMs and CPCs](#part3)
+
+04 [How monetization is changing](#part4)
+
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -54,8 +130,90 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Understanding CPM and CPCs
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### What is CPM?
+
+CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
+
+Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
+
+For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### What is CPC?
+
+CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
+## Changes on YouTube and How You Can Earn More
+
+Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
+
+Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
+
+[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
+
+Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
+
+[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
+
+So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
+
+#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+02 [How is the revenue calculated?](#part2)
+
+03 [CPMs and CPCs](#part3)
+
+04 [How monetization is changing](#part4)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## $2000 for 1 Million Views
+
+In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
+
+Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
+
+If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
+
+## How Revenue is Calculated
+
+In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
+
+In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
+
+As of February 2018, to qualify for ad revenue, the YouTube channel must have:
+
+1\. You will need to have 1,000 subscribers.
+
+2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
+
+The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
+## Understanding CPM and CPCs
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### What is CPM?
 
 CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
@@ -96,6 +254,9 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 04 [How monetization is changing](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -118,6 +279,9 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understanding CPM and CPCs
 
 ### What is CPM?
@@ -128,138 +292,16 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
-## Changes on YouTube and How You Can Earn More
-
-Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
-
-Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
-
-[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
-
-Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
-
-[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
-
-So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
-
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-02 [How is the revenue calculated?](#part2)
-
-03 [CPMs and CPCs](#part3)
-
-04 [How monetization is changing](#part4)
-
-## $2000 for 1 Million Views
-
-In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
-
-Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
-
-If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
-
-## How Revenue is Calculated
-
-In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
-
-In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
-
-As of February 2018, to qualify for ad revenue, the YouTube channel must have:
-
-1\. You will need to have 1,000 subscribers.
-
-2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
-
-The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
-
-## Understanding CPM and CPCs
-
-### What is CPM?
-
-CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
-
-Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
-
-For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
-
-### What is CPC?
-
-CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
-
-## Changes on YouTube and How You Can Earn More
-
-Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
-
-Ultimately earning ad revenue is a big game of reaching targeted demographics and [achieving ongoing viewership](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your videos. It does matter where your viewers are going to be viewing from, and the audience that your viewers are in (viewers from areas with more disposable income to spend on the products advertised to them are worth more to advertisers, as are viewers who are interested in higher-cost items).
-
-[Forming relationships with brands](https://www.filmora.io/community-blog/tips-for-youtube-brand-deals-from-marketing-pro-amanda-haines-171.html) and doing product placements or sponsored videos can be a great way to earn more revenue than you will through AdSense. Just make sure the brands you build relationships with are relevant to your audience and that you incorporate the advertising in ways that don’t annoy your viewers.
-
-Use the right keywords in your titles, descriptions, and tags. Without this keyword information, YouTube may pair your video with advertisers that aren’t right for your audience. First, using the wrong keywords won’t put your content in front of the viewers who want to see it, and, second, the ads that run won’t be a good fit and thus are less likely to be clicked on. It's also imperative that you focus on the metadata of every video. It can take some extra time to add in all of this information for each video, but it is well worth it if you are trying to get paid from YouTube.
-
-[Click here for 4 ways to start growing your channel faster.](https://www.filmora.io/community-blog/youtube-subscriber-boost%21-the-4-simplest-tricks-to-grow-your-317.html)
-
-So, how much does YouTube pay for 1 million views? Not as much as you might think. But don't give up, because ad revenue is not the only way to make money through YouTube. Here are[4 alternative ways to make money as a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).
-
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-02 [How is the revenue calculated?](#part2)
-
-03 [CPMs and CPCs](#part3)
-
-04 [How monetization is changing](#part4)
-
-## $2000 for 1 Million Views
-
-In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
-
-Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
-
-If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
-
-## How Revenue is Calculated
-
-In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
-
-In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
-
-As of February 2018, to qualify for ad revenue, the YouTube channel must have:
-
-1\. You will need to have 1,000 subscribers.
-
-2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
-
-The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
-
-## Understanding CPM and CPCs
-
-### What is CPM?
-
-CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
-
-Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
-
-For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
-
-### What is CPC?
-
-CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
-
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Changes on YouTube and How You Can Earn More
 
 Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
@@ -369,10 +411,16 @@ As the name suggests, Intro Cave has a focus on intro videos. However, you can s
 
 Although things do go on sale, they tend to charge $5 for a 720p clip.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## YouTube Outro Maker Alternative-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Wondershare Filmora is a great video editor for all creators. It has a large collection of video transitions, filters, overlays and text templates which can also help you customize your own templates. And its intuitive interface and easy-to-use editing tools will make your editing more efficient and quick! Let's achieve a refined look with endless effects with Wondershare Filmora!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -402,6 +450,9 @@ Here are 6 outro maker sites where you can get outros and end cards. Check the b
 > * [The #1 Pick!](#one)
 > * [Wondershare Filmora](#filmora)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6 YouTube Outro Makers With Templates
 
 For even more End Screen Templates, [click here](https://www.filmora.io/community-blog/free-youtube-end-screen-templates%21-plus%3B-how-to-build-your-301.html).
@@ -485,6 +536,9 @@ Here are 6 outro maker sites where you can get outros and end cards. Check the b
 > * [The #1 Pick!](#one)
 > * [Wondershare Filmora](#filmora)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## 6 YouTube Outro Makers With Templates
 
 For even more End Screen Templates, [click here](https://www.filmora.io/community-blog/free-youtube-end-screen-templates%21-plus%3B-how-to-build-your-301.html).
@@ -541,6 +595,10 @@ Wondershare Filmora is a great video editor for all creators. It has a large col
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -622,8 +680,14 @@ Although things do go on sale, they tend to charge $5 for a 720p clip.
 
 Wondershare Filmora is a great video editor for all creators. It has a large collection of video transitions, filters, overlays and text templates which can also help you customize your own templates. And its intuitive interface and easy-to-use editing tools will make your editing more efficient and quick! Let's achieve a refined look with endless effects with Wondershare Filmora!
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -646,3 +710,53 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates-for-2024/"><u>[New] Boosting Channel Earnings  The Step-by-Step FameBit Guide to Affiliates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-3-techniques-to-retrieve-and-save-youtubes-iconic-images/"><u>[New] In 2024, 3 Techniques to Retrieve & Save YouTube's Iconic Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-virality-on-youtube-essential-steps-demystified/"><u>[New] In 2024, Achieving Virality on YouTube  Essential Steps Demystified</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-top-15-youtube-sources-for-sci-education/"><u>[New] In 2024, Discover Top 15 YouTube Sources for Sci-Education</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-tips-on-choosing-the-best-youtube-to-avi-software/"><u>[New] In 2024, Expert Tips on Choosing the Best YouTube-to-AVI Software</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-saves-free-and-without-end-for-2024/"><u>[New] Instagram Saves  Free and Without End for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigating-facebooks-new-frontier-trends-of-2024/"><u>[New] Navigating Facebook's New Frontier  Trends of 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion/"><u>[New] The Ultimate Platform Question  Who's the Best - Vimeo or YouTube+Dailymotion?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-shortcut-for-endless-youtube-video-repetition/"><u>[New] The Ultimate Shortcut for Endless YouTube Video Repetition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-power-of-a-sturdy-tripod-in-video-content-production/"><u>[New] Unveiling the Power of a Sturdy Tripod in Video Content Production</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-crop-your-video-for-instagram/"><u>[Updated] 2024 Approved  A Comprehensive Guide to Crop Your Video for Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-engagement-best-video-ideas-for-channels/"><u>[Updated] 2024 Approved  Elevating Engagement  Best Video Ideas for Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ensuring-copyright-compliance-in-youtube-to-mp4/"><u>[Updated] 2024 Approved  Ensuring Copyright Compliance in Youtube-to-MP4</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-10-premium-youtube-to-webm-converter-tools/"><u>[Updated] 2024 Approved  Explore 10 Premium YouTube-to-WebM Converter Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-voice-memo-grab-and-examine/"><u>[Updated] 2024 Approved  Voice Memo Grab & Examine</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-visual-journey-uncovering-the-best-icons-and-logos-online-for-2024/"><u>[Updated] A Visual Journey  Uncovering the Best Icons & Logos Online for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-techniques-for-sports-entertainment-films-for-2024/"><u>[Updated] Cutting Techniques for Sports Entertainment Films for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-economical-growth-methodology-subscribe-now-for-2024/"><u>[Updated] Economical Growth Methodology - Subscribe Now for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-flexibility-in-viewing-with-youtube-tv-options/"><u>[Updated] Flexibility in Viewing with YouTube TV Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-a-creative-split-screen-video-for-youtube/"><u>[Updated] How to Make a Creative Split-Screen Video for YouTube?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-broadcast-your-google-meet-directly-to-youtubes-stage/"><u>[Updated] In 2024, Broadcast Your Google Meet Directly to YouTube's Stage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-audience-connection-with-empowerment-vlogs/"><u>[Updated] In 2024, Building Audience Connection with Empowerment Vlogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-efficient-techniques-ios-screenshots-and-youtube-content-creation/"><u>[Updated] In 2024, Efficient Techniques  IOS Screenshots and YouTube Content Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortlessly-embedding-visual-media-in-free-content-creation/"><u>[Updated] In 2024, Effortlessly Embedding Visual Media in Free Content Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-your-vlog-through-proper-lighting/"><u>[Updated] In 2024, Elevating Your Vlog Through Proper Lighting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pro-video-gear-expert-recommendations-for-youtube-clips/"><u>[Updated] Pro Video Gear  Expert Recommendations for YouTube Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-degrees-elevating-your-youtube-videos/"><u>[Updated] The Art of Degrees  Elevating Your YouTube Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-past-images-a-snapchat-journey-for-2024/"><u>[Updated] The Art of Past Images  A Snapchat Journey for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-blueprint-for-youtube-income-generation/"><u>[Updated] The Blueprint for YouTube Income Generation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-asmr-gear-expert-picked-microphone-selections/"><u>[Updated] Top ASMR Gear  Expert-Picked Microphone Selections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-upgrading-your-spotify-library-to-youtube-music-access/"><u>[Updated] Upgrading Your Spotify Library to YouTube Music Access</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-whimsical-wonders-in-musical-worlds/"><u>[Updated] Whimsical Wonders in Musical Worlds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-1-choice-transcribe-youtube-videos-in-a-flash/"><u>2024 Approved  1 Choice  Transcribe YouTube Videos in a Flash</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-premier-mac-studio-for-high-quality-recordings/"><u>2024 Approved  Premier Mac Studio for High-Quality Recordings</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-techniques-for-swiftly-cleaning-your-youtube-buffered-queue/"><u>2024 Approved  Techniques for Swiftly Cleaning Your YouTube Buffered Queue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-shorts-thumbnail-woes-a-quick-guide-to-solutions/"><u>2024 Approved  YouTube Shorts Thumbnail Woes  A Quick Guide to Solutions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-honor-x50i-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Honor X50i</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-poco-m6-5g-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Poco M6 5G FRP Locks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-easy-steps-to-record-your-dell-laptops-display/"><u>In 2024, Easy Steps to Record Your Dell Laptop's Display</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-nokia-105-classic-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Nokia 105 Classic FRP</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-quirks-of-professional-photo-editing/"><u>Quick Quirks of Professional Photo Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ready-yourself-for-youtube-video-production-finalcut-pro-techniques-for-2024/"><u>Ready Yourself for YouTube Video Production - FinalCut Pro Techniques for 2024</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-motorola-moto-g14-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Motorola Moto G14 on Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sky-high-security-for-your-photos-explore-free-and-paid-options/"><u>Sky-High Security for Your Photos  Explore Free and Paid Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/skyrocket-to-the-top-on-youtube-secrets-of-effective-seo-tactics-1-11-for-2024/"><u>Skyrocket to the Top on YouTube  Secrets of Effective SEO Tactics (1-11) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ultra-quick-fortnite-image-design-for-2024/"><u>Ultra-Quick Fortnite Image Design for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Swiftly Excise Your Youtube Comment Spam"
-date: 2024-06-05T15:00:43.859Z
-updated: 2024-06-06T15:00:43.859Z
+date: 2024-08-01T09:05:23.621Z
+updated: 2024-08-02T09:05:23.621Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
 
 # Deleting YouTube Comments
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -101,8 +104,14 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -110,6 +119,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -122,10 +135,17 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -142,3 +162,71 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-shareable-moments-a-guide-to-enhanced-viewership-in-15-second-videos/"><u>[New] 2024 Approved  Crafting Shareable Moments  A Guide to Enhanced Viewership in 15-Second Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-ultimate-facebook-playbook-for-business-growth-30-key-points/"><u>[New] 2024 Approved  The Ultimate Facebook Playbook for Business Growth (30 Key Points)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-breakdown-of-how-youtube-ad-revenue-works-cpm-for-2024/"><u>[New] Breakdown of How YouTube Ad Revenue Works (CPM) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-collect-premium-audio-for-video-editors-for-2024/"><u>[New] Collect Premium Audio for Video Editors for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-deciphering-the-function-of-the-blue-icon-in-messenger-for-2024/"><u>[New] Deciphering the Function of the Blue Icon in Messenger for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-look-expert-tutorials-for-everyone-for-2024/"><u>[New] Elevating Your Look  Expert Tutorials for Everyone for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exclusive-list-of-the-top-10-digital-recording-apps-for-2024/"><u>[New] Exclusive List of the Top 10 Digital Recording Apps for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-captivate-audiences-and-gain-traction-with-youtube-shorts-for-2024/"><u>[New] How to Captivate Audiences and Gain Traction with YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-camera-for-videos-mirrorless-vs-dslr-showdown/"><u>[New] In 2024, Best Camera for Videos  Mirrorless Vs. DSLR Showdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discovering-your-curated-collection-of-tunes-in-youtubes-depths/"><u>[New] In 2024, Discovering Your Curated Collection of Tunes in YouTube's Depths</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-expert-tips-for-pc-gamers-ideal-snapshots/"><u>[New] In 2024, Expert Tips for PC Gamer's Ideal Snapshots</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-the-monetization-framework-of-tseries-via-youtube/"><u>[New] In 2024, Exploring the Monetization Framework of TSeries via YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-innovations-in-youtube-video-editing-software-reviewed/"><u>[New] Innovations in YouTube Video Editing Software Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-launchpad-equipment-the-beginners-checklist/"><u>[New] Launchpad Equipment  The Beginner's Checklist</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-making-money-with-videos-strategies-for-the-aspiring-vlogger/"><u>[New] Making Money with Videos  Strategies for the Aspiring Vlogger</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-camera-balance-gimbals-for-drones-explained/"><u>[New] Mastering Camera Balance  Gimbals for Drones Explained</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-art-of-4k-videography-with-prime-optics/"><u>[New] Mastering the Art of 4K Videography with Prime Optics</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-speed-control-a-detailed-walkthrough/"><u>[New] Snapchat Speed Control  A Detailed Walkthrough</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-youtuber-enigma-decoded-exciting-questionnaires-leading-to-your-ideal-creator-profile/"><u>[New] The YouTuber Enigma Decoded  Exciting Questionnaires Leading to Your Ideal Creator Profile</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-iphones-loop-functionality/"><u>[New] Unlocking iPhone's Loop Functionality</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-win10s-best-practices-for-gaming-video-capture-for-2024/"><u>[New] Win10's Best Practices for Gaming Video Capture for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-gateway-to-youtube-entrepreneurship-the-best-10-easy-to-create-channels/"><u>[New] Your Gateway to YouTube Entrepreneurship  The Best 10 Easy-to-Create Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-making-gifs-from-youtube-tracks/"><u>[Updated] 2024 Approved  A Comprehensive Guide to Making GIFs From YouTube Tracks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-youtube-engagement-top-11-seo-strategies-revealed/"><u>[Updated] 2024 Approved  Boosting YouTube Engagement  Top 11 SEO Strategies Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-churning-up-channels-top-gear-list/"><u>[Updated] 2024 Approved  Churning Up Channels  Top Gear List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-deciphering-the-language-of-youtube-thumbnails-effectiveness/"><u>[Updated] 2024 Approved  Deciphering the Language of YouTube Thumbnails Effectiveness</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-your-gameplay-on-youtube-with-these-essential-tags/"><u>[Updated] 2024 Approved  Elevating Your Gameplay on YouTube with These Essential Tags</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-learn-the-ultimate-snap-sharing-trick-today/"><u>[Updated] 2024 Approved  Learn the Ultimate Snap Sharing Trick Today</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-streamlining-zoom-sessions-through-effective-recording/"><u>[Updated] 2024 Approved  Streamlining Zoom Sessions Through Effective Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-avoiding-files-enjoying-animated-gifs-youtube-video-mastery-for-2024/"><u>[Updated] Avoiding Files, Enjoying Animated GIFs  YouTube Video Mastery for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beginning-your-blog-journey-for-financial-gain-for-2024/"><u>[Updated] Beginning Your Blog Journey for Financial Gain for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-eradicating-youtube-content-in-a-device-friendly-way-for-2024/"><u>[Updated] Eradicating YouTube Content in a Device-Friendly Way for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-getting-started-with-pro-level-youtube-tech/"><u>[Updated] Getting Started with Pro-Level YouTube Tech</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gleeful-loginsign-up-step-guide/"><u>[Updated] Gleeful Login/Sign Up Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-global-viewer-count-triumphs-play-button-honors/"><u>[Updated] Global Viewer Count Triumphs  Play Button Honors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-simplified-steps-for-sequential-youtube-video-viewing-free/"><u>[Updated] In 2024, 5 Simplified Steps for Sequential YouTube Video Viewing (Free)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-a-billion-dollar-brand-on-youtube-jake-paul/"><u>[Updated] In 2024, Building a Billion-Dollar Brand on Youtube (Jake Paul)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-your-video-content-youtube-to-igtv-transition/"><u>[Updated] In 2024, Elevating Your Video Content  YouTube to IGTV Transition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-the-finest-no-cost-video-editing-software/"><u>[Updated] In 2024, Exploring the Finest No-Cost Video Editing Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-class-in-live-streaming-your-pathway-to-successful-youtube-channels-via-wirecast/"><u>[Updated] Master Class in Live Streaming  Your Pathway to Successful Youtube Channels via WireCast</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-recording-made-simple-your-phone-cookbook-for-snapping-stories-for-2024/"><u>[Updated] Recording Made Simple  Your Phone' Cookbook for Snapping Stories for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-streamlining-social-sharing-coordinating-vids-on-tweets-plus-tumbles-for-2024/"><u>[Updated] Streamlining Social Sharing  Coordinating Vids on Tweets + Tumbles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-taste-the-thrill-crafting-engaging-food-network-names/"><u>[Updated] Taste the Thrill  Crafting Engaging Food Network Names</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-top-8-choices-mirrorless-cameras-for-excellent-vlogs/"><u>[Updated] The Top 8 Choices  Mirrorless Cameras for Excellent Vlogs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-crack-the-code-of-tinders-elite-profiles-with-these-tricks/"><u>2024 Approved  Crack the Code of Tinder's Elite Profiles with These Tricks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-effortless-edits-bending-image-into-shape/"><u>2024 Approved  Effortless Edits  Bending Image Into Shape</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-win-audio-experience/"><u>2024 Approved  Exclusive Win Audio Experience</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-six-simplest-strategies-to-craft-your-mc-dwelling/"><u>2024 Approved  Six Simplest Strategies to Craft Your MC Dwelling</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlocking-efficient-google-podcast-postings/"><u>2024 Approved  Unlocking Efficient Google Podcast Postings</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-infinix-hot-40-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Infinix Hot 40 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-xiaomi-devices-by-drfone-android/"><u>How to Reset Gmail Password on Xiaomi Devices</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-edge-2023-phone-without-google-account-by-drfone-android/"><u>How to Unlock Motorola Edge 2023 Phone without Google Account?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on OnePlus 11R? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-earning-estimates-for-youtube-creators-adsense-pay-out-per-1000-viewers/"><u>In 2024, Earning Estimates for YouTube Creators  AdSense Pay-Out per 1,000 Viewers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-elevate-your-online-presence-with-easy-video-sharing-on-fb/"><u>In 2024, Elevate Your Online Presence with Easy Video Sharing on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/propel-your-youtube-presence-with-google-analytics-skills-for-2024/"><u>Propel Your YouTube Presence with Google Analytics Skills for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-youtube-revenue-assessments-available-for-2024/"><u>Quick YouTube Revenue Assessments Available for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solving-the-flashing-windows-10-problems/"><u>Solving the Flashing Windows 10 Problems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-modern-marketers-guide-to-video-sharing-exploring-igtv-and-youtube-for-2024/"><u>The Modern Marketer's Guide to Video Sharing  Exploring IGTV & YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-5-video-and-photography-mobile-apps-for-iphoneandroid-users-for-2024/"><u>Top 5 Video & Photography Mobile Apps for iPhone/Android Users for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oppo-a1-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Oppo A1 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-youtube-partnership-aim-for-a-10k-views-target-for-2024/"><u>Unlock YouTube Partnership  Aim for a 10K Views Target for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/virtual-masterclass-for-aspiring-filmmakers-on-youtube-for-2024/"><u>Virtual Masterclass for Aspiring Filmmakers on YouTube for 2024</u></a></li>
+</ul></div>

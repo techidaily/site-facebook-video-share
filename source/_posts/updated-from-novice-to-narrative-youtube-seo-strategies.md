@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Novice to Narrative  YouTube SEO Strategies\""
-date: 2024-06-05T15:10:32.289Z
-updated: 2024-06-06T15:10:32.289Z
+date: 2024-08-01T09:22:31.596Z
+updated: 2024-08-02T09:22:31.596Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/dd1b377f0a177d81939c2e9879a9449aa15d2816c
 
 # The 12-step YouTube SEO Guide for Beginners Who Want More Views
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -38,6 +41,9 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -82,12 +88,18 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
 
 ####  
@@ -156,6 +168,9 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -220,6 +235,9 @@ Come on, keep going!
 
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
 #### Step 11: Add Transcripts
@@ -248,6 +266,9 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 Do you have any questions about SEO? Please leave us a comment below.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -264,3 +285,39 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-bridging-the-budget-barrier-channel-size-doesnt-matter/"><u>[New] 2024 Approved  Bridging the Budget Barrier  Channel Size Doesn't Matter</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-elite-racer-cutting-edge-gaming-selection/"><u>[New] 2024 Approved  Elite Racer  Cutting-Edge Gaming Selection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enjoy-every-frame-best-free-download-apps-for-mobile-devices/"><u>[New] 2024 Approved  Enjoy Every Frame  Best Free Download Apps for Mobile Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-cutting-edge-ways-to-tailor-your-igtv-content-size/"><u>[New] Cutting-Edge Ways to Tailor Your IGTV Content Size</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decode-and-resolve-youtube-short-errors-for-2024/"><u>[New] Decode and Resolve YouTube Short Errors for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-diverse-video-realms-sites-outshining-youtube-for-2024/"><u>[New] Diverse Video Realms  Sites Outshining Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-microphone-for-different-youtube-channel-types/"><u>[New] In 2024, Best Microphone for Different YouTube Channel Types</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-compiling-chords-and-crafting-a-unique-youtube-playlist/"><u>[New] In 2024, Compiling Chords and Crafting a Unique YouTube Playlist</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-online-presence-mastering-youtube-edits-in-premiere/"><u>[New] In 2024, Elevate Your Online Presence  Mastering YouTube Edits in Premiere</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-profound-analysis-of-morphvox-technology-and-its-role-in-audio-modification/"><u>[New] Profound Analysis of MorphVOX Technology and Its Role in Audio Modification</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thriving-despite-youtubes-rigorous-copyright-strike-system/"><u>[New] Thriving Despite YouTube's Rigorous Copyright Strike System</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-advanced-techniques-for-youtube-editing-via-finalcut-pro/"><u>[Updated] 2024 Approved  Advanced Techniques for YouTube Editing via FinalCut Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-capture-your-best-moments-top-8-mirrorless-cameras-for-you/"><u>[Updated] 2024 Approved  Capture Your Best Moments  Top 8 Mirrorless Cameras For You</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-comparative-study-youtube-app-on-smartphone-platforms/"><u>[Updated] 2024 Approved  Comparative Study  YouTube App on Smartphone Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-double-down-on-youtube-visibility-2-quick-methods/"><u>[Updated] 2024 Approved  Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-download-mastery-11-key-youtube-extractors/"><u>[Updated] 2024 Approved  Download Mastery  11 Key YouTube Extractors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-prime-virtual-lecture-title-craftsman/"><u>[Updated] 2024 Approved  Prime Virtual Lecture Title Craftsman</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-adding-value-instructional-design-of-youtube-alerts-and-annotations-for-2024/"><u>[Updated] Adding Value  Instructional Design of YouTube Alerts & Annotations for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-high-res-gopro-hero5-against-sj7-star/"><u>[Updated] High Res GoPro Hero5 Against SJ7 Star</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-debating-platform-preferences-igtv-versus-youtube-video-sharing/"><u>[Updated] In 2024, Debating Platform Preferences  IGTV Versus YouTube Video Sharing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-download-free-youtube-pics-and-templates/"><u>[Updated] In 2024, Download Free YouTube Pics & Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-layout-layers-elevating-your-youtube-videos/"><u>[Updated] Layout Layers  Elevating Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-shorts-a-step-by-step-creation-guide/"><u>[Updated] Mastering YouTube Shorts  A Step-by-Step Creation Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-your-youtube-shorts-thumbnail-process/"><u>[Updated] Streamline Your YouTube Shorts Thumbnail Process</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitter-vids-deep-dive-a-comprehensive-handbook/"><u>2024 Approved  Twitter Vids Deep Dive  A Comprehensive Handbook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/from-vocal-expressions-to-written-words-with-windows-whisper/"><u>From Vocal Expressions to Written Words with Windows Whisper</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-nigh-dark-nemesis-versus-sunlit-savior/"><u>In 2024, Nigh-Dark Nemesis Versus Sunlit Savior</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-viral-video-potential-analyzing-dslr-and-mirrorless-cameras/"><u>In 2024, Viral Video Potential  Analyzing DSLR and Mirrorless Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-earnings-explained-making-money-from-ads/"><u>In 2024, YouTube’s Earnings Explained  Making Money From Ads</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/perfecting-trailer-audio-a-step-by-step-approach-for-2024/"><u>Perfecting Trailer Audio  A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-instructions-producing-alluring-video-thumbnails-on-youtube-for-2024/"><u>Step-by-Step Instructions  Producing Alluring Video Thumbnails on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-backlink-journey-paving-a-path-to-youtube-success-for-2024/"><u>The Backlink Journey  Paving a Path to YouTube Success for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-uncomplicated-guide-to-shooting-breatomed-time-lapses-with-gopro-hero5-black/"><u>The Uncomplicated Guide to Shooting Breatomed Time-Lapses with GoPro Hero5 Black</u></a></li>
+</ul></div>

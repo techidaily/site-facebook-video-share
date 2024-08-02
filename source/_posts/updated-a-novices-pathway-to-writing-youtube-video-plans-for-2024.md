@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Novice's Pathway to Writing YouTube Video Plans for 2024"
-date: 2024-06-05T14:02:54.741Z
-updated: 2024-06-06T14:02:54.741Z
+date: 2024-08-01T07:29:20.168Z
+updated: 2024-08-02T07:29:20.168Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,16 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
@@ -59,6 +65,9 @@ The first step in writing a script is to develop an outline for the story. You m
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
@@ -85,6 +94,9 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -95,8 +107,14 @@ These are the tips to keep in mind when considering how to write a script for a 
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -113,3 +131,39 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-these-27-purely-free-youtube-audio-ripper-tools/"><u>[New] 2024 Approved  Discover These 27 Purely Free YouTube Audio Ripper Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-videos-impact-with-customizable-youtube-thumbnails/"><u>[New] 2024 Approved  Elevate Your Video's Impact with Customizable YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-creative-content-vimeo-vs-youtubes-approach/"><u>[New] 2024 Approved  Elevating Creative Content  Vimeo vs YouTube's Approach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-becoming-a-lyric-video-pro-a-lyric-video-makers-journey-for-2024/"><u>[New] Becoming a Lyric Video Pro  A Lyric Video Maker's Journey for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-prodigy-skyrocketing-with-content-innovation/"><u>[New] In 2024, Channel Prodigy  Skyrocketing with Content Innovation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-comic-capers-top-10-hilarious-youtube-short-film-ideas/"><u>[New] In 2024, Comic Capers  Top 10 Hilarious YouTube Short Film Ideas</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-mastering-fb-video-quick-subtitle-and-caption-creation-guide-for-2024/"><u>[New] Mastering FB Video  Quick Subtitle & Caption Creation Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-hit-rates-with-youtubes-best-thumbnail-strategies/"><u>[New] Maximizing Hit Rates with YouTube's Best Thumbnail Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-pathway-to-pro-youtube-earnings-on-every-device/"><u>[New] The Pathway to Pro Youtube Earnings on Every Device</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-10-ultimate-action-hunting-cameras-ranked/"><u>[Updated] 10 Ultimate Action Hunting Cameras Ranked</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-earnings-in-cosmetic-videography/"><u>[Updated] 2024 Approved  Boosting Earnings in Cosmetic Videography</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-educator-elite-selective-learning-yt-channels/"><u>[Updated] 2024 Approved  Educator Elite  Selective Learning YT Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-5-tips-to-get-more-views-with-youtube-optimization-free-checklist-for-2024/"><u>[Updated] 5 Tips to Get More Views with YouTube Optimization [Free Checklist] for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-decoding-youtubes-seo-mysteries-keyword-research-explained-for-2024/"><u>[Updated] Decoding YouTube's SEO Mysteries  Keyword Research Explained for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-music-unlocked-the-ultimate-library-for-videographers/"><u>[Updated] Free Music Unlocked  The Ultimate Library for Videographers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-vision-to-visual-impact-youtube-trailers-via-filmora/"><u>[Updated] From Vision to Visual Impact  YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-integrate-youtube-playlists-into-your-site/"><u>[Updated] In 2024, How to Integrate YouTube Playlists Into Your Site</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-hash-tactics-for-thriving-gaming-vids/"><u>[Updated] Mastering Hash Tactics for Thriving Gaming Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-must-have-filmmaking-tools-for-aspiring-youtubers/"><u>[Updated] Must-Have Filmmaking Tools for Aspiring YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfect-sources-for-dj-template-video-downloads/"><u>[Updated] Perfect Sources for DJ Template Video Downloads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-the-essential-guide-to-early-success-on-youtube-steer-clear-of-these-top-8-pitfalls/"><u>2024 Approved  The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls!</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-full-scale-of-precision-a-review-of-asus-pa32us-capabilities/"><u>2024 Approved  The Full Scale of Precision  A Review of Asus PA32U's Capabilities</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-secret-ingredient-to-learning-top-ideas-for-combining-tasks-with-talk-shows/"><u>2024 Approved  The Secret Ingredient to Learning  Top Ideas for Combining Tasks with Talk Shows</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-iphone-13-mini-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For iPhone 13 mini Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionizing-channel-management-through-tubebuddy-for-2024/"><u>Revolutionizing Channel Management Through TubeBuddy for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secure-your-brand-on-youtube-adding-logos-and-watermarks-for-2024/"><u>Secure Your Brand on YouTube  Adding Logos & Watermarks for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-honor-x50-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Honor X50? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-art-of-creating-youtube-video-thumbnails-for-2024/"><u>The Art of Creating YouTube Video Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tiny-videos-deciphered-crucial-elements-for-2024/"><u>Tiny Videos Deciphered  Crucial Elements for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/tips-to-repair-keyboard-issues-with-windows-snipper/"><u>Tips to Repair Keyboard Issues with Windows Snipper</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-realme-12-5g-by-drfone-android/"><u>Universal Unlock Pattern for Realme 12 5G</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveil-the-secrets-to-excellent-youtube-thumbnails-for-2024/"><u>Unveil the Secrets to Excellent YouTube Thumbnails for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Instantly Invert Your Playback Order with These Hacks"
-date: 2024-06-05T14:51:39.164Z
-updated: 2024-06-06T14:51:39.164Z
+date: 2024-08-01T08:50:52.631Z
+updated: 2024-08-02T08:50:52.631Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,9 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Using Chrome Web Extension
 
 One of the most straightforward and convenient methods of reversing the YouTube playlist is to install a Chrome browser extension that will let you play any playlist in the opposite order.
@@ -35,6 +38,9 @@ The ["Iridium for YouTube"](https://chrome.google.com/webstore/detail/iridium-fo
 Here's how to install the "Iridium for YouTube" extension on your Chrome browser to reverse the playlist:  
 Step 1: In the first step, launch a browser on your computer and click the three dots (ellipsis icon) in the top-right corner of the screen. Scroll down, select "More Tools," and click Extensions."
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
 
 Step 2:
@@ -43,6 +49,9 @@ Step 2:
 * Click the"Open Chrome Web Store"option.
 * Search for theIridium for YouTubeextension using the search bar.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![search irdium youtube extension](https://images.wondershare.com/filmora/article-images/searching-iridium-for-youtube-extension.png)
 
 Step 3:
@@ -55,6 +64,14 @@ Step 3:
 
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
 
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
@@ -87,8 +104,23 @@ Step 2: Hover over the video, and you will see two horizontal lines next to it. 
 
 You can also utilize the "Sort" option to reverse the playlist. To do so, click "Sort" at the top of the playlist above the videos and select "Date Published (Oldest)" to change the order.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
 As a YouTube content creator, you need to set your videos' order in your Playlist. Besides, the video's trailer also influences your audiences' browsing and watching experience. To help you with this part in case you are in need, we have prepared a video tutorial for you - How To Make Your Own YouTube Channel Trailer. If you have any interests, please don't miss it, and see how to make a fantastic video trailer with a user-friendly video editor [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/):
@@ -105,6 +137,9 @@ Step 2: In the next step, click your Profile at the top right of the screen and 
 
 Step 3: Scroll down on your channel's dashboard, select a video, and click the three dots next to it. Next, click "Add to Playlist" from the drop-down list and select the "Create a New Playlist" option to make a new one.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
 Next, provide a name, set the privacy settings to "Private," and click "Create."
@@ -133,3 +168,63 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-affordable-youtube-intro-designs-and-templates/"><u>[New] 2024 Approved  Affordable YouTube Intro Designs and Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-cash-flow-harnessing-youtube-ad-revenue-anywhere/"><u>[New] 2024 Approved  Channel Cash Flow  Harnessing YouTube Ad Revenue Anywhere</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-ethical-approaches-to-extract-mp4-from-youtube/"><u>[New] 2024 Approved  Ethical Approaches to Extract MP4 From YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-can-youtube-sub4sub-really-enhance-viewing-experience-in-2024/"><u>[New] Can YouTube Sub4Sub Really Enhance Viewing Experience, In 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-deciding-on-live-stream-software-streamlabs-vs-obs-comparison-for-2024/"><u>[New] Deciding on Live Stream Software  Streamlabs Vs. OBS Comparison for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-discovering-the-best-in-webcam-videography-tech-for-2024/"><u>[New] Discovering the Best in WebCam Videography Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-channel-identity-essential-youtube-naming-strategies/"><u>[New] In 2024, Elevate Your Channel Identity  Essential YouTube Naming Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-tips-for-youtube-edits-with-sony-vegas/"><u>[New] In 2024, Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-iosandroid-playback-silent-youtube-autoplay-tips/"><u>[New] IOS/Android Playback  Silent YouTube Autoplay Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-laugh-out-loud-crafting-humorous-video-ideas-for-short-films/"><u>[New] Laugh Out Loud  Crafting Humorous Video Ideas for Short Films</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-video-edits-post-upload-techniques/"><u>[New] Mastering Video Edits  Post-Upload Techniques</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-mac-hd-frame-gems-guide-char-limit-156-for-2024/"><u>[New] Top Mac HD Frame Gems Guide (Char Limit  156) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-building-your-own-youtube-organization-toolkit-the-watch-later-way/"><u>[Updated] 2024 Approved  Building Your Own YouTube Organization Toolkit  The Watch Later Way</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-check-your-youtube-channels-for-accurate-monetization-practices/"><u>[Updated] 2024 Approved  Check Your YouTube Channels for Accurate Monetization Practices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discovering-the-magic-behind-youtube-shorts/"><u>[Updated] 2024 Approved  Discovering the Magic Behind Youtube Shorts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-sow-seeds-of-smile-inducing-images/"><u>[Updated] 2024 Approved  Sow Seeds of Smile-Inducing Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-bite-sized-video-specialist-for-2024/"><u>[Updated] Bite-Sized Video Specialist for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-capturing-moments-perfecting-zooms-snap/"><u>[Updated] Capturing Moments  Perfecting Zoom's Snap</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-cutting-edge-capture-top-10-windows-11-cam-recorders-for-2024/"><u>[Updated] Cutting-Edge Capture  Top 10 Windows 11 Cam Recorders for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-inexpensive-vlogging-tools-listed-for-2024/"><u>[Updated] Essential, Inexpensive Vlogging Tools Listed for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-foremost-6-social-sites-for-corporate-relationships/"><u>[Updated] Foremost 6 Social Sites for Corporate Relationships</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[Updated] In 2024, Acquire No-Cost Sounds for Videos & Podcasts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-retrieving-your-private-snaps/"><u>[Updated] In 2024, Snapchat  Retrieving Your Private Snaps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-kitchen-chronicles-filming-every-bite/"><u>[Updated] Kitchen Chronicles  Filming Every Bite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfecting-yt-thumbnails-with-aspect-ratios/"><u>[Updated] Perfecting YT Thumbnails with Aspect Ratios</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-tips-ios-devices-and-youtube-video-submission/"><u>[Updated] Quick Tips  IOS Devices & YouTube Video Submission</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-taking-the-leap-secrets-for-free-fcp-acquisition/"><u>[Updated] Taking the Leap  Secrets for Free FCP Acquisition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-no-tripod-path-to-flawless-images/"><u>[Updated] The No-Tripod Path to Flawless Images</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-guide-the-leading-10-live-streaming-networks/"><u>[Updated] Ultimate Guide  The Leading 10 Live Streaming Networks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-secrets-of-striking-youtube-live-images/"><u>[Updated] Unveiling the Secrets of Striking YouTube Live Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-youtubes-earnings-blueprint/"><u>[Updated] Unveiling YouTube’s Earnings Blueprint</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-compreenasive-look-the-new-era-of-vr-cams-by-samsung/"><u>2024 Approved  Compreenasive Look  The New Era of VR Cams by Samsung</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elevating-discussions-speaking-to-subscribers-effectively/"><u>2024 Approved  Elevating Discussions  Speaking to Subscribers Effectively</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-aquatic-cinematography-with-these-7-essential-strategies/"><u>2024 Approved  Mastering Aquatic Cinematography with These 7 Essential Strategies</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-scrutinized-screen-recording-tools-top-8-picks/"><u>2024 Approved  Scrutinized Screen Recording Tools  Top 8 Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-visionedit-ace/"><u>2024 Approved  VisionEdit Ace</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-in-the-classroom-best-practices-and-tips-for-educators/"><u>2024 Approved  YouTube in the Classroom  Best Practices and Tips for Educators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/captivating-movement-a-guide-to-perfect-canon-timelapses-for-2024/"><u>Captivating Movement  A Guide to Perfect Canon Timelapses for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/capturing-gaming-moments-look-beyond-xboxs-game-bar-for-2024/"><u>Capturing Gaming Moments  Look Beyond Xbox's Game Bar for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/expertly-mastering-file-imports-in-the-realm-of-windows-10/"><u>Expertly Mastering File Imports in the Realm of Windows 10</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/exploring-the-full-features-sony-fdr-x1000-model/"><u>Exploring the Full Features  Sony FDR-X1000 Model</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Oppo A1x 5G? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-chart-topping-video-content-on-youtube/"><u>In 2024, Chart-Topping Video Content on YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-realme-10t-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Realme 10T 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolving-blank-page-output-from-hp/"><u>Resolving Blank Page Output From HP</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/skyrocketing-revenue-mastering-video-monetization-everywhere-for-2024/"><u>Skyrocketing Revenue  Mastering Video Monetization Everywhere for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/staying-within-the-limits-key-youtube-policies-for-2024/"><u>Staying Within the Limits  Key YouTube Policies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-beginners-blueprint-for-creating-a-sports-chain-on-mac-for-2024/"><u>The Beginner's Blueprint for Creating a Sports Chain on Mac for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-8-youtube-ranks-elevating-your-content-with-premier-applications-for-2024/"><u>Top 8 YouTube Ranks  Elevating Your Content with Premier Applications for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-pick-the-most-versatile-gif-software-for-2024/"><u>Top Pick  The Most Versatile GIF Software for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transform-flv-into-youtube-hits-with-these-top-alternatives-for-2024/"><u>Transform FLV Into YouTube Hits with These Top Alternatives for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/transforming-old-images-into-snaps-on-snapchat-for-2024/"><u>Transforming Old Images Into Snaps on Snapchat for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-vivo-v29-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-motorola-edgeplus-2023-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubing-green-magic-ideas-that-come-to-life-for-2024/"><u>Youtubing Green Magic – Ideas That Come to Life for 2024</u></a></li>
+</ul></div>

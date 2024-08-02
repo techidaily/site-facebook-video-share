@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Inspecting Dialogues in YouTube Vids"
-date: 2024-06-05T13:40:23.762Z
-updated: 2024-06-06T13:40:23.762Z
+date: 2024-08-01T06:51:07.322Z
+updated: 2024-08-02T06:51:07.322Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,9 @@ Are you trying to search for something on a document or a web page? You know how
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
 How does the built-in YouTube Studio Feature make searching comments on YouTube easier?
@@ -71,6 +74,9 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -99,12 +105,19 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -113,10 +126,16 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -154,3 +173,46 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-youtube-traffic-outsmarting-automated-viewers/"><u>[New] 2024 Approved  Boosting YouTube Traffic  Outsmarting Automated Viewers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-fixing-the-full-screen-freeze-in-obs/"><u>[New] 2024 Approved  Fixing the Full-Screen Freeze in OBS</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-chuckle-creation-making-memes-on-kapwing/"><u>[New] Chuckle Creation  Making Memes on Kapwing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-comparing-digital-platform-profits-dailymovement-to-youtube-revenue-for-2024/"><u>[New] Comparing Digital Platform Profits  DailyMovement to YouTube Revenue for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-a-strong-online-presence-with-attractive-video-thumbnails/"><u>[New] In 2024, Building a Strong Online Presence with Attractive Video Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-core-ethos-universal-youtube-guidelines/"><u>[New] In 2024, Core Ethos  Universal YouTube Guidelines</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-echoes-of-chuckles-parody-playlists/"><u>[New] In 2024, Echoes of Chuckles  Parody Playlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-legal-tactics-to-skyrocket-your-videos-visibility/"><u>[New] Legal Tactics to Skyrocket Your Video's Visibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximize-engagement-a-comprehensive-thumbnail-guidebook/"><u>[New] Maximize Engagement  A Comprehensive Thumbnail Guidebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetization-mastery-thriving-in-the-youtube-economy-no-ads-included/"><u>[New] Monetization Mastery  Thriving in the YouTube Economy, No Ads Included</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-counter-flow-strategy-reversing-your-youtube-video-sequence/"><u>[New] The Counter-Flow Strategy  Reversing Your YouTube Video Sequence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-financial-frontier-acquiring-high-value-youtubes/"><u>[New] The Financial Frontier  Acquiring High-Value Youtubes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-choice-for-capturing-quality-content-on-youtube/"><u>[New] Top Choice for Capturing Quality Content on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beautys-buzz-youtube-gurus-predicted/"><u>[Updated] 2024 Approved  Beauty's Buzz  YouTube Gurus Predicted</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-customize-video-speed-to-match-your-desired-watch-time/"><u>[Updated] 2024 Approved  Customize Video Speed to Match Your Desired Watch Time</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-efficient-time-markers-in-youtube-videos-desktopmobile-edition/"><u>[Updated] 2024 Approved  Efficient Time Markers in YouTube Videos (Desktop/Mobile Edition)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-harnessing-ambiance-with-thoughtful-lighting/"><u>[Updated] Harnessing Ambiance with Thoughtful Lighting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-money-with-a-beauty-channel/"><u>[Updated] How to Make Money with a Beauty Channel?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-trim-youtube-videos-in-2024/"><u>[Updated] How to Trim YouTube Videos, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dissolving-details-techniques-to-anonymize-youtube-media/"><u>[Updated] In 2024, Dissolving Details  Techniques to Anonymize YouTube Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-earnings-from-a-million-youtube-globals/"><u>[Updated] In 2024, Earnings From a Million YouTube Globals</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-youtube-video-submissions-for-maximum-reach/"><u>[Updated] Mastering the Art of YouTube Video Submissions for Maximum Reach</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-methods-to-access-previous-facebook-journeys-mobiledesktop/"><u>[Updated] Methods to Access Previous Facebook Journeys (Mobile/Desktop)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-precision-and-perfection-a-guide-to-youtube-studio-video-edits/"><u>[Updated] Precision and Perfection  A Guide to YouTube Studio Video Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-scrutinizing-the-economics-behind-short-video-earnings/"><u>[Updated] Scrutinizing the Economics Behind Short Video Earnings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-jokeglyph-customize-funny-visuals-easily/"><u>2024 Approved  Jokeglyph  Customize Funny Visuals Easily</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-channels-for-filmmakers-to-learn-filmmaking-tips/"><u>2024 Approved  YouTube Channels for Filmmakers to Learn Filmmaking Tips</u></a></li>
+<li><a href="https://extra-information.techidaily.com/building-an-iphone-photo-collage-tutorial-for-2024/"><u>Building an iPhone Photo Collage Tutorial for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-infinix-gt-10-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Infinix GT 10 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/innovative-ideas-for-fb-slideshow-creations/"><u>Innovative Ideas for FB Slideshow Creations</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-must-use-livestream-shopping-apps-for-seamless-online-system/"><u>New Must-Use Livestream Shopping Apps for Seamless Online System</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfect-playlist-placement-techniques-for-youtube-for-2024/"><u>Perfect Playlist Placement Techniques for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfecting-your-presentations-youtube-and-google-slides-for-2024/"><u>Perfecting Your Presentations  YouTube and Google Slides for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/punpixel-producer-for-2024/"><u>PunPixel Producer for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-on-mastering-the-art-of-illumination-for-youtube-videos-for-2024/"><u>Shine On  Mastering the Art of Illumination for YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streaming-stardom-unraveling-jake-pauls-youtube-rise-for-2024/"><u>Streaming Stardom  Unraveling Jake Paul's YouTube Rise for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-tecno-phantom-v-fold-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Tecno Phantom V Fold ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-youtuber-enigma-decoded-exciting-questionnaires-leading-to-your-ideal-creator-profile-for-2024/"><u>The YouTuber Enigma Decoded  Exciting Questionnaires Leading to Your Ideal Creator Profile for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-6-cheapest-action-cameras-to-buy-under-100/"><u>Top 6 Cheapest Action Cameras to Buy Under $100</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleash-artistry-a-curated-list-of-premium-3d-animation-software/"><u>Unleash Artistry  A Curated List of Premium 3D Animation Software</u></a></li>
+</ul></div>

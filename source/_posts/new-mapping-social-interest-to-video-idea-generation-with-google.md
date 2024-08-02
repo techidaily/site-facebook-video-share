@@ -1,7 +1,7 @@
 ---
 title: "[New] Mapping Social Interest to Video Idea Generation with Google"
-date: 2024-07-04T23:59:27.317Z
-updated: 2024-07-05T23:59:27.317Z
+date: 2024-08-01T07:46:35.839Z
+updated: 2024-08-02T07:46:35.839Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/d8ea0db08299b418f8415fcdb55459d60a299aaea
 
 # How to Use Google Trends to Come up with Video Ideas \[Easy Guide\]
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -34,8 +37,14 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Seeing The Big Picture
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
@@ -54,6 +63,9 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 
 On top you will see two drop-down menus, one is for the category and one is for location.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
 Under **All categories** select the general theme your channel falls under.
@@ -68,6 +80,9 @@ Once you have narrowed down your results you can just scroll through and pick ou
 
 For example, if you have a gaming channel and you’re looking for a non-gameplay topic to make a video on, you would look under Sci/Tech. If I look under that category today (May 29, 2017) and specify that I want topics trending in the United States then these are my top 5 results:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
@@ -88,6 +103,10 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
@@ -98,6 +117,10 @@ There, now I can see how the popularity of Filmora as a search term has spiked o
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
@@ -140,3 +163,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-compelling-youtube-narratives-with-chapters-and-subsections/"><u>[New] 2024 Approved  Crafting Compelling YouTube Narratives with Chapters and Subsections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-effortless-video-streams-youtube-loops-for-television-viewers/"><u>[New] 2024 Approved  Effortless Video Streams  YouTube Loops for Television Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-matters-ensuring-excellent-sound-in-your-youtube-shots-for-2024/"><u>[New] Audio Matters  Ensuring Excellent Sound in Your YouTube Shots for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-brand-explore-these-10-essential-youtube-creators-for-2024/"><u>[New] Elevate Your Brand  Explore These 10 Essential YouTube Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-viewers-to-patrons-a-vloggers-guide-to-income-for-2024/"><u>[New] Elevating Viewers to Patrons  A Vlogger's Guide to Income for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>[New] In 2024, A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-deciphering-highlighted-discussion-threads/"><u>[New] In 2024, Deciphering Highlighted Discussion Threads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-editprime-vision/"><u>[New] In 2024, EditPrime Vision</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-premier-8-screen-recorders-guidebook/"><u>[New] In 2024, Premier 8 Screen Recorders Guidebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-shooting-guide-to-immersive-video-top-9-techniques/"><u>[New] The Ultimate Shooting Guide to Immersive Video (Top 9 Techniques)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-video-editing-for-virality-a-comprehensive-guide-to-instagram-success-for-2024/"><u>[New] Video Editing for Virality  A Comprehensive Guide to Instagram Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comprehensive-guide-your-shorts-hidden-thumbnails-for-2024/"><u>[Updated] Comprehensive Guide  Your Shorts' Hidden Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elite-stabilization-solutions-for-video-creators-for-2024/"><u>[Updated] Elite Stabilization Solutions for Video Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-gaming-to-goals-celebrating-the-top-10-ladies-on-youtube/"><u>[Updated] From Gaming to Goals  Celebrating the Top 10 Ladies on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gain-ground-by-generating-earnings-on-your-youtube-channel-like-ajay/"><u>[Updated] Gain Ground by Generating Earnings on Your Youtube Channel Like Ajay</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-earn-online-via-youtube-how-reaching-500-subscribers-pays-off/"><u>[Updated] In 2024, Earn Online via YouTube  How Reaching 500 Subscribers Pays Off</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-infuse-laughter-into-content-use-kapwing/"><u>[Updated] Infuse Laughter Into Content - Use Kapwing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-outwit-youtube-visitors-tips-to-evade-automated-audiences/"><u>[Updated] Outwit YouTube Visitors  Tips to Evade Automated Audiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-redefinition-adjusting-youtube-on-mac-pixels/"><u>[Updated] Rapid Redefinition  Adjusting YouTube on Mac Pixels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-swipe-right-on-creativity-youtubes-top-techniques-for-greenscreens/"><u>[Updated] Swipe Right on Creativity  YouTube’s Top Techniques for Greenscreens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-partner-program-2024-how-to-join-and-monetize-your-channel/"><u>[Updated] YouTube Partner Program 2024  How to Join and Monetize Your Channel</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-inspection-immersing-in-virtual-reality-with-gear-360/"><u>2024 Approved  Full Inspection  Immersing in Virtual Reality with Gear 360</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-immersive-journeys-youtubes-best-storytelling-of-23/"><u>2024 Approved  Immersive Journeys  YouTube’s Best Storytelling of '23</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-prime-android-image-editing-software/"><u>2024 Approved  Prime Android Image Editing Software</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-techniques-to-quicken-vimeo-videos/"><u>2024 Approved  Techniques to Quicken Vimeo Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-thrifty-pc-frame-buffer-tools/"><u>2024 Approved  Thrifty PC Frame Buffer Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/eliminate-blackout-issues-with-game-capture-apps-for-2024/"><u>Eliminate Blackout Issues with Game Capture Apps for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/explore-top-ios-emulators-for-playing-psp-games-for-2024/"><u>Explore Top iOS Emulators for Playing PSP Games for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-tricks-for-transferring-twitter-video-to-your-phone/"><u>In 2024, Tricks for Transferring Twitter Video to Your Phone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-the-vr-charge-top-10-pc-headsets/"><u>Leading The VR Charge  Top 10 PC Headsets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pro-gif-makers-roundup-online-vs-desktop-platforms-for-2024/"><u>Pro-Gif Makers Roundup  Online vs Desktop Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-branding-edge-design-strategies-for-game-changing-banners-for-2024/"><u>The Branding Edge  Design Strategies for Game-Changing Banners for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-major-technological-gaffes-of-22/"><u>Unraveling the Major Technological Gaffes of '22</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unresolved-ax201-intel-wi-fi-not-operating/"><u>Unresolved: Ax201 Intel Wi-Fi Not Operating</u></a></li>
+</ul></div>

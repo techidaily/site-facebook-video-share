@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Design Best Practices for Engaging YouTube Thumbnails\""
-date: 2024-06-05T14:51:31.670Z
-updated: 2024-06-06T14:51:31.670Z
+date: 2024-08-01T08:50:40.771Z
+updated: 2024-08-02T08:50:40.771Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/487b81e16ea9432c9b3bc7ae56246949ca490ff5d
 
 # How To Make Good YouTube Banner - Dos and Don’ts
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,6 +42,9 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -69,8 +75,14 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Part 3: What Should I Write on My Banner?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 #### _Do: Include Your Channel Name_
@@ -91,6 +103,9 @@ Social media accounts are important to include in your channel art because we li
 
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 _Make sure everything important fits in the safe area!_
@@ -125,6 +140,9 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -147,3 +165,35 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boost-traffic-critical-youtube-seo-instruments-for-video-success/"><u>[New] 2024 Approved  Boost Traffic  Critical YouTube SEO Instruments for Video Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-viewers-prime-video-ideas-for-channels/"><u>[New] 2024 Approved  Elevating Viewers  Prime Video Ideas for Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-students-the-power-of-youtube-in-education/"><u>[New] 2024 Approved  Engaging Students  The Power of YouTube in Education</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-practices-for-producing-encouragement-driven-vlogs/"><u>[New] In 2024, Best Practices for Producing Encouragement-Driven Vlogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-content-youtube-video-editing-secrets-revealed/"><u>[New] In 2024, Elevate Your Content  YouTube Video Editing Secrets Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-youtubes-privacy-controls-for-video-accessibility/"><u>[New] Navigating YouTube's Privacy Controls for Video Accessibility</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-optimize-game-console-audio-settings-on-sony-platforms/"><u>[New] Optimize Game Console Audio Settings on Sony Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-the-top-5-youtube-link-reducers/"><u>[New] The Ultimate Guide to the Top 5 YouTube Link Reducers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-immersion-guide-to-lgs-360-vr-headset/"><u>[New] The Ultimate Immersion Guide to LG's 360 VR Headset</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-editing-tips-and-tricks-for-shorter-videos/"><u>[New] YouTube Editing  Tips and Tricks for Shorter Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-vision-navigating-video-degrees-with-ease/"><u>[New] YouTube Vision  Navigating Video Degrees with Ease</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-building-an-online-empire-ramp-up-video-views/"><u>[Updated] 2024 Approved  Building an Online Empire  Ramp Up Video Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-successful-videos-on-youtube-for-beginners/"><u>[Updated] 2024 Approved  Crafting Successful Videos on YouTube for Beginners</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-your-gaming-channel-on-youtube/"><u>[Updated] 2024 Approved  Crafting Your Gaming Channel on YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-streamline-your-conversations-with-twitter-video-uploads-on-whatsapp/"><u>[Updated] 2024 Approved  Streamline Your Conversations with Twitter Video Uploads on WhatsApp</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-combating-content-id-blocks-on-youtube-with-knowledge-for-2024/"><u>[Updated] Combating Content ID Blocks on YouTube with Knowledge for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-advice-on-lighting-your-youtube-content-perfectly/"><u>[Updated] Expert Advice on Lighting Your YouTube Content Perfectly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-disrupted-tunes-the-best-audio-rippers/"><u>[Updated] In 2024, Disrupted Tunes  The Best Audio Rippers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-seamlessly-retrieve-tags-list-of-7-premium-free-youtube-extractors/"><u>[Updated] Seamlessly Retrieve Tags  List of 7 Premium Free YouTube Extractors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-masterclass-crafting-engaging-openers-technique-1-and-2/"><u>[Updated] YouTube Masterclass  Crafting Engaging Openers (Technique 1 & 2)</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/beijing-bid-wins-2022-winter-olympics-highlights-for-2024/"><u>Beijing Bid Wins  2022 Winter Olympics Highlights for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/concealment-secrets-in-photoshop-master-class-for-2024/"><u>Concealment Secrets in Photoshop Master Class for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-gopro-professionals-a-filmmaking-guide/"><u>In 2024, Crafting GoPro Professionals  A Filmmaking Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-realme-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Realme Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-snippets-overview-explained/"><u>In 2024, YouTube Snippets Overview Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/spark-inspiration-free-soundtracks-to-enhance-projects-for-2024/"><u>Spark Inspiration - Free Soundtracks to Enhance Projects for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-8-most-effective-authentic-promotion-techniques-for-2024/"><u>The 8 Most Effective, Authentic Promotion Techniques for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-vivo-x-flip-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo X Flip Phone Password Without Factory Reset Full Guide Here</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Art of Video Integration  YouTube Meets Microsoft PowerPoint\""
-date: 2024-06-05T14:34:02.886Z
-updated: 2024-06-06T14:34:02.886Z
+date: 2024-08-01T08:22:01.184Z
+updated: 2024-08-02T08:22:01.184Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/qx60cS4CmTRezctL0-71-tWrmCg=/400x300/fi
 
 # How to Embed a YouTube Video in PowerPoint
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -46,6 +49,9 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 
 **Step 2: Add URL to PowerPoint**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
@@ -56,6 +62,9 @@ Launch PowerPoint if it is not already open, go to the slide you want to embed t
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
 Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, MS PowerPoint 2016 lets you choose how you want to insert a video. The step-by-step instructions given below explain how this can be done:
@@ -74,6 +83,10 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
 Microsoft Office 2016 has another lucrative feature that allows users to **embed YouTube video in PowerPoint** by searching its name. You can follow the steps given below to find the videos published on YouTube, and insert them to your presentation:
@@ -106,6 +119,18 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -121,6 +146,9 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
 #### 1\. Why Can’t I Embed a YouTube Video in PowerPoint 2010?
@@ -159,3 +187,40 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-100-safe-audio-download-techniques-from-youtube/"><u>[New] 2024 Approved  100%% Safe Audio Download Techniques From YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-asmr-app-selection-guide-for-phones/"><u>[New] 2024 Approved  ASMR App Selection Guide for Phones</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-premier-sky-depot-for-enterprise-files/"><u>[New] 2024 Approved  Premier Sky Depot for Enterprise Files</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-enhancements-in-windows-11-unveiled/"><u>[New] 2024 Approved  The Enhancements in Windows 11 Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-chuckle-campaign-7-ingenious-ideas-for-funny-youtube-videos-for-2024/"><u>[New] Chuckle Campaign  7 Ingenious Ideas for Funny YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-constructing-an-inviting-subscribe-link-for-youtube-enthusiasts-for-2024/"><u>[New] Constructing an Inviting Subscribe Link for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elite-alternative-edits-skip-youtube-not-just-content-for-2024/"><u>[New] Elite Alternative Edits  Skip Youtube, Not Just Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beginning-with-youtube-essential-steps-to-create-your-space/"><u>[New] In 2024, Beginning with YouTube  Essential Steps to Create Your Space</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-leveraging-facebook-for-automatic-video-views/"><u>[New] In 2024, Leveraging Facebook for Automatic Video Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-10-no-cost-video-cutting-apps/"><u>[New] Top 10 No-Cost Video Cutting Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-top-asmr-for-iphone-users/"><u>[New] Unveiling Top ASMR for iPhone Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-earnings-standards-new-rules-and-tips/"><u>[New] YouTube Earnings Standards  New Rules & Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-earning-edge-reached-for-subscribers-above-500-for-2024/"><u>[Updated] Earning Edge Reached for Subscribers Above 500 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-guffaw-generation-generating-7-hilarious-video-moments-online/"><u>[Updated] Guffaw Generation  Generating 7 Hilarious Video Moments Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-add-youtube-end-screen-and-cards-effectively/"><u>[Updated] How to Add YouTube End Screen and Cards Effectively</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-innovative-strategies-for-crafting-youtube-titles-and-tags/"><u>[Updated] In 2024, 5 Innovative Strategies for Crafting YouTube Titles & Tags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boost-your-channels-with-these-10-artisan-banner-creators/"><u>[Updated] In 2024, Boost Your Channels with These 10 Artisan Banner Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-innovators-crafting-marvels-digital-realm/"><u>[Updated] Innovators Crafting Marvel's Digital Realm</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-the-craft-essential-filmmaking-advice-from-youtube-pros/"><u>[Updated] Master the Craft  Essential Filmmaking Advice From YouTube Pros</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-optimizing-your-content-aspect-ratios-explained-for-youtube-users/"><u>[Updated] Optimizing Your Content  Aspect Ratios Explained for YouTube Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-step-by-step-process-to-embed-timestamps-on-youtube-links/"><u>[Updated] The Step-by-Step Process to Embed Timestamps on YouTube Links</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-navigating-instagram-copyright/"><u>2024 Approved  Navigating Instagram Copyright</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-navigating-the-apple-podcast-platform/"><u>2024 Approved  Navigating the Apple Podcast Platform</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-5-budget-action-camcorders-in-full-hd/"><u>2024 Approved  Top 5 Budget Action Camcorders in Full HD</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-gross-revenue-for-a-mil-viewer-spectacle/"><u>2024 Approved  Youtube's Gross Revenue for a Mil Viewer Spectacle</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-samsung-galaxy-s23-ultra-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Samsung Galaxy S23 Ultra Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-oppo-reno-11-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Oppo Reno 11 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-make-the-most-of-your-apple-iphone-15-pro-max-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>How to Make the Most of Your Apple iPhone 15 Pro Max Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/ipads-artistic-haven-top-8-sketch-innovators-for-2024/"><u>IPad's Artistic Haven  Top 8 Sketch Innovators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-in-stride-guide-sharing-personalized-youtube-videos-with-google-for-2024/"><u>Step-in-Stride Guide  Sharing Personalized YouTube Videos with Google for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-art-of-amplifying-popularity-on-youtube-for-2024/"><u>The Art of Amplifying Popularity on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-blueprint-for-viral-video-mastery-for-2024/"><u>The Blueprint for Viral Video Mastery for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-15-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue On Apple iPhone 15</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-monetization-a-deep-dive-for-2024/"><u>YouTube's Monetization  A Deep Dive for 2024</u></a></li>
+</ul></div>

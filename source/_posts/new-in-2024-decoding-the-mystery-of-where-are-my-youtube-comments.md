@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Decoding the Mystery of Where Are My YouTube Comments?"
-date: 2024-06-05T16:27:04.549Z
-updated: 2024-06-06T16:27:04.549Z
+date: 2024-08-01T11:33:33.062Z
+updated: 2024-08-02T11:33:33.062Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d
 
 # How to Find Your Comments on YouTube?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -51,12 +54,18 @@ Launch your favorite web browser, go to the YouTube page, click **SIGN IN** from
 
 Click the **Menu</strong > button from the top-left corner of the page, and then click History from the categories available in the navigation bar in the left.**
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube History Menu   ](https://images.wondershare.com/filmora/article-images/youtube-history-menu.jpg)
 
 **Step 3: Access/View Your Past Comments**
 
 Click **Comments** from the right of the **History** page to view all the comments that you have posted earlier.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube History Menu  Comments ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 ### 2\. Find Your YouTube Comments on an iPhone
@@ -101,6 +110,9 @@ Once you are signed in to your account, tap the **Menu** icon from the top-left 
 
 If you own a YouTube channel and have posted several videos there, it is likely that you also have received a decent number of comments. Usually, these remarks are pretty helpful as they tell you how to improve your production quality, and what your audience prefers to watch in the future. Therefore, it is imperative to learn how to find all the comments that your YouTube channel has received, and the process given below explains exactly that:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### 1\. Find Your Channel’s YouTube Comments on a Desktop or Laptop Computer
 
 You can use your favorite web browser on a PC to easily find all the comments that the videos on your YouTube channel have received as long as you are signed in to your Google account. The step-by-step instructions on how this can be done are given below:
@@ -115,16 +127,25 @@ Open your favorite Internet browser, go to <https://www.youtube.com>, and sign i
 
 Make sure that the **Uploads** tab is selected on the **Channel content** window, and check the number under the **Comments** column of each video to see how many comments that particular film has received. You can click the number for any video to view its comments.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![Find  YouTube Comments List ](https://images.wondershare.com/filmora/article-images/find-youtube-video-comments-list.jpg)
 
 **Step 3: Hide or Hold a Comment for Approval**
 
 Click the **More** icon from the right of the comment you want to moderate, and click **Hide user from channel** or **Always approve comments from this user** to hide the comments from the selected user or keep their comments on hold until you review and approve them respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Find  YouTube Comments List ](https://images.wondershare.com/filmora/article-images/set-up-specific-user-comment-moderation.jpg)
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
 This process is comparatively simpler than the previous one as all that you need to do is download the YT Studio app, and access a central location where all the comments for all the videos can be viewed. The process is given below:
@@ -145,6 +166,9 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -159,12 +183,18 @@ Launch Google Chrome on your desktop or laptop computer, search for **YCS – Yo
 
 Go to your or any other’s YouTube video, and click **Load All** from the top-right corner of the YouTube Comment Search panel that is present under the description box to allow YCS to scan all the comments the video has received.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/load-all-comments-with-youtube-comment-search-extension.jpg)
 
 **Step 3: Search Comments from a Particular User**
 
 Choose **Comments** from the search type drop-down list, enter the name of the user in question in the **Search** box, and click **Search** to fetch all their comments on the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Serach  YouTube Comments of specific users ](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 4: How to Edit and Reply to YouTube Comments?
@@ -197,6 +227,9 @@ Go to the **Community** category from the left pane, and go to the **Defaults** 
 
 ![set  YouTube Community Comments moderation ](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -207,6 +240,9 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 **Q1) Why can’t I see the comments I posted?**
@@ -235,3 +271,62 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dial-back-unrequested-youtube-recommendations/"><u>[New] 2024 Approved  Dial Back Unrequested YouTube Recommendations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-leading-video-ranking-tools-for-youtube-success/"><u>[New] 2024 Approved  Discover Leading Video Ranking Tools for YouTube Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-tech-for-new-channel-launches/"><u>[New] 2024 Approved  Essential Tech for New Channel Launches</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-fast-forwards-and-flashbacks-in-creative-tiktoks/"><u>[New] 2024 Approved  Fast Forwards and Flashbacks in Creative TikToks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-from-play-to-pro-setting-up-a-ps4-game-broadcast-hub/"><u>[New] 2024 Approved  From Play to Pro  Setting up a PS4 Game Broadcast Hub</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-transforming-images-the-art-of-applying-luts-in-pro/"><u>[New] 2024 Approved  Transforming Images  The Art of Applying LUTs in Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-accelerate-engagement-implementing-the-top-12-video-growth-strategies-for-2024/"><u>[New] Accelerate Engagement - Implementing the Top 12 Video Growth Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-accessing-your-curated-music-lists-on-youtube-for-2024/"><u>[New] Accessing Your Curated Music Lists on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-behind-closed-doors-of-youtube-a-discovery-manual-for-2024/"><u>[New] Behind Closed Doors of YouTube  A Discovery Manual for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-channel-milestone-hurdle-cross-the-10k-view-threshold-fast-for-2024/"><u>[New] Channel Milestone Hurdle – Cross the 10K View Threshold Fast for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-clear-and-steady-essential-youtube-camera-tech-for-2024/"><u>[New] Clear and Steady  Essential YouTube Camera Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-deciphering-the-world-of-youtube-media-conglomerates-for-2024/"><u>[New] Deciphering the World of YouTube Media Conglomerates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-efficient-ad-elimination-select-7-android-adblockers-for-2024/"><u>[New] Efficient Ad Elimination  Select 7 Android AdBlockers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-inclusion-youtube-media-on-slides-for-2024/"><u>[New] Effortless Inclusion  YouTube Media on Slides for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-channel-studio-upgrade-vs-beta-shift-for-2024/"><u>[New] Elevate Your Channel  Studio Upgrade Vs. Beta Shift for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[New] In 2024, Acquire No-Cost Sounds for Videos & Podcasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[New] In 2024, Crafting GIFs Like a Pro  Industry Leaders' Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-engagement-through-creator-studio-insights/"><u>[New] Maximizing Engagement Through Creator Studio Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetizing-success-a-strategic-approach/"><u>[New] Monetizing Success  A Strategic Approach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-famebit-pathways-to-secure-youtube-partnerships/"><u>[New] Navigating FameBit Pathways to Secure YouTube Partnerships</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-the-complexity-of-youtube-thumbnail-psychology/"><u>[New] Navigating the Complexity of YouTube Thumbnail Psychology</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-swift-video-transformation-with-top-8-apps/"><u>[New] Swift Video Transformation with Top 8 Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-10-funny-youtube-shorts-video-ideas/"><u>[New] Top 10 Funny YouTube Shorts Video Ideas</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-top-virtual-recording-tools-online-for-2024/"><u>[New] Top Virtual Recording Tools Online for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ace-the-game-crafting-a-pro-gaming-channels-success-story/"><u>[Updated] 2024 Approved  Ace the Game  Crafting a Pro Gaming Channels Success Story</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ace-your-viewing-experience-onboarding-av1-in-youtube/"><u>[Updated] 2024 Approved  Ace Your Viewing Experience  Onboarding AV1 in YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-amplify-your-imovie-with-youtube-audio-streams/"><u>[Updated] 2024 Approved  Amplify Your iMovie with YouTube Audio Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>[Updated] 2024 Approved  Best 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-digital-dynamos-8-youtube-channels-surging-forward/"><u>[Updated] 2024 Approved  Digital Dynamos 8  YouTube Channels Surging Forward</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-macs-optimal-clipping-options-reviewed/"><u>[Updated] 2024 Approved  Mac's Optimal Clipping Options Reviewed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-ultimate-guide-to-peak-performance-on-instagram/"><u>[Updated] 2024 Approved  The Ultimate Guide to Peak Performance on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-step-by-step-journey-through-high-impact-youtube-banner-designs-for-2024/"><u>[Updated] A Step-by-Step Journey Through High-Impact YouTube Banner Designs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beginners-ultimate-list-of-must-have-video-tech-for-2024/"><u>[Updated] Beginner's Ultimate List of Must-Have Video Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-a-youtube-future-scaling-up-or-staying-independent-for-2024/"><u>[Updated] Crafting a YouTube Future  Scaling Up or Staying Independent for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-delving-into-trending-video-exchange-for-2024/"><u>[Updated] Delving Into Trending Video Exchange for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-brand-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork/"><u>[Updated] In 2024, Brand Makeover Made Easy  Revel in Our Array of over 50 Free Online Promotional Artwork</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-deciphering-the-language-of-youtube-thumbnails-effectiveness/"><u>[Updated] In 2024, Deciphering the Language of YouTube Thumbnails Effectiveness</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-emotionally-enhanced-youtube-commentary/"><u>[Updated] In 2024, Emotionally-Enhanced YouTube Commentary</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-hitting-the-high-notes-of-youtube-editing-audio-addition-secrets-revealed/"><u>[Updated] In 2024, Hitting the High Notes of YouTube Editing  Audio Addition Secrets Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stunning-video-capture-best-youtube-cameras-reviewed/"><u>[Updated] Stunning Video Capture  Best YouTube Cameras Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-creators-guide-turn-viewers-into-paychecks/"><u>[Updated] The Creator’s Guide  Turn Viewers Into Paychecks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-hd-lenses-for-youtube-creators/"><u>[Updated] Top HD Lenses for YouTube Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unravel-the-secrets-to-sequential-video-viewing-no-charges/"><u>[Updated] Unravel the Secrets to Sequential Video Viewing (No Charges)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-pro-user-guide-to-mastering-the-latest-windows-10/"><u>2024 Approved  Pro User Guide to Mastering the Latest WINDOWS 10</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-t2-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/best-narrator-voice-generators/"><u>Best Narrator Voice Generators</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/correcting-scan-failures-with-xerox/"><u>Correcting Scan Failures with Xerox</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-oppo-f23-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Oppo F23 5G? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-motorola-moto-g24-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-iphone-15-pro-max-by-drfone-ios/"><u>How to Fix Locked Apple ID from iPhone 15 Pro Max</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-nokia-130-music-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Nokia 130 Music Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/no-budget-no-problem-heres-your-list-of-free-intra-experts-for-2024/"><u>No Budget? No Problem! Here's Your List of Free Intra Experts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unearthing-unique-content-for-youtubes-spotlight-for-2024/"><u>Unearthing Unique Content for Youtube's Spotlight for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtube-simplified-methods-for-cc-and-subtitle-integration-for-2024/"><u>Unlocking YouTube  Simplified Methods for CC and Subtitle Integration for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/video-perfection-a-comprehensive-strategy-for-seamless-subtitle-and-cc-integration-on-youtube-for-2024/"><u>Video Perfection  A Comprehensive Strategy for Seamless Subtitle & CC Integration on YouTube for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick-Fix Closed Captioning & Subtitling for YouTube Amateurs\""
-date: 2024-06-05T14:38:40.249Z
-updated: 2024-06-06T14:38:40.249Z
+date: 2024-08-01T08:29:41.966Z
+updated: 2024-08-02T08:29:41.966Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/8f7f92c4fc16a81d47d86f2a37a2e3afe657d72ab
 
 # How to Easily Add Subtitles and Closed Captions to YouTube Video
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -34,6 +37,9 @@ thumbnail: https://thmb.techidaily.com/8f7f92c4fc16a81d47d86f2a37a2e3afe657d72ab
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Why subtitle and closed captions are important for YouTube videos?
 
 * Forced closed captions and subtitles actually help the viewers to understand the content in your video if the audio quality of your video is bad, muffled or barely audible. Reading makes it easier for them to understand.
@@ -43,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/8f7f92c4fc16a81d47d86f2a37a2e3afe657d72ab
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -53,6 +63,9 @@ thumbnail: https://thmb.techidaily.com/8f7f92c4fc16a81d47d86f2a37a2e3afe657d72ab
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Uploading Caption or Transcript Files automatically
 
  To upload Caption or Transcript Files to YouTube Videos you first need to create a format on a text editor. For windows use Notepad and for Mac you may use TextEdit. Create a format of putting the number of subtitle first, time stamp and then text of the subtitle. For example
@@ -71,6 +84,18 @@ thumbnail: https://thmb.techidaily.com/8f7f92c4fc16a81d47d86f2a37a2e3afe657d72ab
 
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3 Best Tools for add/managing video Subtitles/CC
 
 #### 1\.  Amara
@@ -85,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/8f7f92c4fc16a81d47d86f2a37a2e3afe657d72ab
 
  Subtitles for YouTube is a Google Chrome extension which provides subtitles for YouTube videos. For this you will have to provide a subtitle file with .srt extension. The attractive feature of this is that you won't have to download the video and still run the subtitles on it. This is very much helpful for people who work on YouTube or watch movies without subtitles.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -101,3 +130,46 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-deep-dive-the-economy-and-impact-of-online-stars/"><u>[New] 2024 Approved  Deep Dive  The Economy and Impact of Online Stars</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-your-yt-content-with-the-top-thumbnail-hacks/"><u>[New] 2024 Approved  Elevating Your YT Content with the Top Thumbnail Hacks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-10-user-friendly-free-tools-to-create-professional-video-thumbnails/"><u>[New] In 2024, 10 User-Friendly Free Tools to Create Professional Video Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-budget-friendly-webinar-strategies-for-youtube/"><u>[New] In 2024, Budget-Friendly Webinar Strategies for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cultivating-a-unique-vibe-in-your-own-mukbang-content/"><u>[New] In 2024, Cultivating a Unique Vibe in Your Own Mukbang Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-the-best-12-cameras-to-elevate-your-vlogs/"><u>[New] In 2024, Discover the Best 12 Cameras to Elevate Your Vlogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-music-extraction-choose-the-right-apps-for-youtube-and-mp3/"><u>[New] In 2024, Effortless Music Extraction  Choose the Right Apps for YouTube & MP3</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-innovation-and-performance-metrics-for-top-screen-recorders-featuring-apeaksoft/"><u>[New] In 2024, Innovation and Performance Metrics for Top Screen Recorders, Featuring Apeaksoft</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-recording-hulu-episodes-on-multiple-devices/"><u>[New] In 2024, The Ultimate Guide to Recording Hulu Episodes on Multiple Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-recmaster-screen-recorder-review/"><u>[New] Recmaster Screen Recorder Review</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-basic-tactics-to-archive-webcam-chats/"><u>[Updated] 2024 Approved  Basic Tactics to Archive Webcam Chats</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-powerful-thumbnails-with-top-20-font-options/"><u>[Updated] 2024 Approved  Crafting Powerful Thumbnails with Top 20 Font Options</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-evaluating-and-improving-your-facebook-in-stream-ad-campaigns/"><u>[Updated] 2024 Approved  Evaluating & Improving Your Facebook In-Stream Ad Campaigns</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-breaking-down-tseries-income-strategy-on-youtube-platform-for-2024/"><u>[Updated] Breaking Down TSeries' Income Strategy on YouTube Platform for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engage-viewers-with-an-effortless-youtube-animated-subscribe-button-using-filmora-for-2024/"><u>[Updated] Engage Viewers with an Effortless YouTube Animated Subscribe Button Using Filmora for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-raw-feedback-a-critical-review-of-top-video-editors-for-youtube/"><u>[Updated] From Raw Feedback  A Critical Review of Top Video Editors for YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fusing-data-and-design-for-dynamic-fb-video-campaigns/"><u>[Updated] Fusing Data & Design for Dynamic FB Video Campaigns</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-9-buzzworthy-workout-videos-that-stay-on-top-of-trends/"><u>[Updated] In 2024, 9 Buzzworthy Workout Videos That Stay on Top of Trends</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cracking-the-code-to-youtube-income-through-views/"><u>[Updated] In 2024, Cracking the Code to YouTube Income Through Views</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-no-wi-fi-no-worries-discover-the-best-offline-gaming-on-android/"><u>[Updated] In 2024, No Wi-Fi, No Worries! Discover the Best Offline Gaming on Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-youtube-shorts-description-everything-you-need-to-know/"><u>[Updated] In 2024, YouTube Shorts Description  Everything You Need to Know</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simplified-path-to-mastery-in-using-cc-licenses/"><u>[Updated] Simplified Path to Mastery in Using CC Licenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-start-saving-smiles-on-youtube-a-beginners-mac-tutorial/"><u>[Updated] Start Saving Smiles on YouTube  A Beginner's Mac Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stepwise-instructions-for-enhancing-youtube-clips-in-wmm/"><u>[Updated] Stepwise Instructions for Enhancing YouTube Clips in WMM</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-power-of-pacing-keeping-your-audience-glued-to-the-screen/"><u>[Updated] The Power of Pacing  Keeping Your Audience Glued to the Screen</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>[Updated] Your Daily Diary  Staying Fresh & Avoiding Common Mistakes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-to-navigate-top-10-youtube-downloader-tools/"><u>2024 Approved  Easy-to-Navigate Top 10 YouTube Downloader Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-how-to-share-facebook-videos-to-whatsapp/"><u>2024 Approved  How to Share Facebook Videos to WhatsApp?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-the-discoresponders-handbook-react-and-converse/"><u>2024 Approved  The DiscoResponder's Handbook  React and Converse</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beam-breakthroughs-lighting-know-how-for-video-success/"><u>Beam Breakthroughs  Lighting Know-How for Video Success</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-motorola-moto-g24-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Motorola Moto G24 without App | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-poco-c65-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Poco C65 Device SIM</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-experts-guide-to-finding-cheap-sbd-solutions/"><u>In 2024, Expert's Guide to Finding Cheap SBD Solutions</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-dual-approaches-to-audio-fades-in-final-cut-pro-a-step-by-step-guide/"><u>New In 2024, Dual Approaches to Audio Fades in Final Cut Pro A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-picks-microphones-for-diverse-online-audiences-for-2024/"><u>Perfect Picks  Microphones for Diverse Online Audiences for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/retrace-footsteps-android-film-inversion-for-2024/"><u>Retrace Footsteps  Android Film Inversion for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-samsung-galaxy-m14-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamline-your-slides-with-youtube-videos-a-beginners-guide-for-2024/"><u>Streamline Your Slides with YouTube Videos - A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transform-your-audience-engagement-with-ultimate-youtube-banner-guide-for-2024/"><u>Transform Your Audience Engagement with Ultimate YouTube Banner Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-lava-storm-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Lava Storm 5G Has Black Screen of Death? | Dr.fone</u></a></li>
+</ul></div>

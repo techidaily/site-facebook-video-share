@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Breaking the Mold  Unique Post-VidCon Events\""
-date: 2024-06-05T16:00:03.622Z
-updated: 2024-06-06T16:00:03.622Z
+date: 2024-08-01T10:47:29.918Z
+updated: 2024-08-02T10:47:29.918Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/YkH2TPUz_UegJxp6uXTF-0IHlaM=/210x138/fi
 
 # Beyond VidCon - A Guide to the Most Important YouTube Events
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +39,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -78,6 +85,9 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -112,6 +122,9 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -186,6 +199,14 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **London, UK:** August
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
@@ -210,6 +231,9 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -226,3 +250,48 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-record-screen-and-upload-to-youtube-tools-pc-mac-online/"><u>[New] 2024 Approved  10 Record Screen and Upload to YouTube Tools [PC, Mac, Online]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creative-components-free-youtube-visual-resources/"><u>[New] 2024 Approved  Creative Components  FREE YouTube Visual Resources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ban-unwanted-youtube-recommended-titles-for-2024/"><u>[New] Ban Unwanted YouTube Recommended Titles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-capturing-the-best-visuals-in-vlogs-for-2024/"><u>[New] Capturing the Best Visuals in Vlogs for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-conclusion-for-2024/"><u>[New] Conclusion for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms-for-2024/"><u>[New] Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-boosting-viewer-interest-with-optimal-video-thumbnail-sizes/"><u>[New] In 2024, Boosting Viewer Interest with Optimal Video Thumbnail Sizes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bridging-youtube-and-imovie-with-seamless-audio-transfer/"><u>[New] In 2024, Bridging YouTube and iMovie with Seamless Audio Transfer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-comparing-dailymovements-and-youtubes-income-models/"><u>[New] In 2024, Comparing DailyMovement's and Youtube's Income Models</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-a-signature-look-starting-with-self-reflection/"><u>[New] In 2024, Crafting a Signature Look  Starting with Self-Reflection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher/"><u>[New] In 2024, Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-investigating-youtube-dialogues/"><u>[New] Investigating YouTube Dialogues</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maintaining-mystery-techniques-for-smoothing-out-visuals/"><u>[New] Maintaining Mystery  Techniques for Smoothing Out Visuals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-best-of-the-best-12-youtube-video-game-openers-freepaid/"><u>[New] The Best of the Best  12 YouTube Video Game Openers (FREE/PAID)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-power-of-politeness-in-growing-your-audience/"><u>[New] The Power of Politeness in Growing Your Audience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-youtubes-full-potential-top-6-tactics-for-improved-viewership-retention/"><u>[New] Unlock YouTube's Full Potential  Top 6 Tactics for Improved Viewership Retention</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-iconic-counter-based-awards-system/"><u>[New] YouTube's Iconic Counter-Based Awards System</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10-youtube-video-ideas-for-sharing-your-personal-story/"><u>[Updated] 10 YouTube Video Ideas for Sharing Your Personal Story</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-blueprint-strategies-for-authentic-life-enrichment-videos/"><u>[Updated] 2024 Approved  Blueprint  Strategies for Authentic Life Enrichment Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-connect-and-share-youtube-in-instagrams-ecosystem/"><u>[Updated] 2024 Approved  Connect & Share  YouTube in Instagram's Ecosystem</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-simple-approach-to-youtube-statistics-review-for-2024/"><u>[Updated] A Simple Approach to YouTube Statistics Review for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-breathing-new-life-into-anime-with-impactful-tiktoks/"><u>[Updated] Breathing New Life Into Anime with Impactful TikToks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-directing-content-flow-uploading-imovie-films-to-youtube-for-2024/"><u>[Updated] Directing Content Flow  Uploading IMovie Films to YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-accelerated-learning-for-chromakey-artistry/"><u>[Updated] In 2024, Accelerated Learning for Chromakey Artistry</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-live-youtube-streaming-unlocked-beginners-obs-tutorial/"><u>[Updated] Live Youtube Streaming Unlocked  Beginner's OBS Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocket-your-channels-the-path-to-higher-youtube-views/"><u>[Updated] Skyrocket Your Channels  The Path to Higher YouTube Views</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unparalleled-selection-of-8-android-multiparty-tools-for-2024/"><u>[Updated] Unparalleled Selection of 8 Android Multiparty Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-visuals-perfecting-banners-and-thumbnails/"><u>[Updated] YouTube Visuals  Perfecting Banners and Thumbnails</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-discover-10-exceptional-commodity-lut-files/"><u>2024 Approved  Discover 10 Exceptional Commodity LUT Files</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revealing-the-rich-detail-of-your-roblox-journey/"><u>2024 Approved  Revealing the Rich Detail of Your Roblox Journey</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-vloggers-solution-excellent-camera-stabilization/"><u>2024 Approved  Vloggers' Solution  Excellent Camera Stabilization</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-tecno-phantom-v-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-recover-and-reset-itunes-when-its-not-working/"><u>How to Recover and Reset iTunes When It's Not Working</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-open-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Open Contacts  An Easy Method Explained.</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-crafting-the-ideal-set-of-keywords-for-your-youtube-videos/"><u>In 2024, Crafting the Ideal Set of Keywords for Your Youtube Videos</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-honor-x50-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Honor X50 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premier-windows-podcast-platforms-top-8-recommendations/"><u>In 2024, Premier Windows Podcast Platforms  Top 8 Recommendations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-streamline-and-optimize-google-for-podcasters/"><u>In 2024, Streamline & Optimize  Google for Podcasters</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-to-regain-lost-connection-on-pcs-running-windows/"><u>Strategies to Regain Lost Connection on PCs Running Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-producers-playbook-strategies-to-win-over-youtube-viewers-for-2024/"><u>The Producer's Playbook  Strategies to Win Over YouTube Viewers for 2024</u></a></li>
+</ul></div>

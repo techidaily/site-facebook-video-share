@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Share A YouTube Playlist"
-date: 2024-06-05T15:12:27.809Z
-updated: 2024-06-06T15:12:27.809Z
+date: 2024-08-01T09:25:52.467Z
+updated: 2024-08-02T09:25:52.467Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,9 @@ Once the privacy setting has been changed, the **"share"** function will work as
 
 ![making youtube playlist public](https://images.wondershare.com/filmora/article-images/2023/03/making-youtube-playlist-public.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How To Share The YouTube Playlist?
 
 If you want to share the playlist on YouTube using your computer or mobile device, read the instructions below carefully:
@@ -62,6 +65,9 @@ Step1 Visit the **YouTube website** using a browser on your computer and sign in
 
 Step2 Next, go to the **"Playlist"** tab and click the **"View Full Playlist"** option under your playlist to access it.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![sharing own youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/sharing-own-youtube-playlist.png)
 
 Step3 Finally, click the **"Share"** icon in the playlist's details section, and a window will pop up. From here, you can either click **"Copy"** to save the link to your clipboard or share the playlist directly to WhatsApp, Twitter, Facebook, Email, KakaoTalk, Reddit, and more platforms.
@@ -74,6 +80,9 @@ Step1 In the first step, launch your preferred browser, visit the **YouTube** we
 
 Step2 On the left side of the website's main interface, click the **"Library"** option and scroll down to the **Playlists** section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![sharing others youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/sharing-others-youtube-playlist.png)
 
 Step3 Under the **"Playlists"** section, click on the playlist you want to share. Now, click the **"Share"** icon in the playlist's details section, and a pop-up window will appear. In the **"Share"** section, copy the URL and paste it into an email, message, or social media post to share.
@@ -88,6 +97,9 @@ Fortunately, there's a simple and quick way to do this, and here are the step-by
 
 Step1 In the first step, head to the **YouTube** website using a browser and use the search bar to access the playlist.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![sharing youtube playlist while watching](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-while-watching.png)
 
 Step2 Click the playlist to start watching it. Next, click the **playlist title** in the grey box on the right-hand side.
@@ -120,6 +132,9 @@ Toggle on the **"Allow new collaborators"** option, click **"Copy"** to save the
 
 That's about it! You can now share the playlist link with your friends, who can now add videos to it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. For iOS and Android
 
 If you want to quickly share a YouTube playlist using your iOS or Android device, follow these instructions step-by-step:
@@ -134,10 +149,16 @@ Step2 On the app's main interface/Home screen, tap the **"Library"** option at t
 
 Step3 Now, scroll down to the **"Playlists"** section and open the playlist you wish to share with your friends.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![sharing youtube playlist from mobile](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-from-mobile.png)
 
 Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: Do You Want To Create Your Own YouTube Videos?
 
 We hope you have found the solution to share your YouTube Playlist. Supposing you are a common YouTube user and like to share the fantastic things you found on this platform, are you interested in making a YouTube video by yourself? If yes, please watch the video below to start editing your own videos with a user-friendly video editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). With it, you can create your video with ease:
@@ -160,6 +181,9 @@ Step3 Now, scroll down to the **"Playlists"** section and open the playlist you 
 
 Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: Do You Want To Create Your Own YouTube Videos?
 
 We hope you have found the solution to share your YouTube Playlist. Supposing you are a common YouTube user and like to share the fantastic things you found on this platform, are you interested in making a YouTube video by yourself? If yes, please watch the video below to start editing your own videos with a user-friendly video editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). With it, you can create your video with ease:
@@ -168,6 +192,9 @@ We hope you have found the solution to share your YouTube Playlist. Supposing yo
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this comprehensive guide, we've explored why the share function in the playlist is not working and **how to share a YouTube playlist** using your computer and mobile device.
@@ -214,6 +241,9 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -268,8 +298,23 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Video Lighting Basics: Three Point Lighting
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -310,6 +355,100 @@ This is by far the best option if you want to be in complete control of the ligh
 
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
+
+If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
+
+If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
+
+If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+One of the best things you can do for your video quality is to ensure you have great lighting. Viewers find poor lighting distracting and it's hard for them to see how great your content is if they are busy thinking about why your video is so dark. By creating a great lighting set up you can ensure that the people watching your videos are only thinking about how much they're enjoying them.
+
+Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Video Lighting Basics: Three Point Lighting
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
+![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
+
+The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
+
+This first light will create a dramatic shadow across half of your face. You want to reduce this shadow, but not get rid of it completely.
+
+Rather than setting up another light source on the opposite side of the camera, put up a reflector to bounce some light back onto your face. This reflector is called your **'Fill Light'**.
+
+The **fill light** is less bright than the primary source of light and it is placed on the side opposite to the key light. Its purpose is to reduce shadows produced by the key light and the reflector will need to be mounted on a stand.
+
+The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
+### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Lightning Tips for Aspiring YouTube Videographers
+
+Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
+
+#### 1\.  Focus Your Key Light
+
+Try to focus your Key Light so that it lights only you and not your background. Do this by mounting anything that can cast a shadow onto your Key Light to control the area where the light hits. If you are using a window for your Key Light then you can use a curtain. If you use a softbox light then your light will already be somewhat focused.
+
+#### 2\. Use Natural Lighting
+
+The light provided by the Sun is still the best light source, you can have in your video. The trouble is that natural light changes quickly, which makes it highly unpredictable. The best way to deal with this challenge is to come prepared to the set and to get the shot you want as quickly as you can.
+
+#### 3\.  Try DIY Lightning
+
+Literally, anything from candles to LED light bulbs can serve as a source of light in a shot. You just need to pay attention to the light temperature, because warmer light sources may highlight reds and yellows that can make your footage look less realistic.
+
+#### 4\. Use Lightning Kits
+
+This is by far the best option if you want to be in complete control of the light on your set. You can adjust the intensity of the lights, use filters, diffusers and all sorts of other accessories to create the light that flatters the subjects of your videos. The only downside is that you'll have to spend a considerable amount of money if you want to have a professional lighting kit.
+
+#### 5\.  Set up reflectors
+
+Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -322,6 +461,9 @@ If you are using all of the lighting options available to you and your video sti
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -354,6 +496,9 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -386,76 +531,9 @@ If your strong main light is too hard on your eyes then you can use a translucen
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
-![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
-
-If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
-
-If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-One of the best things you can do for your video quality is to ensure you have great lighting. Viewers find poor lighting distracting and it's hard for them to see how great your content is if they are busy thinking about why your video is so dark. By creating a great lighting set up you can ensure that the people watching your videos are only thinking about how much they're enjoying them.
-
-Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
-
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
-
-The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
-
-This first light will create a dramatic shadow across half of your face. You want to reduce this shadow, but not get rid of it completely.
-
-Rather than setting up another light source on the opposite side of the camera, put up a reflector to bounce some light back onto your face. This reflector is called your **'Fill Light'**.
-
-The **fill light** is less bright than the primary source of light and it is placed on the side opposite to the key light. Its purpose is to reduce shadows produced by the key light and the reflector will need to be mounted on a stand.
-
-The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
-
-### Watch Video! Top Lighting Tips for Vlogging
-
-## Lightning Tips for Aspiring YouTube Videographers
-
-Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
-
-#### 1\.  Focus Your Key Light
-
-Try to focus your Key Light so that it lights only you and not your background. Do this by mounting anything that can cast a shadow onto your Key Light to control the area where the light hits. If you are using a window for your Key Light then you can use a curtain. If you use a softbox light then your light will already be somewhat focused.
-
-#### 2\. Use Natural Lighting
-
-The light provided by the Sun is still the best light source, you can have in your video. The trouble is that natural light changes quickly, which makes it highly unpredictable. The best way to deal with this challenge is to come prepared to the set and to get the shot you want as quickly as you can.
-
-#### 3\.  Try DIY Lightning
-
-Literally, anything from candles to LED light bulbs can serve as a source of light in a shot. You just need to pay attention to the light temperature, because warmer light sources may highlight reds and yellows that can make your footage look less realistic.
-
-#### 4\. Use Lightning Kits
-
-This is by far the best option if you want to be in complete control of the light on your set. You can adjust the intensity of the lights, use filters, diffusers and all sorts of other accessories to create the light that flatters the subjects of your videos. The only downside is that you'll have to spend a considerable amount of money if you want to have a professional lighting kit.
-
-#### 5\.  Set up reflectors
-
-Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
-
-![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
-
-If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
-
-If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
-
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -484,3 +562,64 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-16-best-kickstart-videos-on-youtube-for-visibility-boost/"><u>[New] 2024 Approved  16 Best Kickstart Videos on YouTube for Visibility Boost</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-sustainable-cities-innovation-in-environmental-design/"><u>[New] 2024 Approved  Building Sustainable Cities  Innovation in Environmental Design</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-conceptualists-engineering-marvel-online-worlds/"><u>[New] 2024 Approved  Conceptualists Engineering Marvel Online Worlds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-audience-engagement-top-hashtag-strategies-revealed/"><u>[New] 2024 Approved  Elevate Audience Engagement  Top Hashtag Strategies Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-aesthetic-ambitions-launching-a-youtube-channel-for-makeup-maven-for-2024/"><u>[New] Aesthetic Ambitions  Launching a YouTube Channel for Makeup Maven for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-broadview-networks-navigating-mcn-choices-for-2024/"><u>[New] Broadview Networks  Navigating MCN Choices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-building-your-digital-identity-start-a-youtube-channel-today-for-2024/"><u>[New] Building Your Digital Identity  Start a YouTube Channel Today for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-comparative-assessment-youtube-vs-dailymention-for-2024/"><u>[New] Comparative Assessment  YouTube Vs. DailyMention for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-compelling-end-screens-in-youtube-videos-for-2024/"><u>[New] Crafting Compelling End Screens in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-practices-for-designing-an-engaging-youtube-teaser/"><u>[New] In 2024, Best Practices for Designing an Engaging YouTube Teaser</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-captivating-youtube-openers-two-ways/"><u>[New] In 2024, Creating Captivating YouTube Openers - Two Ways</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-how-to-edit-youtube-videos-in-finalcut-pro/"><u>[New] In 2024, How to Edit YouTube Videos in Finalcut Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-leveraging-wirecast-technology-for-dynamic-youtube-live-experiences/"><u>[New] Leveraging WireCast Technology for Dynamic Youtube Live Experiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-revolutionize-your-branding-50-free-youtube-banners-inside/"><u>[New] Revolutionize Your Branding - 50 Free YouTube Banners Inside!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-step-into-the-shoes-of-a-pro-screen-capture-techniques-for-mac-enthusiasts-for-2024/"><u>[New] Step Into the Shoes of a Pro  Screen Capture Techniques for Mac Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-smart-approach-to-video-marketing-for-smbs/"><u>[New] The SMART Approach to Video Marketing for SMBs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-ultimate-compilation-best-tools-for-vimeo-files/"><u>[New] Ultimate Compilation  Best Tools for Vimeo Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-monetization-metrics-for-a-million-viewers/"><u>[New] Youtube's Monetization Metrics for A Million Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-amplify-audience-connection-best-creative-reacting-techniques/"><u>[Updated] 2024 Approved  Amplify Audience Connection  Best Creative Reacting Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-an-impactful-waterway-teaser/"><u>[Updated] 2024 Approved  Crafting an Impactful Waterway Teaser</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dive-deep-into-video-creation-with-these-top-12-vlogger-friendly-cameras/"><u>[Updated] 2024 Approved  Dive Deep Into Video Creation with These Top 12 Vlogger-Friendly Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effective-youtube-card-usage-guide/"><u>[Updated] 2024 Approved  Effective YouTube Card Usage Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-unveiling-captivating-content-the-ultimate-guide-to-tiktok-captions/"><u>[Updated] 2024 Approved  Unveiling Captivating Content  The Ultimate Guide to TikTok Captions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-whats-encrypted-exploring-the-role-of-facebooks-blue-icon/"><u>[Updated] 2024 Approved  What's Encrypted  Exploring the Role of Facebook's Blue Icon?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ajay-the-creative-content-creators-profitable-venture-on-youtube-for-2024/"><u>[Updated] AJay  The Creative Content Creator's Profitable Venture on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-youtube-beginnings-15-editing-samples-for-2024/"><u>[Updated] Best YouTube Beginnings  15 Editing Samples for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-buy-youtube-subscribers-hundreds-of-subscribers-for-5-in-2024/"><u>[Updated] Buy YouTube Subscribers - Hundreds of Subscribers for $5, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-captivate-masses-social-media-strategies-for-youtube-for-2024/"><u>[Updated] Captivate Masses  Social Media Strategies for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-capture-the-essence-of-your-favorite-series-with-these-extractors-for-2024/"><u>[Updated] Capture the Essence of Your Favorite Series with These Extractors for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-a-personalized-youtube-pathway-to-viewers-for-2024/"><u>[Updated] Crafting a Personalized YouTube Pathway to Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gain-free-photo-footage-via-essential-4-youtube-picks/"><u>[Updated] Gain Free Photo Footage via Essential 4 YouTube Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-get-your-youtube-video-seen-6-easy-steps/"><u>[Updated] How to Get Your YouTube Video Seen - 6 Easy Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-a-viral-path-best-hashtags-for-youtube-riches/"><u>[Updated] In 2024, Crafting a Viral Path  Best Hashtags for YouTube Riches</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ios-insiders-list-top-rated-downloading-apps-for-video-buffs/"><u>[Updated] IOS Insider's List  Top-Rated Downloading Apps for Video Buffs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-launchpad-essentials-your-first-steps-in-streaming/"><u>[Updated] Launchpad Essentials  Your First Steps in Streaming</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-podcast-mastery-top-10-ai-driven-name-creation-tools/"><u>[Updated] Podcast Mastery  Top 10 AI-Driven Name Creation Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocketing-youtube-popularity-through-seo-know-how/"><u>[Updated] Skyrocketing YouTube Popularity Through SEO Know-How</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-spice-up-your-videos-7-premium-royalty-free-audio-clips/"><u>[Updated] Spice Up Your Videos  7 Premium, Royalty-Free Audio Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stay-focused-with-smart-youtube-channel-management-for-pc-and-phones/"><u>[Updated] Stay Focused with Smart Youtube Channel Management for PC and Phones</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-understanding-srt-in-depth-with-this-guidebook/"><u>[Updated] Understanding SRT in Depth with This Guidebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-imagemosaic-supreme-online-blend-and-designers-choice/"><u>2024 Approved  ImageMosaic Supreme  Online Blend & Designer's Choice</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-keep-your-creativity-alive-with-insta-content-sharing/"><u>2024 Approved  Keep Your Creativity Alive with Insta Content Sharing</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-samsung-galaxy-f34-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Samsung Galaxy F34 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-your-lenovo-thinkpad-install-updates-on-win11/"><u>Enhance Your Lenovo Thinkpad: Install Updates on Win11</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-vivo-v30-lite-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Vivo V30 Lite 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-direct-platform-comparison-choosing-between-obs-and-twitch-studio/"><u>In 2024, Direct Platform Comparison  Choosing Between OBS & Twitch Studio</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-honor-magic-6-pro-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-online-oasis-secure-re-entry-to-social-networks/"><u>In 2024, Online Oasis  Secure Re-Entry to Social Networks</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/optimal-applications-streamlining-video-conferencing/"><u>Optimal Applications Streamlining Video Conferencing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/smartphone-simplicity-meets-online-impact-making-videos-easy-for-2024/"><u>Smartphone Simplicity Meets Online Impact  Making Videos Easy for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stream-like-never-before-turning-on-youtubes-av1-for-2024/"><u>Stream Like Never Before  Turning On YouTube's AV1 for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/technical-print-mishap-uncovered/"><u>Technical Print Mishap Uncovered</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-art-of-creating-compelling-youtube-video-outlines/"><u>The Art of Creating Compelling YouTube Video Outlines</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/vimeo-vs-youtube-a-content-creators-guide-for-2024/"><u>Vimeo Vs. YouTube  A Content Creator's Guide for 2024</u></a></li>
+</ul></div>

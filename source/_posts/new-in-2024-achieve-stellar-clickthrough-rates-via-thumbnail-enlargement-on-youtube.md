@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Achieve Stellar Clickthrough Rates via Thumbnail Enlargement on YouTube"
-date: 2024-06-05T14:56:46.604Z
-updated: 2024-06-06T14:56:46.604Z
+date: 2024-08-01T08:58:52.561Z
+updated: 2024-08-02T08:58:52.561Z
 tags:
   - ai video
   - ai youtube
@@ -20,8 +20,14 @@ There is a saying that first impressions last, and this is proven true, especial
 
 This technique not only attract viewers to watch your video, but it also gives a glimpse of your content. In this article, we will provide you with a quick tutorial on how to resize a YouTube thumbnail and suggest handy tools you can use to create the perfect YouTube video thumbnail!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![youtube thumbnail resize](https://images.wondershare.com/filmora/article-images/resize-youtube-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best YouTube Thumbnail Size
 
 According to YouTube's help center, there are some things to remember when creating a thumbnail for your YouTube videos.
@@ -48,10 +54,16 @@ Now, let us start the tutorial.
 
 Step1 Open an image you want to set as a thumbnail. Then, **Right-click> Resize.**
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select image for youtube thumbnail resize](https://images.wondershare.com/filmora/article-images/photo-for-youtube-thumbnail-resize.JPG)
 
 Step2 Select "Define custom dimensions."
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube thumbnail custom dimensions](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-dimensions.jpg)
 
 Step3 Set the width to **1280** and the height to **720**. Then **tick** the box for "**Maintain Aspect Ratio** "and **click "Save Resized Copy."**
@@ -82,6 +94,9 @@ Step2 Scroll down and find the YouTube thumbnail size where your resized image i
 
 ![promo download YouTube thumbnail](https://images.wondershare.com/filmora/article-images/promo-download-youtube-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 3: Convert the Image to YouTube Thumbnail Using Wondershare Filmora
 
 It is without a doubt that online YouTube thumbnail resizers are great tools for converting your image to an ideal YouTube thumbnail. But it would be much better if you resize your video using the same app you use for editing. That way, you will save time using two separate apps, and your task will be much more efficient using an all-in-one video editing tool.
@@ -98,22 +113,38 @@ Here is the step-by-step tutorial on how to use Filmora in resizing your YouTube
 
 Step1 Open the video in the timeline, **click** the play icon in the player window, and **pause** when you reach the desired frame for the YouTube thumbnail. **Click** the camera icon to take a snapshot.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora open video](https://images.wondershare.com/filmora/article-images/filmora-open-video.jpg)
 
 Step2 In the snapshot window, **choose** to **save** the snapshot as a PNG or JPG file.
 
 Step3 Select the output storage location and **click OK**.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora save snapshot](https://images.wondershare.com/filmora/article-images/filmora-save-snapshot.jpg)
 
 **2\. Resize the YouTube Thumbnail**
 
 Step1 Import the image into the app timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![filmora import snapshot](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 Step2 Drag and drop the image into the timeline and **click** the green "**Export**" button. In the popup Export window, select **GIF**. Next, click "**Settings**" to adjust the resolution.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![adjust filmora export settings](https://images.wondershare.com/filmora/article-images/filmora-adjust-gif-settings.jpg)
 
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
@@ -134,6 +165,9 @@ Step1 Install and **launch** GIMP on your computer.
 
 Step2 Click on "**File**" > "**Open**," then search for the file you want to resize.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![gimp open thumbnail](https://images.wondershare.com/filmora/article-images/gimp-open-thumbnail.JPG)
 
 Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution is 1920 by 1080.
@@ -142,12 +176,18 @@ Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution
 
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![gimp export format](https://images.wondershare.com/filmora/article-images/gimp-export-format.JPG)
 
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
 
 ![gimp export thumbnail](https://images.wondershare.com/filmora/article-images/gimp-export-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Comparison of These 4 YouTube Thumbnail Resizing Methods
 
 Now that we've explored the four methods for resizing YouTube thumbnails, it's time to compare the pros and cons of each method. In this section, we'll consider factors such as ease of use, speed, quality, cost, and compatibility to help you determine the best option for your needs.
@@ -174,6 +214,10 @@ However, using a third-party image editing program may require a learning curve 
 
 Each of the four methods for resizing YouTube thumbnails has its pros and cons, and the best method will depend on the user's specific needs and preferences.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 This article explored four methods for resizing YouTube thumbnails: using the Windows default app, online converters, Wondershare Filmora, and image editing programs like GIMP. Each method has advantages and disadvantages; the best one depends on your specific needs and preferences. No matter your chosen method, you can resize YouTube thumbnails confidently with these tools and techniques.
@@ -192,12 +236,18 @@ Step2 In the snapshot window, **choose** to **save** the snapshot as a PNG or JP
 
 Step3 Select the output storage location and **click OK**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora save snapshot](https://images.wondershare.com/filmora/article-images/filmora-save-snapshot.jpg)
 
 **2\. Resize the YouTube Thumbnail**
 
 Step1 Import the image into the app timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora import snapshot](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 Step2 Drag and drop the image into the timeline and **click** the green "**Export**" button. In the popup Export window, select **GIF**. Next, click "**Settings**" to adjust the resolution.
@@ -206,6 +256,9 @@ Step2 Drag and drop the image into the timeline and **click** the green "**Expor
 
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora adjust resolution](https://images.wondershare.com/filmora/article-images/filmora-adjust-resolution.JPG)
 
 ### Method 4\. Convert Images to YouTube Thumbnail Using Third-Party Software
@@ -230,10 +283,20 @@ Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution
 
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ![gimp export format](https://images.wondershare.com/filmora/article-images/gimp-export-format.JPG)
 
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gimp export thumbnail](https://images.wondershare.com/filmora/article-images/gimp-export-thumbnail.JPG)
 
 ## Comparison of These 4 YouTube Thumbnail Resizing Methods
@@ -292,6 +355,9 @@ This article explored four methods for resizing YouTube thumbnails: using the Wi
 
 In order to properly market your page on YouTube for sharing across social media, it is essential that you find your YouTube channel URL. How else can you share your channel? In this article, we are trying to give you a thorough understanding of the YouTube Channel URL and tell you how to get the custom channel URL.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Types of YouTube Channel URL
 
 **ID-based URL**
@@ -337,6 +403,178 @@ As long as your account meets these eligibility standards, then you can go over 
 
 Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
+
+After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
+
+Who read this article also read:
+
+[Good YouTube Names Generators + How to Brainstorm>>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[How to Make a YouTube Subscribe Link - Easy!>>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+In order to properly market your page on YouTube for sharing across social media, it is essential that you find your YouTube channel URL. How else can you share your channel? In this article, we are trying to give you a thorough understanding of the YouTube Channel URL and tell you how to get the custom channel URL.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Types of YouTube Channel URL
+
+**ID-based URL**
+
+YouTube channel URL of this type is based on your channel ID, which consists of numbers and letters. This is the URL of the universal form. For example, "youtube.com/channel/specific YouTube channel ID".
+
+You can **find the YouTube channel URL** of this kind by the following steps.
+
+1. Sign in to Youtube.com and click on your profile icon.
+2. Select Your Channel.
+3. Find the URL on the address bar of your browser. This is exactly the ID-based URL or the standard URL of your channel.
+
+**Legacy username URL**
+
+Legacy username URL was used by YouTube in the past. If you created your channel in the early days of YouTube, the URL for your channel might contain the username at the end. Although YouTube doesn't apply username to forming channel URL anymore, you can still use this URL to direct to Your channel. But you should note that the exiting username can't be changed even if you have changed your channel name. For example, "youtube.com/channel/specific YouTube channel ID".
+
+You can share the short form of the username URL with the "**/user**" being left out, such as "youtube.com/specific YouTube channel ID". But this may not be available if someone claimed to a custom URL whose short form is the same with the short form of your username URL.
+
+**Custom URL**
+
+This is a shorter and more easy-to-remember URL that is generated on the basis of your current display name, legacy username, or your linked and verified domain. You can claim for the custom URL if your channel meets certain qualifications.
+
+The custom URL looks like this, "youtube.com/c/display name, legacy username, or your linked and verified domain". You can also share this URL in its shorter form by leaving out the "**/c**", for example, "youtube.com/customed part".
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
+## **How to Get a Custom URL for your YouTube Channel**
+
+To qualify for a custom URL – one which includes your channel name instead of a random sequence of letters, your channel needs to meet the following standards.
+
+* Be at least 30 days old
+* Have at least 100 subscribers
+* Use a photo for the channel icon
+* Have uploaded channel art
+
+As long as your account meets these eligibility standards, then you can go over the following steps to claim a custom URL for your YouTube channel.
+
+   1. Start by signing into YouTube.
+   2. Click on your profile image on the top right of the screen.
+   3. Find the "settings" and click on it.
+   4. Select "Advanced settings".
+   5. Click on the link anchored with the word "here".
+   6. The "Get a custom URL" box will then pop out. You can select one from the approved options. You may need to add a suffix to make the URL of your channel to be unique.
+   7. Read the "Terms of use" carefully and then click on the **change URL**.
+
+Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
+## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
+
+After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
+
+Who read this article also read:
+
+[Good YouTube Names Generators + How to Brainstorm>>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[How to Make a YouTube Subscribe Link - Easy!>>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+In order to properly market your page on YouTube for sharing across social media, it is essential that you find your YouTube channel URL. How else can you share your channel? In this article, we are trying to give you a thorough understanding of the YouTube Channel URL and tell you how to get the custom channel URL.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Types of YouTube Channel URL
+
+**ID-based URL**
+
+YouTube channel URL of this type is based on your channel ID, which consists of numbers and letters. This is the URL of the universal form. For example, "youtube.com/channel/specific YouTube channel ID".
+
+You can **find the YouTube channel URL** of this kind by the following steps.
+
+1. Sign in to Youtube.com and click on your profile icon.
+2. Select Your Channel.
+3. Find the URL on the address bar of your browser. This is exactly the ID-based URL or the standard URL of your channel.
+
+**Legacy username URL**
+
+Legacy username URL was used by YouTube in the past. If you created your channel in the early days of YouTube, the URL for your channel might contain the username at the end. Although YouTube doesn't apply username to forming channel URL anymore, you can still use this URL to direct to Your channel. But you should note that the exiting username can't be changed even if you have changed your channel name. For example, "youtube.com/channel/specific YouTube channel ID".
+
+You can share the short form of the username URL with the "**/user**" being left out, such as "youtube.com/specific YouTube channel ID". But this may not be available if someone claimed to a custom URL whose short form is the same with the short form of your username URL.
+
+**Custom URL**
+
+This is a shorter and more easy-to-remember URL that is generated on the basis of your current display name, legacy username, or your linked and verified domain. You can claim for the custom URL if your channel meets certain qualifications.
+
+The custom URL looks like this, "youtube.com/c/display name, legacy username, or your linked and verified domain". You can also share this URL in its shorter form by leaving out the "**/c**", for example, "youtube.com/customed part".
+
+## **How to Get a Custom URL for your YouTube Channel**
+
+To qualify for a custom URL – one which includes your channel name instead of a random sequence of letters, your channel needs to meet the following standards.
+
+* Be at least 30 days old
+* Have at least 100 subscribers
+* Use a photo for the channel icon
+* Have uploaded channel art
+
+As long as your account meets these eligibility standards, then you can go over the following steps to claim a custom URL for your YouTube channel.
+
+   1. Start by signing into YouTube.
+   2. Click on your profile image on the top right of the screen.
+   3. Find the "settings" and click on it.
+   4. Select "Advanced settings".
+   5. Click on the link anchored with the word "here".
+   6. The "Get a custom URL" box will then pop out. You can select one from the approved options. You may need to add a suffix to make the URL of your channel to be unique.
+   7. Read the "Terms of use" carefully and then click on the **change URL**.
+
+Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
 
 After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
@@ -391,6 +629,9 @@ This is a shorter and more easy-to-remember URL that is generated on the basis o
 
 The custom URL looks like this, "youtube.com/c/display name, legacy username, or your linked and verified domain". You can also share this URL in its shorter form by leaving out the "**/c**", for example, "youtube.com/customed part".
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Get a Custom URL for your YouTube Channel**
 
 To qualify for a custom URL – one which includes your channel name instead of a random sequence of letters, your channel needs to meet the following standards.
@@ -426,156 +667,9 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-In order to properly market your page on YouTube for sharing across social media, it is essential that you find your YouTube channel URL. How else can you share your channel? In this article, we are trying to give you a thorough understanding of the YouTube Channel URL and tell you how to get the custom channel URL.
-
-## Types of YouTube Channel URL
-
-**ID-based URL**
-
-YouTube channel URL of this type is based on your channel ID, which consists of numbers and letters. This is the URL of the universal form. For example, "youtube.com/channel/specific YouTube channel ID".
-
-You can **find the YouTube channel URL** of this kind by the following steps.
-
-1. Sign in to Youtube.com and click on your profile icon.
-2. Select Your Channel.
-3. Find the URL on the address bar of your browser. This is exactly the ID-based URL or the standard URL of your channel.
-
-**Legacy username URL**
-
-Legacy username URL was used by YouTube in the past. If you created your channel in the early days of YouTube, the URL for your channel might contain the username at the end. Although YouTube doesn't apply username to forming channel URL anymore, you can still use this URL to direct to Your channel. But you should note that the exiting username can't be changed even if you have changed your channel name. For example, "youtube.com/channel/specific YouTube channel ID".
-
-You can share the short form of the username URL with the "**/user**" being left out, such as "youtube.com/specific YouTube channel ID". But this may not be available if someone claimed to a custom URL whose short form is the same with the short form of your username URL.
-
-**Custom URL**
-
-This is a shorter and more easy-to-remember URL that is generated on the basis of your current display name, legacy username, or your linked and verified domain. You can claim for the custom URL if your channel meets certain qualifications.
-
-The custom URL looks like this, "youtube.com/c/display name, legacy username, or your linked and verified domain". You can also share this URL in its shorter form by leaving out the "**/c**", for example, "youtube.com/customed part".
-
-## **How to Get a Custom URL for your YouTube Channel**
-
-To qualify for a custom URL – one which includes your channel name instead of a random sequence of letters, your channel needs to meet the following standards.
-
-* Be at least 30 days old
-* Have at least 100 subscribers
-* Use a photo for the channel icon
-* Have uploaded channel art
-
-As long as your account meets these eligibility standards, then you can go over the following steps to claim a custom URL for your YouTube channel.
-
-   1. Start by signing into YouTube.
-   2. Click on your profile image on the top right of the screen.
-   3. Find the "settings" and click on it.
-   4. Select "Advanced settings".
-   5. Click on the link anchored with the word "here".
-   6. The "Get a custom URL" box will then pop out. You can select one from the approved options. You may need to add a suffix to make the URL of your channel to be unique.
-   7. Read the "Terms of use" carefully and then click on the **change URL**.
-
-Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
-
-## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
-
-After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
-
-Who read this article also read:
-
-[Good YouTube Names Generators + How to Brainstorm>>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[How to Make a YouTube Subscribe Link - Easy!>>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-In order to properly market your page on YouTube for sharing across social media, it is essential that you find your YouTube channel URL. How else can you share your channel? In this article, we are trying to give you a thorough understanding of the YouTube Channel URL and tell you how to get the custom channel URL.
-
-## Types of YouTube Channel URL
-
-**ID-based URL**
-
-YouTube channel URL of this type is based on your channel ID, which consists of numbers and letters. This is the URL of the universal form. For example, "youtube.com/channel/specific YouTube channel ID".
-
-You can **find the YouTube channel URL** of this kind by the following steps.
-
-1. Sign in to Youtube.com and click on your profile icon.
-2. Select Your Channel.
-3. Find the URL on the address bar of your browser. This is exactly the ID-based URL or the standard URL of your channel.
-
-**Legacy username URL**
-
-Legacy username URL was used by YouTube in the past. If you created your channel in the early days of YouTube, the URL for your channel might contain the username at the end. Although YouTube doesn't apply username to forming channel URL anymore, you can still use this URL to direct to Your channel. But you should note that the exiting username can't be changed even if you have changed your channel name. For example, "youtube.com/channel/specific YouTube channel ID".
-
-You can share the short form of the username URL with the "**/user**" being left out, such as "youtube.com/specific YouTube channel ID". But this may not be available if someone claimed to a custom URL whose short form is the same with the short form of your username URL.
-
-**Custom URL**
-
-This is a shorter and more easy-to-remember URL that is generated on the basis of your current display name, legacy username, or your linked and verified domain. You can claim for the custom URL if your channel meets certain qualifications.
-
-The custom URL looks like this, "youtube.com/c/display name, legacy username, or your linked and verified domain". You can also share this URL in its shorter form by leaving out the "**/c**", for example, "youtube.com/customed part".
-
-## **How to Get a Custom URL for your YouTube Channel**
-
-To qualify for a custom URL – one which includes your channel name instead of a random sequence of letters, your channel needs to meet the following standards.
-
-* Be at least 30 days old
-* Have at least 100 subscribers
-* Use a photo for the channel icon
-* Have uploaded channel art
-
-As long as your account meets these eligibility standards, then you can go over the following steps to claim a custom URL for your YouTube channel.
-
-   1. Start by signing into YouTube.
-   2. Click on your profile image on the top right of the screen.
-   3. Find the "settings" and click on it.
-   4. Select "Advanced settings".
-   5. Click on the link anchored with the word "here".
-   6. The "Get a custom URL" box will then pop out. You can select one from the approved options. You may need to add a suffix to make the URL of your channel to be unique.
-   7. Read the "Terms of use" carefully and then click on the **change URL**.
-
-Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
-
-## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
-
-After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
-
-Who read this article also read:
-
-[Good YouTube Names Generators + How to Brainstorm>>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[How to Make a YouTube Subscribe Link - Easy!>>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -598,3 +692,44 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channeling-success-the-essential-elements-for-profitable-video-trailers/"><u>[New] 2024 Approved  Channeling Success  The Essential Elements for Profitable Video Trailers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-choose-from-the-finest-7-android-browsers-without-ads/"><u>[New] 2024 Approved  Choose From the Finest 7 Android Browsers Without Ads</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-decoding-the-mysteries-of-outdated-facebook-sharing-pcmobile-style/"><u>[New] 2024 Approved  Decoding the Mysteries of Outdated Facebook Sharing, PC/Mobile Style</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-step-by-step-incorporating-songs-into-your-facebook-timeline/"><u>[New] 2024 Approved  Step-by-Step  Incorporating Songs Into Your Facebook Timeline</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-best-practices-for-designing-compelling-youtube-video-thumbnails-for-2024/"><u>[New] Best Practices for Designing Compelling YouTube Video Thumbnails for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-charismatic-oratory-study-part-8-for-2024/"><u>[New] Charismatic Oratory Study Part 8 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cut-expenses-create-wow-download-high-quality-templates-for-videos-for-2024/"><u>[New] Cut Expenses, Create Wow - Download High-Quality Templates for Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-charisma-techniques-for-amplifying-youtube-visibility/"><u>[New] In 2024, Channel Charisma  Techniques for Amplifying YouTube Visibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dominate-the-digital-space-youtube-leadership/"><u>[New] In 2024, Dominate the Digital Space  YouTube Leadership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-differences-between-igtv-and-youtube-for-effective-posts/"><u>[New] In 2024, Exploring Differences Between IGTV and YouTube for Effective Posts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-youtubes-tagging-system-tips-for-finding-prime-video-labels/"><u>[New] Navigating YouTube's Tagging System  Tips for Finding Prime Video Labels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-who-rules-the-realm-of-youtube/"><u>[New] Who Rules the Realm of YouTube?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-guide-to-the-best-tools-for-shortening-video-content-online/"><u>[Updated] 2024 Approved  A Guide to the Best Tools for Shortening Video Content Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-bulk-buy-subscribers-cost-effective-growth-strategy/"><u>[Updated] 2024 Approved  Bulk Buy Subscribers  Cost-Effective Growth Strategy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-a-winning-strategy-youtube-keyword-mastery-explained/"><u>[Updated] 2024 Approved  Crafting a Winning Strategy  YouTube Keyword Mastery Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide/"><u>[Updated] 2024 Approved  Curate a Perfect Playlist on YouTube  A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discovering-your-youtube-comments-on-various-devices/"><u>[Updated] 2024 Approved  Discovering Your YouTube Comments on Various Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dynamic-scripting-for-videos/"><u>[Updated] 2024 Approved  Dynamic Scripting for Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-engagement-amplify-audience-youtube-marketing/"><u>[Updated] 2024 Approved  Elevate Engagement, Amplify Audience (YouTube Marketing)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-conquer-zero-viewers-10-essential-tips-for-video-popularity-for-2024/"><u>[Updated] Conquer Zero Viewers  10 Essential Tips for Video Popularity for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-icons-and-logos-from-6-innovative-websites-for-2024/"><u>[Updated] Cutting-Edge Icons and Logos From 6 Innovative Websites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-insights-how-to-choose-among-the-top-9-free-youtube-makers-for-2024/"><u>[Updated] Essential Insights  How to Choose Among the Top 9 Free YouTube Makers for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-fixing-face-id-on-iphone-x-a-compreenasome-guide-for-2024/"><u>[Updated] Fixing Face ID on iPhone X  A Compreenasome Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-beyond-indexation-understanding-youtubes-unlisted-mechanism/"><u>[Updated] In 2024, Beyond Indexation  Understanding YouTube's Unlisted Mechanism</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-streamlining-avi-conversions-create-gifs-with-filmora-on-pcmac/"><u>[Updated] In 2024, Streamlining AVI Conversions  Create GIFs with Filmora on PC/Mac</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-warm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds/"><u>[Updated] Warm Up Your Visuals  A Guide to Top Cozy Winter Backgrounds</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-indulge-in-pure-play-celebrating-the-top-10-offline-games/"><u>2024 Approved  Indulge in Pure Play - Celebrating the Top 10 Offline Games</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-xiaomi-redmi-k70e-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Xiaomi Redmi K70E FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-editing-essentials-a-comprehensive-guide-to-song-inserts/"><u>In 2024, YouTube Editing Essentials  A Comprehensive Guide to Song Inserts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-reference-to-youtube-video-aspect-ratios-for-2024/"><u>The Ultimate Reference to YouTube Video Aspect Ratios for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tone-your-vlogs-access-free-sound-tracks-in-2024/"><u>Tone Your Vlogs  Access Free Sound Tracks, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-the-secrets-of-successful-youtube-collaborations-for-2024/"><u>Unlocking the Secrets of Successful YouTube Collaborations for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secrets-of-youtube-music-curation-for-2024/"><u>Unveiling the Secrets of YouTube Music Curation for 2024</u></a></li>
+</ul></div>

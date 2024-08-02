@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Efficient Solutions for YouTube Short Snags\""
-date: 2024-06-05T13:10:22.248Z
-updated: 2024-06-06T13:10:22.248Z
+date: 2024-08-01T06:00:39.321Z
+updated: 2024-08-02T06:00:39.321Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,9 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Where can I find YouTube Shorts?
 
 Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
@@ -89,8 +92,14 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Here are the solutions for YouTube Common Issues
 
 Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
@@ -174,6 +183,9 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Where can I find YouTube Shorts?
 
 Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
@@ -199,6 +211,10 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
@@ -211,6 +227,9 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
@@ -219,6 +238,10 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
@@ -280,6 +303,9 @@ Your video should be set as YouTube Shorts before posting.
 3. See that each video is up to 60 seconds only.
 4. Post the video and see whether the issue isn’t reoccurring.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
@@ -304,6 +330,18 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Where can I find YouTube Shorts?
 
 Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
@@ -329,6 +367,9 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
@@ -351,6 +392,9 @@ Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
 ![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Here are the solutions for YouTube Common Issues
 
 Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
@@ -390,6 +434,10 @@ A corrupt system may also cause issues with the normal operation of your applica
 5. Tap on the “Clear cache and data” option.
 6. Finally, relaunch the YouTube app and check whether the issue is resolved.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
 
 #### Solution 3\. Check if Shorts is available in your country
@@ -410,6 +458,9 @@ Your video should be set as YouTube Shorts before posting.
 3. See that each video is up to 60 seconds only.
 4. Post the video and see whether the issue isn’t reoccurring.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
@@ -430,6 +481,9 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 03 [Here are the solutions for YouTube Common Issues](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## What is YouTube Shorts?
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
@@ -459,6 +513,9 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
@@ -479,6 +536,9 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
@@ -556,10 +616,16 @@ It’s a nice feeling to learn how to upload YouTube Shorts and share the fun wi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Keeping Cameras Steady in Motion Landscapes
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -574,6 +640,9 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
@@ -590,6 +659,9 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 And here it is with hair clips:
@@ -623,6 +695,9 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -681,6 +756,115 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+And here it is with hair clips:
+
+![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+Now you can set your smartphone upon any stable surface, like a table or a stack of books.
+
+ _Here are some more cool ideas!_
+
+### **DIY adjustable tripod using books and a towel**
+
+You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
+
+But if you can use any stable surface, why do people buy tripods?
+
+Because it isn’t convenient to rearrange your furniture whenever you want to make a video, and also because tripods are adjustable. You can change their height, you can use them to pan or tilt, and it’s pretty easy to move them a bit forwards or backward while you’re setting up your shot.
+
+To get similar functions from the ‘any stable surface’ solution you can use a **table**, a **stack of books**, and a **towel**.
+
+1. Set up the area where you’re going to sit while you’re filming on one end of the table.
+2. Put the towel down over the approximate spot you want your camera to be.
+3. Stack your books on top of the towel.
+4. Put your camera on top of the books.
+
+Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
+### **DIY gripping ‘Gorillapod’ using wire and tape**
+
+Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
+
+Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
+
+ ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+_All of your supplies plus the finished product._
+
+**Readying your legs**
+
+**_Step 1:_** Bend 2 inches at one end of each wire into a ‘U’ shape. You will probably need pliers for this.
+
+**_Step 2:_** Pick up one of your pieces of wire and wrap one end with electrical tape. Go around 5-10 times (to prevent it from coming undone at the end) and then, without cutting your tape, start moving up and wrapping the rest of your wire. Stop before your ‘U’ section.
+
+Repeat this with the other two wires.
+
+ **Attaching your legs**
+
+_**Step 1:**_ Place the ‘U’ section of a leg against your bolt. The bolt’s threading should be pointing away from the leg. Now, use your tape to attach them. Wind it around 2 or 3 times, then repeat the process with both of the other legs individually.
+
+_**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 as tightly as you can.
+
+ Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
+
+_Note: make sure the bolt is a fit for your camera before you get too far into this process._
+
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+### DIY Your Video with Wondershare Filmora
+
+Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **DIY smartphone tripod using binder clips or hair clips**
+
+You’re a solo operation and your best camera is on your phone. That’s pretty common.
+
+If you have a DSLR then you can set it down on any stable surface while filming yourself, but your phone can’t stand up by itself. It needs something or someone to hold it. Do you just accept that and shoot everything as a selfie?
+
+No. No, you don’t, because there are common household items that can help you out of this problem. For this DIY tripod, you need either **2 binder clips** or **2 ‘claw clips’** (also called ‘hair jaws’).
+
+Hold your phone in landscape mode (horizontally, so it’s long rather than tall) and attach clips to the bottom corners. If you are worried about scratching your screen, fold up some paper to place between your clip and your phone.
+
+Here it is with binder clips:
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 And here it is with hair clips:
@@ -714,6 +898,9 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -752,10 +939,17 @@ Follow @Richard Bennett
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
@@ -772,6 +966,10 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 And here it is with hair clips:
@@ -782,6 +980,9 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -805,6 +1006,9 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -827,97 +1031,10 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
-
-### DIY Your Video with Wondershare Filmora
-
-Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Here are 3 of our favorite DIY tripods.
-
-### **DIY smartphone tripod using binder clips or hair clips**
-
-You’re a solo operation and your best camera is on your phone. That’s pretty common.
-
-If you have a DSLR then you can set it down on any stable surface while filming yourself, but your phone can’t stand up by itself. It needs something or someone to hold it. Do you just accept that and shoot everything as a selfie?
-
-No. No, you don’t, because there are common household items that can help you out of this problem. For this DIY tripod, you need either **2 binder clips** or **2 ‘claw clips’** (also called ‘hair jaws’).
-
-Hold your phone in landscape mode (horizontally, so it’s long rather than tall) and attach clips to the bottom corners. If you are worried about scratching your screen, fold up some paper to place between your clip and your phone.
-
-Here it is with binder clips:
-
-![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
-
-And here it is with hair clips:
-
-![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-
-Now you can set your smartphone upon any stable surface, like a table or a stack of books.
-
- _Here are some more cool ideas!_
-
-### **DIY adjustable tripod using books and a towel**
-
-You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
-
-But if you can use any stable surface, why do people buy tripods?
-
-Because it isn’t convenient to rearrange your furniture whenever you want to make a video, and also because tripods are adjustable. You can change their height, you can use them to pan or tilt, and it’s pretty easy to move them a bit forwards or backward while you’re setting up your shot.
-
-To get similar functions from the ‘any stable surface’ solution you can use a **table**, a **stack of books**, and a **towel**.
-
-1. Set up the area where you’re going to sit while you’re filming on one end of the table.
-2. Put the towel down over the approximate spot you want your camera to be.
-3. Stack your books on top of the towel.
-4. Put your camera on top of the books.
-
-Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-### **DIY gripping ‘Gorillapod’ using wire and tape**
-
-Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
-
-Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
-
- ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-_All of your supplies plus the finished product._
-
-**Readying your legs**
-
-**_Step 1:_** Bend 2 inches at one end of each wire into a ‘U’ shape. You will probably need pliers for this.
-
-**_Step 2:_** Pick up one of your pieces of wire and wrap one end with electrical tape. Go around 5-10 times (to prevent it from coming undone at the end) and then, without cutting your tape, start moving up and wrapping the rest of your wire. Stop before your ‘U’ section.
-
-Repeat this with the other two wires.
-
- **Attaching your legs**
-
-_**Step 1:**_ Place the ‘U’ section of a leg against your bolt. The bolt’s threading should be pointing away from the leg. Now, use your tape to attach them. Wind it around 2 or 3 times, then repeat the process with both of the other legs individually.
-
-_**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 as tightly as you can.
-
- Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
-
-_Note: make sure the bolt is a fit for your camera before you get too far into this process._
-
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -940,3 +1057,42 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-the-course-of-monetization-for-creator-economy-on-youtubeshorts/"><u>[New] 2024 Approved  Charting the Course of Monetization for Creator Economy on YouTubeshorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-strategies-for-uploading-video-quality-4k-on-youtub/"><u>[New] 2024 Approved  Essential Strategies for Uploading Video Quality 4K on YouTub</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-5-second-stories-explained-well/"><u>[New] In 2024, 5-Second Stories Explained Well</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-a-successful-livestream-empire-youtube-edition/"><u>[New] In 2024, Building a Successful Livestream Empire  YouTube Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-celebrating-beauty-innovators-youtubes-elite-list/"><u>[New] In 2024, Celebrating Beauty Innovators  YouTube's Elite List</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-mastering-facebook-stories-a-comprehensive-users-handbook/"><u>[New] In 2024, Mastering Facebook Stories  A Comprehensive User's Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-optimizing-youtube-content-for-higher-visibility/"><u>[New] In 2024, Optimizing YouTube Content for Higher Visibility</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-quiet-echo-architects-6-unpublicized-voice-recorder-apps/"><u>[New] In 2024, Quiet Echo Architects  6 Unpublicized Voice Recorder Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-aspect-ratios-for-youtube-videos-shorts-and-ads-guide/"><u>[New] Mastering Aspect Ratios for YouTube Videos, Shorts & Ads Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-gifs-leading-platforms-reviewed/"><u>[New] Mastering GIFs  Leading Platforms Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-binge-worthy-content-crafting-episodes-that-viewers-love/"><u>[Updated] 2024 Approved  Binge-Worthy Content  Crafting Episodes That Viewers Love</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-concealed-visibility-mastering-visual-obscurity-in-videos/"><u>[Updated] 2024 Approved  Concealed Visibility  Mastering Visual Obscurity in Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-how-to-convert-youtube-to-mp4-safely/"><u>[Updated] 2024 Approved  How to Convert YouTube to MP4 Safely?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-real-time-recording-faceoff-obs-vs-shadowplay/"><u>[Updated] 2024 Approved  Real-Time Recording Faceoff  OBS Vs ShadowPlay</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-smart-mp4-transformer-for-immediate-fb-embedding/"><u>[Updated] 2024 Approved  Smart MP4 Transformer for Immediate FB Embedding</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-dial-in-the-perfect-moment-youtube-optimal-posting-for-2024/"><u>[Updated] Dial in the Perfect Moment  YouTube Optimal Posting for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-digital-recorder-snap-your-screen-upload-to-youtube-onlinepcmac-for-2024/"><u>[Updated] Digital Recorder  Snap Your Screen, Upload to YouTube Online/PC/Mac for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-smartphone-shots-best-camera-accessories-for-filmmakers-for-2024/"><u>[Updated] Elevate Your Smartphone Shots  Best Camera Accessories for Filmmakers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-2023s-top-social-moment-infographics/"><u>[Updated] In 2024, 2023'S Top Social Moment Infographics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-optimal-screen-reproduction-system-for-youtubing-adepts/"><u>[Updated] Optimal Screen Reproduction System for YouTubing Adepts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-editing-tools-unveiled-youtube-edition/"><u>[Updated] Premium Editing Tools Unveiled  YouTube Edition</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-everything-you-need-to-know-about-io-screen-recorder/"><u>2024 Approved  Everything You Need to Know About IO Screen Recorder</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-leveraging-windows-11-features-for-top-notch-gaming-capture/"><u>2024 Approved  Leveraging Windows 11 Features for Top-Notch Gaming Capture</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-outro-complete-guide-plusbest-makers-and-templates/"><u>2024 Approved  YouTube Outro Complete Guide [+Best Makers & Templates]</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/64gb-ideal-for-light-video-content-for-2024/"><u>64Gb  Ideal for Light Video Content for 2024</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oppo-a18-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/fast-and-free-fb-video-conversion-tools-for-mp3-files-for-2024/"><u>Fast and Free  FB Video Conversion Tools for MP3 Files for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-14-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 14 without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-y56-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Vivo Y56 5G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-apple-iphone-7-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra Apple iPhone 7</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/lighten-up-with-funny-images-in-adobe-for-2024/"><u>Lighten Up with Funny Images in Adobe for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/started-streaming-learn-obs-for-youtube-now-for-2024/"><u>Started Streaming? Learn OBS for Youtube Now for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-role-of-timestamps-in-content-longevity-and-popularity-for-2024/"><u>The Role of Timestamps in Content Longevity and Popularity for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-secrets-to-great-gopro-time-lapses-for-2024/"><u>Unveiling Secrets to Great GoPro Time-Lapses for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-taping-permissibility-concerns-for-2024/"><u>YouTube Taping  Permissibility Concerns for 2024</u></a></li>
+</ul></div>

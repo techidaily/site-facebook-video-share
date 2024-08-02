@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boost Your Videos With These YouTube SEO Tools"
-date: 2024-06-05T15:47:45.396Z
-updated: 2024-06-06T15:47:45.396Z
+date: 2024-08-01T10:26:26.277Z
+updated: 2024-08-02T10:26:26.277Z
 tags:
   - ai video
   - ai youtube
@@ -64,18 +64,27 @@ When it comes to producing well-performing YouTube content, it is all about timi
 
 #### 2\. TubeBuddy
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Tube Buddy](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-2.png)
 
 SEO experts and novices alike understand the importance of meta description. Metadata helps the search engine more quickly read and categorize the content. Unfortunately, YouTube can make writing metadata challenges. However, TubeBuddy can help you make the most of your videos. You can use this tool to write and publish descriptions, titles, annotations, cards, tags, and more.
 
 #### 3\. Google Ads
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Google Ads](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-3.png)
 
 If you know you’re creating a YouTube video with SEO best practices in mind, you’ll want to optimize both the video and the metadata for a specific keyword. Google Ads is the definitive tool for generating these terms. Plug in a topic to get a raw keyword spreadsheet full of possible terms to select.
 
 #### 4\. Awario
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Awario](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-4.png)
 
 YouTube engagement remains the most vital metric when it comes to video production. Awario is a social monitoring tool that can help you analyze how your channel is growing. You can also use the software to collect mentions and set up alerts.
@@ -98,6 +107,9 @@ If you are looking for channel tools, YT SEO Tool Station also got you covered. 
 
 #### 7\. Rank Tracker
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube seo tools - Rank Tracker](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-7.png)
 
 This freemium keyword research tool allows you to pick keywords from YouTube's suggestions and check the search volume, expected visits, competition, and much more. Rank Tracker is ideal for finding keywords that can put your YouTube videos in the running for the coveted featured snippet position that will make you appear at the top of search results.
@@ -110,6 +122,10 @@ As one of the popular YT SEO tools, Tubics provides analysis and recommendations
 
 With this tool, you can find out how your videos and channel are performing. You also know how your audience is responding to the content.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## Bonus Tips: Factors to Consider for YouTube SEO
 
 #### Use descriptive Title Tags (Description)
@@ -188,18 +204,27 @@ SEO experts and novices alike understand the importance of meta description. Met
 
 #### 3\. Google Ads
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Google Ads](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-3.png)
 
 If you know you’re creating a YouTube video with SEO best practices in mind, you’ll want to optimize both the video and the metadata for a specific keyword. Google Ads is the definitive tool for generating these terms. Plug in a topic to get a raw keyword spreadsheet full of possible terms to select.
 
 #### 4\. Awario
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Awario](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-4.png)
 
 YouTube engagement remains the most vital metric when it comes to video production. Awario is a social monitoring tool that can help you analyze how your channel is growing. You can also use the software to collect mentions and set up alerts.
 
 #### 5\. YouTube Analytics
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![youtube seo tools - YouTube Analytics](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-5.png)
 
 You can use YouTube's analytics tool to get crucial details about your channel; you'll know where it's succeeding and where it is not. The tool allows you to find out more about your audience and what content they like. In turn, this will improve your views and keep your audience engaged.
@@ -208,6 +233,9 @@ What's more? This tool allows you to view the watch time on your YouTube videos 
 
 #### 6\. YT SEO Tool Station
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube seo tools - YT SEO Tool Station](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-6.png)
 
 YT SEO Tool Station is the resource center for everything related to YouTube. You can find information on the most popular video tools that will help you grow your YouTube channel. These include tools for video descriptions, titles, tags, and keywords.
@@ -272,6 +300,9 @@ Whether you are an independent business owner or a boutique marketing agency, Yo
 
 [Bonus Tips: Factors to Consider for YouTube SEO](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How Will YouTube SEO Tools Help Boost Your Videos?
 
 The popularity of YT SEO tools is growing every day. They can help boost your videos in the following ways:
@@ -306,12 +337,19 @@ SEO experts and novices alike understand the importance of meta description. Met
 
 #### 3\. Google Ads
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Google Ads](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-3.png)
 
 If you know you’re creating a YouTube video with SEO best practices in mind, you’ll want to optimize both the video and the metadata for a specific keyword. Google Ads is the definitive tool for generating these terms. Plug in a topic to get a raw keyword spreadsheet full of possible terms to select.
 
 #### 4\. Awario
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![youtube seo tools - Awario](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-4.png)
 
 YouTube engagement remains the most vital metric when it comes to video production. Awario is a social monitoring tool that can help you analyze how your channel is growing. You can also use the software to collect mentions and set up alerts.
@@ -334,12 +372,18 @@ If you are looking for channel tools, YT SEO Tool Station also got you covered. 
 
 #### 7\. Rank Tracker
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Rank Tracker](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-7.png)
 
 This freemium keyword research tool allows you to pick keywords from YouTube's suggestions and check the search volume, expected visits, competition, and much more. Rank Tracker is ideal for finding keywords that can put your YouTube videos in the running for the coveted featured snippet position that will make you appear at the top of search results.
 
 #### 8\. Tubics
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube seo tools - Tubics](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-8.png)
 
 As one of the popular YT SEO tools, Tubics provides analysis and recommendations to help your videos get more views and rank higher on search engines. This cloud-based tool offers analytics on video performance, channel analysis, keyword monitoring, tag generation, and more.
@@ -390,6 +434,9 @@ Whether you are an independent business owner or a boutique marketing agency, Yo
 
 [Bonus Tips: Factors to Consider for YouTube SEO](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Will YouTube SEO Tools Help Boost Your Videos?
 
 The popularity of YT SEO tools is growing every day. They can help boost your videos in the following ways:
@@ -412,6 +459,9 @@ YouTube SEO tools can streamline your path and ensure you have a growing and eng
 
 #### 1\. Google Trends
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![youtube seo tools - google trends](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-1.png)
 
 When it comes to producing well-performing YouTube content, it is all about timing. Utilizing Google Trends is a great way to figure out when to create and deploy content. Narrowing your search by category, time, and geographical region can also create a successful end product.
@@ -424,6 +474,9 @@ SEO experts and novices alike understand the importance of meta description. Met
 
 #### 3\. Google Ads
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube seo tools - Google Ads](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-3.png)
 
 If you know you’re creating a YouTube video with SEO best practices in mind, you’ll want to optimize both the video and the metadata for a specific keyword. Google Ads is the definitive tool for generating these terms. Plug in a topic to get a raw keyword spreadsheet full of possible terms to select.
@@ -436,6 +489,9 @@ YouTube engagement remains the most vital metric when it comes to video producti
 
 #### 5\. YouTube Analytics
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube seo tools - YouTube Analytics](https://images.wondershare.com/filmora/article-images/2021/youtube-seo-tools-5.png)
 
 You can use YouTube's analytics tool to get crucial details about your channel; you'll know where it's succeeding and where it is not. The tool allows you to find out more about your audience and what content they like. In turn, this will improve your views and keep your audience engaged.
@@ -464,6 +520,9 @@ As one of the popular YT SEO tools, Tubics provides analysis and recommendations
 
 With this tool, you can find out how your videos and channel are performing. You also know how your audience is responding to the content.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus Tips: Factors to Consider for YouTube SEO
 
 #### Use descriptive Title Tags (Description)
@@ -520,6 +579,9 @@ Livestreaming is very popular now. The pandemic has accelerated its growth. But 
 
 That said, live streaming helps build a better connection between content creators and their audiences. So you may want to incorporate live streaming into your strategies. You can do that on YouTube through YouTube Live. You can use this feature to host virtual events, do live Q&A, play games with your viewers, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Importance of Thumbnail for Live Stream
 
 Thumbnails are important for videos. Alongside the title, they inform the viewers what the video is about. It's not different with live streams. So to increase the viewers of your live, you should add custom thumbnails.
@@ -539,6 +601,9 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 * Head to a computer, launch a browser, and go to YouTube.
 * Click your channel icon on the top-right and select "YouTube Studio."
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-2.jpg)
 
 * Click "Create" > "Go Live."
@@ -547,6 +612,9 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 
 * Edit the metadata for the live video.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![editing youtube live metada](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-4.JPG)
 
 * Click "UPLOAD CUSTOM THUMBNAIL."
@@ -577,6 +645,14 @@ Suppose you want to change the YouTube live stream thumbnail the uld-fashioned w
 
 * Click "Change thumbnail."
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-classic-5.JPG)
 
 * Select the thumbnail image you have prepared. Click "Open."
@@ -591,6 +667,9 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 * Select "Go Live."
 * Enter the metadata. And set the advanced settings according to your preferences.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![editing liver metadata on mobile](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-4.JPG)
 
 * Click "Next."
@@ -599,19 +678,31 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 
 * YouTube will take a photo of you. Don't mind this because you'll be changing it later.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![taking thumbnail photo on youtube mobile](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-6.JPG)
 
 * Click the "Pencil" icon after YouTube has taken a photo.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![editing youtube live thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-7.JPG)
 
 * Select "Upload thumbnail."
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![upload thumbnail option](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-8.JPG)
 
 * Select the thumbnail image you have prepared.
 * Crop the image if you like. Click "Save."
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![editing uploaded custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-10.JPG)
 
 * Click "Go Live."
@@ -622,6 +713,9 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 
 So you now know how to change the live stream thumbnail. There's one more thing we need to address. Where will you get the custom thumbnails? There are a number of good YouTube thumbnail makers out there. Let's discuss this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Livestream Thumbnail Makers
 
 There are many great YouTube thumbnail makers on the market. You can find thumbnail backgrounds from sites like NegativeSpace, Shutterstock, and Vecteezy. Then, edit them to your liking using photo editing apps. Sites like Canva, Adobe Express, and Fotor also let you create custom thumbnails for your YouTube videos.
@@ -632,6 +726,9 @@ There are many great YouTube thumbnail makers on the market. You can find thumbn
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
 Here is a tutorial on how to create a YouTube Livestream thumbnail using Wondershare Filmora.
@@ -650,14 +747,23 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 * Select the photo on the timeline. Scale it and move it to where you want it to be.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![adjusting your photo](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-4.JPG)
 
 * Add backgrounds, effects, titles, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![adding background to your thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-5.JPG)
 
 * Click the "Camera" icon below the video preview to save the thumbnail. Select a format and a target fulder. Click "Ok."
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![taking a snapshot on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-6.JPG)
 
 * Right-click the screenshot on the Media panel. Select "Reveal in Explorer." That will open the fulder where the thumbnail image is saved.
@@ -666,6 +772,9 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 Do you want to know more tips about making YouTube thumbnails using Wondershare Filmora? If so, watch this video:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### How To Customize YouTube Livestream Thumbnail Online
 
 [Wave.video](https://wave.video/) is one of the best online YouTube thumbnail creators out there. Here's a guide on how to use this toul.
@@ -682,6 +791,9 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![editing chosen template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-5.JPG)
 
 * Click "Publish" > "Current frame as image."
@@ -690,21 +802,41 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 * Set up your image. Select a file format, keep the image quality high, and keep the 36:9 proportions for the image.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![setting up the image on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-7.JPG)
 
 * Click "Generate."
 * Please wait for it to finish, then click "Download."
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![downloading the custom thumbnail from wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-9.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Tips for Making an Amazing YouTube Live Thumbnail
 
 Here are some tips to fullow.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### Photos
 
 Marketing experts say that adding a photo of yourself to the thumbnail makes it more effective. Needless to say, you should not choose just any photo. You must ensure it is of high quality. Using good cameras and lighting equipment is recommended.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ### Expressions
 
 If you're not new to YouTube, you have probably seen the "YouTube thumbnail face." YouTuber's faces on their thumbnails show an expression. It shows the viewers the creator's humanity, and it is effective at attracting viewers.
@@ -713,6 +845,9 @@ If you're not new to YouTube, you have probably seen the "YouTube thumbnail face
 
 Add simple text with clear, buld, easy-to-read font.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Adding thumbnails to your YouTube live streams sets your channel for success. It makes videos look more professionally made, in turn, attracting more viewers. So, we recommend always adding thumbnails to your YouTube Live.
@@ -721,12 +856,18 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
 Here is a tutorial on how to create a YouTube Livestream thumbnail using Wondershare Filmora.
 
 * Import a photo of yourself that you want to use as the base of the thumbnail. Drag it into the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![adding your photo to filmora timeline](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-1.JPG)
 
 * Click "Effect."
@@ -735,6 +876,9 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 * Drag the "Human Segmentation" effect to your image on the timeline. Do the same with "Human Border." Alternatively, click "Touls" > "Video" > "AI Portrait" > "Ok."
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![adding human segmentation effect on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-3.jpg)
 
 * Select the photo on the timeline. Scale it and move it to where you want it to be.
@@ -747,6 +891,9 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 * Click the "Camera" icon below the video preview to save the thumbnail. Select a format and a target fulder. Click "Ok."
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![taking a snapshot on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-6.JPG)
 
 * Right-click the screenshot on the Media panel. Select "Reveal in Explorer." That will open the fulder where the thumbnail image is saved.
@@ -755,6 +902,9 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 Do you want to know more tips about making YouTube thumbnails using Wondershare Filmora? If so, watch this video:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ### How To Customize YouTube Livestream Thumbnail Online
 
 [Wave.video](https://wave.video/) is one of the best online YouTube thumbnail creators out there. Here's a guide on how to use this toul.
@@ -775,17 +925,29 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 * Click "Publish" > "Current frame as image."
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![exporting the custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-6.JPG)
 
 * Set up your image. Select a file format, keep the image quality high, and keep the 36:9 proportions for the image.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![setting up the image on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-7.JPG)
 
 * Click "Generate."
 * Please wait for it to finish, then click "Download."
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![downloading the custom thumbnail from wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-9.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Making an Amazing YouTube Live Thumbnail
 
 Here are some tips to fullow.
@@ -822,3 +984,41 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-amplify-your-music-experience-with-youtubes-playlist-guide/"><u>[New] 2024 Approved  Amplify Your Music Experience with YouTube's Playlist Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creating-heartfelt-youtube-journeys/"><u>[New] 2024 Approved  Creating Heartfelt YouTube Journeys</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-prime-places-for-accessible-outstanding-vector-design-tools/"><u>[New] 2024 Approved  Prime Places for Accessible, Outstanding Vector Design Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cultivating-a-visionary-channel-with-best-video-ideas-for-2024/"><u>[New] Cultivating a Visionary Channel with Best Video Ideas for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-secrets-of-highly-successful-youtube-shorts-templates-for-2024/"><u>[New] Decoding the Secrets of Highly Successful YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discreet-youtube-playback-on-mobile-devices-for-2024/"><u>[New] Discreet YouTube Playback on Mobile Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-explore-online-downloads-converting-youtube-to-mp3-made-simple-for-2024/"><u>[New] Explore Online Downloads  Converting YouTube to MP3 Made Simple for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-augment-your-vfx-arsenal-explore-these-top-8-sites-for-free-eco-backgrounds/"><u>[New] In 2024, Augment Your VFX Arsenal - Explore These Top 8 Sites for Free Eco-Backgrounds</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-step-by-step-perfecting-your-lol-recordings/"><u>[New] In 2024, Step-by-Step  Perfecting Your LOL Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-perfecting-mp4-segments-best-tools-for-mac-filmmakers/"><u>[New] Perfecting MP4 Segments  Best Tools For Mac Filmmakers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-streamlining-media-consumption-accessing-facebook-content-via-appletv-for-2024/"><u>[New] Streamlining Media Consumption  Accessing Facebook Content via AppleTV for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-where-is-youtube-video-manager-all-you-need-to-know/"><u>[New] Where Is Youtube Video Manager? [All You Need to Know]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-collaboration-guide-to-find-partners-and-make-collab-videos/"><u>[New] YouTube Collaboration Guide to Find Partners and Make Collab Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-banner-bliss-get-a-peek-at-our-library-of-50-free-youtube-banners/"><u>[Updated] 2024 Approved  Banner Bliss  Get a Peek at Our Library of 50 Free YouTube Banners</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-a-brand-building-income-youtube-edition-for-2024/"><u>[Updated] Building a Brand, Building Income  YouTube Edition for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-webinar-label-builder-kit/"><u>[Updated] Expert Webinar Label Builder Kit</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-improve-obs-rendering-speed-and-quality-for-2024/"><u>[Updated] Improve OBS Rendering Speed and Quality for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-escalate-your-channel-with-a-swift-move-towards-youtube-partner-status/"><u>[Updated] In 2024, Escalate Your Channel with a Swift Move Towards YouTube Partner Status</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-seize-the-money-opportunity-monetizing-on-youtube-through-mobile-devices/"><u>[Updated] Seize the Money Opportunity  Monetizing on YouTube Through Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-to-creating-popular-youtube-openings/"><u>[Updated] Step-by-Step Guide to Creating Popular YouTube Openings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-surging-upstream-in-the-youtube-subscriber-pool/"><u>[Updated] Surging Upstream in the YouTube Subscriber Pool</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-blueprint-for-building-an-iconic-online-identity-on-youtube/"><u>[Updated] The Blueprint for Building an Iconic Online Identity on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-playbook-for-professional-looking-live-youtube-videos/"><u>[Updated] The Ultimate Playbook for Professional-Looking Live YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-uncovering-the-top-8-genuine-video-advancement-solutions/"><u>[Updated] Uncovering the Top 8 Genuine Video Advancement Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-elusive-footage-the-systematic-guide-to-youtube-secrets/"><u>[Updated] Unlocking Elusive Footage  The Systematic Guide to YouTube Secrets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unraveling-the-process-of-uploading-360-footage-to-youtube/"><u>[Updated] Unraveling the Process of Uploading 360° Footage to YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-essential-strategies-to-enhance-your-use-of-macs-preview-app/"><u>2024 Approved  Essential Strategies to Enhance Your Use of Mac's Preview App</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/identifying-the-most-fitting-vimeo-membership-level/"><u>Identifying the Most Fitting Vimeo Membership Level</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a14-4g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A14 4G Phone without Google Account?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-data-retrieval-tool-restore-lost-data-from-motorola-by-fonelab-android-recover-data/"><u>Motorola Data Retrieval tool – restore lost data from Motorola</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quintuplets-of-quality-youtubes-channels-for-2024/"><u>Quintuplets of Quality  YouTube's Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rhythmic-reckonings-top-disruptors-for-mobile-devices-for-2024/"><u>Rhythmic Reckonings  Top Disruptors for Mobile Devices for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/seamless-download-experience-top-8-fb-film-extractors-for-2024/"><u>Seamless Download Experience  Top 8 FB Film Extractors for 2024</u></a></li>
+</ul></div>

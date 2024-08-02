@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Boost Your YouTube Presence with Personalized Annotations and Card Integration\""
-date: 2024-06-05T14:04:24.497Z
-updated: 2024-06-06T14:04:24.497Z
+date: 2024-08-01T07:31:45.132Z
+updated: 2024-08-02T07:31:45.132Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -45,12 +48,18 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
 * Click on the "Video Manager" tab
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
@@ -63,6 +72,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
@@ -75,11 +87,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -134,3 +152,45 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-compelling-youtube-narratives-with-chapters-and-subsections/"><u>[New] 2024 Approved  Crafting Compelling YouTube Narratives with Chapters and Subsections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-effortless-video-streams-youtube-loops-for-television-viewers/"><u>[New] 2024 Approved  Effortless Video Streams  YouTube Loops for Television Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-matters-ensuring-excellent-sound-in-your-youtube-shots-for-2024/"><u>[New] Audio Matters  Ensuring Excellent Sound in Your YouTube Shots for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-video-playback-embrace-the-power-of-av1-in-youtube-for-2024/"><u>[New] Elevate Video Playback  Embrace the Power of AV1 in YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-brand-explore-these-10-essential-youtube-creators-for-2024/"><u>[New] Elevate Your Brand  Explore These 10 Essential YouTube Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-viewers-to-patrons-a-vloggers-guide-to-income-for-2024/"><u>[New] Elevating Viewers to Patrons  A Vlogger's Guide to Income for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>[New] In 2024, A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-deciphering-highlighted-discussion-threads/"><u>[New] In 2024, Deciphering Highlighted Discussion Threads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-editprime-vision/"><u>[New] In 2024, EditPrime Vision</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-instantaneous-timestamping-for-your-youtube-urls/"><u>[New] Instantaneous Timestamping for Your YouTube URLs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-perfect-panning-leading-stabilizers-unveiled/"><u>[New] Perfect Panning  Leading Stabilizers Unveiled</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-experts-blueprint-boosting-income-via-vimeo-advertising/"><u>[Updated] 2024 Approved  The Expert's Blueprint  Boosting Income via Vimeo Advertising</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-charting-the-future-the-next-gen-youtube-festivals-for-2024/"><u>[Updated] Charting the Future  The Next Gen Youtube Festivals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comprehensive-guide-your-shorts-hidden-thumbnails-for-2024/"><u>[Updated] Comprehensive Guide  Your Shorts' Hidden Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elite-stabilization-solutions-for-video-creators-for-2024/"><u>[Updated] Elite Stabilization Solutions for Video Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-gaming-to-goals-celebrating-the-top-10-ladies-on-youtube/"><u>[Updated] From Gaming to Goals  Celebrating the Top 10 Ladies on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gain-ground-by-generating-earnings-on-your-youtube-channel-like-ajay/"><u>[Updated] Gain Ground by Generating Earnings on Your Youtube Channel Like Ajay</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-achieve-sharpness-camera-tips-without-a-tripod/"><u>[Updated] In 2024, Achieve Sharpness  Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-earn-online-via-youtube-how-reaching-500-subscribers-pays-off/"><u>[Updated] In 2024, Earn Online via YouTube  How Reaching 500 Subscribers Pays Off</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-sound-with-these-asmr-apps/"><u>[Updated] In 2024, Elevate Sound with These ASMR Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-outwit-youtube-visitors-tips-to-evade-automated-audiences/"><u>[Updated] Outwit YouTube Visitors  Tips to Evade Automated Audiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-redefinition-adjusting-youtube-on-mac-pixels/"><u>[Updated] Rapid Redefinition  Adjusting YouTube on Mac Pixels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-recording-skype-calls-quick-guide-for-windows-and-mac-users/"><u>[Updated] Recording Skype Calls - Quick Guide for Windows and Mac Users</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-restore-original-sound-in-tweet-video-links/"><u>[Updated] Restore Original Sound in Tweet Video Links</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-swipe-right-on-creativity-youtubes-top-techniques-for-greenscreens/"><u>[Updated] Swipe Right on Creativity  YouTube’s Top Techniques for Greenscreens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-partner-program-2024-how-to-join-and-monetize-your-channel/"><u>[Updated] YouTube Partner Program 2024  How to Join and Monetize Your Channel</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>10 Best Fake GPS Location Spoofers for Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-beyond-standard-views-a-detailed-look-at-the-z32x-model/"><u>2024 Approved  Beyond Standard Views  A Detailed Look at the Z32X Model</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-comparative-study-pre-and-post-vegaspro-19/"><u>A Comparative Study  Pre and Post-VegasPro '19</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/detecting-instagram-disconnections-fast/"><u>Detecting Instagram Disconnections Fast</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-samsung-galaxy-s23-ultra-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Samsung Galaxy S23 Ultra Location Settings | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-infinix-hot-40i-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Infinix Hot 40i Phone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-open-your-apple-iphone-7-plus-without-a-home-button-drfone-by-drfone-ios/"><u>In 2024, How To Open Your Apple iPhone 7 Plus Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-xiaomi-redmi-note-12-4g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Xiaomi Redmi Note 12 4G Phones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/precise-video-queue-a-step-by-step-guide-to-creating-an-effective-playlist-on-youtube-for-2024/"><u>Precise Video Queue  A Step-by-Step Guide to Creating an Effective Playlist on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pro-gif-makers-roundup-online-vs-desktop-platforms-for-2024/"><u>Pro-Gif Makers Roundup  Online vs Desktop Platforms for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-motorola-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Motorola</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-branding-edge-design-strategies-for-game-changing-banners-for-2024/"><u>The Branding Edge  Design Strategies for Game-Changing Banners for 2024</u></a></li>
+</ul></div>

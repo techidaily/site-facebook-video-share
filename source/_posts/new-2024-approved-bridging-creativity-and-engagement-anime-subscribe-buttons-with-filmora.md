@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Bridging Creativity & Engagement - Anime Subscribe Buttons with Filmora\""
-date: 2024-06-05T16:29:22.004Z
-updated: 2024-06-06T16:29:22.004Z
+date: 2024-08-01T11:37:34.816Z
+updated: 2024-08-02T11:37:34.816Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
 # How to Make Your YouTube Animated Subscribe Button Easily With Filmora
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,42 +39,79 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 **Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
 
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
 
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
 
 **Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
 
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
 
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
 
 **Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 **Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
 
 **Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
 
 **Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 **Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
 
 You may also like: [**How to Get People to Subscribe Channel**](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -96,3 +136,40 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-powerful-partnerships-a-guide-to-choosing-youtube-allies/"><u>[New] 2024 Approved  Crafting Powerful Partnerships  A Guide to Choosing YouTube Allies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>[New] 2024 Approved  Decoding YouTube's Mystery  A Sequential Exploration Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-insights-for-asmr-aficionados/"><u>[New] 2024 Approved  Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-youtube-video-screens-without-barriers-for-2024/"><u>[New] Enhancing YouTube Video Screens  Without Barriers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mobile-sound-library-explore-the-best-free-downloader-apps-for-youtube/"><u>[New] Mobile Sound Library  Explore the Best Free Downloader Apps for YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-seamless-download-experience-top-8-fb-film-extractors/"><u>[New] Seamless Download Experience  Top 8 FB Film Extractors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlining-monetization-strategies-on-youtube/"><u>[New] Streamlining Monetization Strategies on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-subtitle-extraction-top-10-free-apps-rated/"><u>[New] Subtitle Extraction  Top 10 Free Apps Rated</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-webcams-unveiled-a-youtube-livestreamers-handbook/"><u>[Updated] 2024 Approved  Best Webcams Unveiled  A YouTube Livestreamer's Handbook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tiktoks-viral-video-wave-twitters-top-10-rankings/"><u>[Updated] 2024 Approved  TikTok's Viral Video Wave  Twitter's Top 10 Rankings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enjoy-endless-creativity-discover-the-best-in-cheap-online-video-downloading-for-2024/"><u>[Updated] Enjoy Endless Creativity  Discover the Best in Cheap, Online Video Downloading for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harnessing-imovies-capabilities-for-youtube-video-perfection/"><u>[Updated] Harnessing iMovie's Capabilities for YouTube Video Perfection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-breaking-into-the-world-of-youtube-stellar-intros-in-imovie/"><u>[Updated] In 2024, Breaking Into the World of YouTube  Stellar Intros in iMovie</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-elite-fighters-unleashed-selecting-superior-street-fighter-clones/"><u>[Updated] In 2024, Elite Fighters Unleashed  Selecting Superior Street Fighter Clones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-how-to-download-youtube-videos-without-any-software/"><u>[Updated] In 2024, How to Download YouTube Videos without Any Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-technique-long-term-disabling-of-youtube-shorts/"><u>[Updated] Master Technique  Long-Term Disabling of YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-masterful-video-analytics-unlocking-potential-with-social-blade-and-youtube/"><u>[Updated] Masterful Video Analytics  Unlocking Potential with Social Blade & YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-the-art-of-social-media-top-7-essential-tiktok-emojis-for-2024/"><u>[Updated] Mastering the Art of Social Media  Top 7 Essential TikTok Emojis for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-5-noise-canceling-gaming-mics/"><u>[Updated] Premium 5 Noise-Canceling Gaming Mics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-style-sleuths-influential-beauty-creators/"><u>[Updated] Style Sleuths  Influential Beauty Creators</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-chucklechain-master-the-art-of-memes-at-home/"><u>2024 Approved  ChuckleChain  Master the Art of Memes at Home</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-high-definition-chroma-blade-photography/"><u>2024 Approved  Exploring High-Definition Chroma Blade Photography</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/7-faqs-about-youtube-shorts-thumbnail-not-showing-problem-for-2024/"><u>7 FAQs About YouTube Shorts Thumbnail Not Showing Problem for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/discover-top-affordable-video-editors-of-2023-today-in-2024/"><u>Discover Top Affordable Video Editors of 2023 Today, In 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exploring-lgs-new-tech-horizon-in-bp550/"><u>Exploring LG's New Tech Horizon in BP550</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-xiaomi-redmi-note-12r-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Xiaomi Redmi Note 12R to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-mobile-tools-optimize-and-enhance-audio-faster/"><u>In 2024, Mobile Tools  Optimize and Enhance Audio Faster</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-videoblogging-victory-surviving-ten-frequent-phobias/"><u>In 2024, Videoblogging Victory  Surviving Ten Frequent Phobias</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimize-content-collaboration-in-youtube-for-increased-engagement-for-2024/"><u>Optimize Content Collaboration in YouTube for Increased Engagement for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/proven-practice-for-preserving-playthroughs-tips-and-tricks-for-recording-roblox-gameplay-on-a-mac/"><u>Proven Practice for Preserving Playthroughs  Tips & Tricks for Recording Roblox Gameplay on a Mac</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/storyboard-pro-for-win8-for-2024/"><u>StoryBoard Pro for Win8 for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-9-apple-iphone-7-plus-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-ios/"><u>Top 9 Apple iPhone 7 Plus Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transforming-your-spotify-list-into-a-youtube-music-collection-for-2024/"><u>Transforming Your Spotify List Into a YouTube Music Collection for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-higher-rankings-essential-tips-to-elevate-your-yt-content-for-2024/"><u>Unlock Higher Rankings  Essential Tips to Elevate Your YT Content for 2024</u></a></li>
+</ul></div>

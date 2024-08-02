@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering YouTube Video Illumination Techniques"
-date: 2024-06-05T16:33:04.325Z
-updated: 2024-06-06T16:33:04.325Z
+date: 2024-08-01T11:43:49.881Z
+updated: 2024-08-02T11:43:49.881Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/5e4f2e08bc06e83ddb45587d928cf61d9245bd50e
 
 # How To Light Your YouTube Video
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,6 +43,9 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -49,6 +56,9 @@ Window lighting for me was especially difficult to work with because I live in a
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
@@ -61,6 +71,9 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
@@ -81,6 +94,9 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -89,12 +105,18 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -111,3 +133,50 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-behind-the-numbers-deciphering-how-youtube-measures-popularity/"><u>[New] 2024 Approved  Behind the Numbers  Deciphering How YouTube Measures Popularity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-free-introduction-software-for-youtubers/"><u>[New] 2024 Approved  Best Free Introduction Software for Youtubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-tips-and-tricks-for-creating-killer-short-videos-on-yt/"><u>[New] 2024 Approved  Essential Tips and Tricks for Creating Killer Short Videos on YT</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-smoothrecorder-ultimate-edition/"><u>[New] 2024 Approved  SmoothRecorder Ultimate Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-explore-8plus-places-for-gratis-hdr-environments-and-clips-for-2024/"><u>[New] Explore 8+ Places for Gratis HDR Environments & Clips for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1716068996817-new-explore-android-written-by-dr-jane-smith-a-renowned-psychologist-specializing-in-cognitive-development-and-learning-styles-for-2024/"><u>[New] Explore Android' Written By  Dr. Jane Smith, a Renowned Psychologist Specializing in Cognitive Development and Learning Styles. For 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-youtube-presence-with-optimal-post-times/"><u>[New] In 2024, Elevate Your YouTube Presence with Optimal Post Times</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-audio-techniques-capturing-clear-sound/"><u>[New] In 2024, Essential Audio Techniques  Capturing Clear Sound</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-intercept-non-requested-youtube-video-alerts/"><u>[New] Intercept Non-Requested YouTube Video Alerts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-jake-pauls-youtube-success-story-all-you-need-to-know/"><u>[New] Jake Paul's YouTube Success Story - All You Need to Know</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unmatched-download-experience-with-our-top-tools-list/"><u>[New] Unmatched Download Experience with Our Top Tools List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>[Updated] 2024 Approved  Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-apex-top-youtube-videos-watch-count-heaven-for-2024/"><u>[Updated] Apex Top YouTube Videos  Watch Count Heaven for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-bend-twist-and-shape-your-digital-pics/"><u>[Updated] Bend, Twist & Shape Your Digital Pics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-captivating-cold-ideal-snowy-scenes-to-brighten-videos-for-2024/"><u>[Updated] Captivating Cold  Ideal Snowy Scenes to Brighten Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-name-inspiration-strategies-for-success-for-2024/"><u>[Updated] Channel Name Inspiration  Strategies for Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-chic-looks-the-ultimate-cosmetic-compendium-for-2024/"><u>[Updated] Crafting Chic Looks  The Ultimate Cosmetic Compendium for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficient-ways-to-delete-previewed-content-from-youtubes-queue-for-2024/"><u>[Updated] Efficient Ways to Delete Previewed Content From YouTube's Queue for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engage-and-inspire-audiences-professional-level-tips-for-youtube-edits-for-2024/"><u>[Updated] Engage and Inspire Audiences  Professional-Level Tips for YouTube Edits for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-building-blueprint-reaching-1k-subs-rapidly/"><u>[Updated] In 2024, Channel Building Blueprint  Reaching 1K Subs Rapidly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-team-videos-to-foster-viewership-and-following/"><u>[Updated] In 2024, Crafting Team Videos to Foster Viewership and Following</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cultivating-confidence-for-captivating-your-youtube-audience/"><u>[Updated] In 2024, Cultivating Confidence for Captivating Your YouTube Audience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-the-cord-on-costs-select-best-free-yt-title-makers/"><u>[Updated] In 2024, Cutting the Cord on Costs - Select Best-Free YT Title Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-guide-9-cost-free-editing-tools-for-creatives/"><u>[Updated] In 2024, Essential Guide  9 Cost-Free Editing Tools for Creatives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-smart-video-tactics-for-small-enterprises/"><u>[Updated] SMART Video Tactics for Small Enterprises</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-sweet-scene-capture-masterclass-in-freeze-dried-filmmaking-for-2024/"><u>[Updated] Sweet Scene Capture  Masterclass in Freeze-Dried Filmmaking for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-in-depth-guide-to-screen-capturing-in-online-meetings/"><u>[Updated] The In-Depth Guide to Screen Capturing in Online Meetings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-banners-makers-10-online-tools-to-create-channel-art/"><u>[Updated] YouTube Banners Makers  10 Online Tools to Create Channel Art</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-untapped-potential-to-augment-your-youtube-audience/"><u>2024 Approved  Unveiling Untapped Potential to Augment Your Youtube Audience</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/hp-printer-setup-error-cant-find-driver-on-windows-os/"><u>HP Printer Setup Error: Can't Find Driver on Windows OS</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-vivo-y36-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Vivo Y36 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-blueprint-for-a-smooth-youtube-to-facebook-content-flow/"><u>In 2024, Your Blueprint for a Smooth YouTube to Facebook Content Flow</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-entrepreneurship-building-a-recognizable-brand/"><u>In 2024, YouTube Entrepreneurship  Building a Recognizable Brand</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/inside-the-studio-magix-vpx-leading-media-production/"><u>Inside the Studio  Magix VPX Leading Media Production</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/open-source-banner-resources-a-gift-to-youtubers-for-2024/"><u>Open Source Banner Resources  A Gift to YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/propel-content-to-prominence-leverage-tubebuddys-power-for-2024/"><u>Propel Content to Prominence  Leverage TubeBuddy's Power for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionize-your-videos-top-10-mobile-editing-apps-on-iosandroid-for-2024/"><u>Revolutionize Your Videos  Top 10 Mobile Editing Apps on iOS/Android for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/taking-control-mastering-the-art-of-background-removal/"><u>Taking Control  Mastering the Art of Background Removal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-cost-free-cgi-mastery-via-4-youtube-experts-insights-for-2024/"><u>The Ultimate Guide to Cost-Free CGI Mastery via 4 YouTube Experts' Insights for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleashing-potential-mastering-advertising-partnerships-with-famebit-for-2024/"><u>Unleashing Potential  Mastering Advertising Partnerships with FameBit for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-the-secrets-behind-youtube-shorts-success-for-2024/"><u>Unlocking the Secrets Behind YouTube Shorts Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtubes-inner-workings-your-path-to-success-for-2024/"><u>Unlocking YouTube's Inner Workings  Your Path to Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/which-channel-pulls-more-money-dailymotion-versus-youtube-monetization-for-2024/"><u>Which Channel Pulls More Money? Dailymotion Versus YouTube Monetization for 2024</u></a></li>
+</ul></div>

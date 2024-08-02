@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Cultivating a Positive Mindset Against Cyberbullying"
-date: 2024-06-05T16:01:06.866Z
-updated: 2024-06-06T16:01:06.866Z
+date: 2024-08-01T10:49:18.261Z
+updated: 2024-08-02T10:49:18.261Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
 
 # How To Deal with YouTube Trolls and Negative Comments
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -26,6 +29,9 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -52,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -68,3 +78,44 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-uncovering-10-premier-youtube-sources-for-history-buffs/"><u>[New] 2024 Approved  Uncovering 10 Premier YouTube Sources for History Buffs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieve-financial-success-on-youtube-start-at-500-views/"><u>[New] In 2024, Achieve Financial Success on YouTube  Start at 500 Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-audio-quality-get-high-quality-fx/"><u>[New] In 2024, Enhance Audio Quality, Get High-Quality FX</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-alchemy-of-animation-in-snapchat-videos/"><u>[New] In 2024, The Alchemy of Animation in Snapchat Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-arena-crafting-the-quintessential-7-total-war-tactics/"><u>[New] In 2024, Ultimate Arena  Crafting the Quintessential 7 Total War Tactics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-instantly-convert-online-tutorials-into-interactive-animation-gifs/"><u>[New] Instantly Convert Online Tutorials Into Interactive Animation GIFs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-copyright-challenges-on-youtube-shorts/"><u>[New] Navigating Copyright Challenges on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>[New] YouTube to Dailymotion  Transferring Videos Seamlessly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cost-effective-subscriber-growth-hundreds-at-a-bargain-price/"><u>[Updated] 2024 Approved  Cost-Effective Subscriber Growth - Hundreds at a Bargain Price</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-evaluating-best-youtube-extractors-available-on-android/"><u>[Updated] 2024 Approved  Evaluating Best YouTube Extractors Available on Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-vlogging-selecting-the-best-cameras-and-lenses/"><u>[Updated] 2024 Approved  Exploring Vlogging  Selecting the Best Cameras & Lenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beyond-likes-understanding-youtubes-true-view-metrics-for-2024/"><u>[Updated] Beyond Likes  Understanding YouTube’s True View Metrics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-digital-dollars-kings-and-queens-youtube-edition-for-2024/"><u>[Updated] Digital Dollars Kings & Queens  YouTube Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-barely-known-to-famous-elevate-your-viewership-on-youtube/"><u>[Updated] From Barely Known to Famous  Elevate Your Viewership on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-flair-free-download-templates/"><u>[Updated] In 2024, Channel Flair  Free Download Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-engaging-youtube-beginnings-two-methods/"><u>[Updated] In 2024, Crafting Engaging YouTube Beginnings  Two Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>[Updated] In 2024, Essential Steps to Producing a YouTube Hit  Music Reaction Video Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-techniques-for-splendid-lyric-videos-lyric-video-maker-edition/"><u>[Updated] In 2024, Essential Techniques for Splendid Lyric Videos, Lyric Video Maker Edition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-exploring-shared-videos-and-images-via-messenger/"><u>[Updated] In 2024, Exploring Shared Videos & Images via Messenger</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-value-of-a-million-viewing-spree-on-youtube/"><u>[Updated] In 2024, The Value of a Million-Viewing Spree on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shortcut-to-go-to-tags-maximizing-your-youtube-impact/"><u>[Updated] Shortcut to Go-To Tags  Maximizing Your YouTube Impact</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-distribute-your-youtube-collection/"><u>[Updated] Step-by-Step Guide  Distribute Your YouTube Collection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-customization-embedding-text-in-youtube-cards/"><u>[Updated] Unlocking Customization  Embedding Text in YouTube Cards</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-earnings-exploration-breakdown-of-adsense-payouts-per-kv-watcher/"><u>[Updated] Youtube Earnings Exploration  Breakdown of AdSense Payouts Per KV Watcher</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-amplifying-visuals-android-video-guide/"><u>2024 Approved  Amplifying Visuals  Android Video Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-iphone-12-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off iPhone 12 without Password</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-realme-c55-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Realme C55 Fingerprint Lock</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-vivo-g2-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo G2 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-14-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone 14 Without Backup? | Stellar</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-10-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>In 2024, 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-tecno-pop-7-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Tecno Pop 7 Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-to-do-if-your-apple-iphone-6-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>In 2024, What to do if your Apple iPhone 6 has bad ESN or blacklisted IMEI?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/palette-perfection-the-science-of-video-chromaticity-for-2024/"><u>Palette Perfection  The Science of Video Chromaticity for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-checklist-for-youtube-short-success-for-2024/"><u>The Ultimate Checklist for YouTube Short Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tips-for-effortless-upload-of-high-definition-videos-to-youtube-for-2024/"><u>Tips for Effortless Upload of High Definition Videos to Youtube for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/unlock-the-secrets-of-webinar-recording-a-users-manual-macos-windows-for-2024/"><u>Unlock the Secrets of Webinar Recording  A User's Manual (macOS, Windows) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtubes-potential-key-tactics-for-expanding-your-viewership-for-2024/"><u>Unlocking YouTube's Potential  Key Tactics for Expanding Your Viewership for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/what-are-youtube-tags-and-how-can-you-find-great-tags-for-your-videos-for-2024/"><u>What Are YouTube Tags and How Can You Find Great Tags For Your Videos for 2024</u></a></li>
+</ul></div>

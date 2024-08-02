@@ -1,7 +1,7 @@
 ---
 title: "\"[New] YouTube Banner Blueprints  A Gamers' Design Handbook\""
-date: 2024-06-05T13:26:25.169Z
-updated: 2024-06-06T13:26:25.169Z
+date: 2024-08-01T06:27:34.760Z
+updated: 2024-08-02T06:27:34.760Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ For example, a banner for your YouTube gaming channel plays a similar role to si
 * Secondly, a well-designed banner reflects positively on your brand and helps you grow your audience at a steady rate.
 * Thirdly, you can use your banner to give your viewers a rough idea of what your video is about without them clicking to watch. A suitable banner can cause anticipation to build within your viewers. Once the video is over, they won’t resist visiting your channel to see what else you offer.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Guide to YouTube Gaming Banner Size
 
 We can liken a banner for your YouTube video to a book cover to a novel you have been dying to read. Therefore, it would be wise to get the size right if you want to create an excellent first impression for yourself. Ideally, the best size for a YouTube banner is 2560\*1440 pixels or an aspect ratio of 16:9.
@@ -40,6 +43,9 @@ We urge you not to upload a banner smaller than 2048\*1152 pixels, or else the i
 
 This YouTube banner dimension is ideal for viewing on any device since your audience might use their smartphones or laptop to watch your videos on YouTube. Lastly, ensure you keep the file to a maximum of 6MB. We believe this file size is pretty generous.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Designing an Attractive Gaming YouTube Banner
 
 Below are some tips that will help you create beautiful YouTube banners.
@@ -60,6 +66,9 @@ First and foremost, a gaming youtube banner template takes the tedium out of cre
 
 You probably have other expenses breathing down your neck. No need to add your YouTube banner to the list. A youtube gaming channel banner template a budget-friendly way to create stunning designs for your banner that actually look good. If you are lucky, you might find free programs to help you create gorgeous YouTube banners for your gaming channel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Make YouTube Gaming Banners With Templates in Filmora
 
 Now that you understand why a gaming channel banner template is essential for your YouTube channel, you might wonder where you can find some good ones to incorporate into your videos. Don’t worry because Filmora is precisely what you need.
@@ -76,12 +85,18 @@ Below is a detailed step-by-step guide on how to make a gaming YouTuber banner t
 
 Step 1\. After creating a project with Filmora, click on the “File” tab, wait for a drop-down menu to appear, and select “Project Settings.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/filmora-project-setting.jpg)
 
 Step 2\. Once a dialogue box appears, go to the “Resolution” tab and adjust the resolution to 2560\*1140.
 
 Step 3\. Upload your footage or photo from your internal storage by clicking on the logo below.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![import footage to filmora](https://images.wondershare.com/filmora/article-images/import-footage-to-filmora.jpg)
 
 Step 4\. Click on the “Template” tab at the top of the page and click “Game.” Browse the available templates till you see one you like.
@@ -112,6 +127,9 @@ Step 10\. Once the snapshot appears in the Media Panel, right-click on it to ope
 
 ![reveal in explorer filmora](https://images.wondershare.com/filmora/article-images/reveal-in-explorer-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5 Websites for Gaming Banner Templates Your YouTube
 
 Wondershare Filmora is not the only platform you can use to create banner templates for your YouTube channel. Here is a list of 5 more websites you can try and a detailed breakdown of the remarkable features you are bound to enjoy.
@@ -120,6 +138,9 @@ Wondershare Filmora is not the only platform you can use to create banner templa
 
 The first alternative to Filmora on our list is Canva, which has thousands of professional, ready-made designs to wow your audience. You can work alone or with a dedicated team to ensure you design only the best banner for your channel to attract the masses to the kind of content you create.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![canva gaming templates](https://images.wondershare.com/filmora/article-images/canva-gaming-banner-template.jpg)
 
 ### 2\. PosterMyWall
@@ -138,8 +159,14 @@ Another suitable alternative to Filmora is Freepik. We guarantee you cannot exha
 
 The fourth alternative on our list is Pickmaker, a sure way to take your gaming channel to the next level. The templates are arranged in broad categories to help you pick the best one based on the type of content you post. In addition, you don’t have to part with your precious monies to start designing YouTube banners with Pickmaker.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![picmaker gaming banner template](https://images.wondershare.com/filmora/article-images/picmaker-gaming-banner-template.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Placeit
 
 Last but definitely not least is Placeit, which contains picturesque templates fitting for a gaming YouTube channel. We guarantee your audience won’t resist clicking on your videos once you use any of the templates within this platform. All you need to do is create a free account to enjoy the perks. Placeit makes your work easier by allowing you to indicate your favorite templates for use later.
@@ -180,10 +207,132 @@ Step 6\. Replace the sample footage in the template by dragging and dropping you
 
 Step 7\. Customize the footage and change the settings until you are happy with the outcome. Edit the text using the tools provided in the platform.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit text in filmora](https://images.wondershare.com/filmora/article-images/edit-text-filmora.jpg)
 
 Step 8\. Take a screenshot of the final result.
 
+![take snapshot in filmora](https://images.wondershare.com/filmora/article-images/take-snapshot-filmora.jpg)
+
+Step 9\. Specify the snapshot format and choose the storage location before saving a copy to your device.
+
+![snapshot window in filmora](https://images.wondershare.com/filmora/article-images/snapshot-window-filmora.jpg)
+
+Step 10\. Once the snapshot appears in the Media Panel, right-click on it to open. Select “Reveal in Explorer” to locate the picture in your internal storage. You can now use the photo as your YouTube gaming banner.
+
+![reveal in explorer filmora](https://images.wondershare.com/filmora/article-images/reveal-in-explorer-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
+## 5 Websites for Gaming Banner Templates Your YouTube
+
+Wondershare Filmora is not the only platform you can use to create banner templates for your YouTube channel. Here is a list of 5 more websites you can try and a detailed breakdown of the remarkable features you are bound to enjoy.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+### 1\. Canva
+
+The first alternative to Filmora on our list is Canva, which has thousands of professional, ready-made designs to wow your audience. You can work alone or with a dedicated team to ensure you design only the best banner for your channel to attract the masses to the kind of content you create.
+
+![canva gaming templates](https://images.wondershare.com/filmora/article-images/canva-gaming-banner-template.jpg)
+
+### 2\. PosterMyWall
+
+We couldn’t forget to include PosterMyWall to our list, which has pre-made templates you can customize to suit your needs. With PosterMyWall, you can save the time you could have used to design a banner from scratch to think of more content for your channel. The developers suggest various templates you might like, not to mention that you can sign up for free!
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
+![postermywall gaming templates](https://images.wondershare.com/filmora/article-images/postermywall-gaming-banner-templates.jpg)
+
+### 3\. Freepik
+
+Another suitable alternative to Filmora is Freepik. We guarantee you cannot exhaust all the numerous templates this platform offers. Each template is unique, with different color combinations and fonts to cater to the theme colors on your YouTube channel. You could opt for the free version or sign up for a Premium account and get 30% off.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
+![freepik gameing template](https://images.wondershare.com/filmora/article-images/freepik-gaming-banner-template.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
+### 4\. Pickmaker
+
+The fourth alternative on our list is Pickmaker, a sure way to take your gaming channel to the next level. The templates are arranged in broad categories to help you pick the best one based on the type of content you post. In addition, you don’t have to part with your precious monies to start designing YouTube banners with Pickmaker.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
+![picmaker gaming banner template](https://images.wondershare.com/filmora/article-images/picmaker-gaming-banner-template.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 5\. Placeit
+
+Last but definitely not least is Placeit, which contains picturesque templates fitting for a gaming YouTube channel. We guarantee your audience won’t resist clicking on your videos once you use any of the templates within this platform. All you need to do is create a free account to enjoy the perks. Placeit makes your work easier by allowing you to indicate your favorite templates for use later.
+
+![placeit gaming banner template](https://images.wondershare.com/filmora/article-images/placeit-gaming-banner-template.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Conclusion
+
+Gaming content is far from boring, and neither should your banner. Remember, your audience will judge you based on your banner, the first content they interact with before they click to watch your video.
+
+The better you can design your banner, the higher your chances of growing an audience that supports you by watching your content regularly. Once you have created an enticing banner, all that’s left is to ensure you have the content to match.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+Below is a detailed step-by-step guide on how to make a gaming YouTuber banner template with Wondershare Filmora.
+
+Step 1\. After creating a project with Filmora, click on the “File” tab, wait for a drop-down menu to appear, and select “Project Settings.”
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![filmora project settings](https://images.wondershare.com/filmora/article-images/filmora-project-setting.jpg)
+
+Step 2\. Once a dialogue box appears, go to the “Resolution” tab and adjust the resolution to 2560\*1140.
+
+Step 3\. Upload your footage or photo from your internal storage by clicking on the logo below.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
+![import footage to filmora](https://images.wondershare.com/filmora/article-images/import-footage-to-filmora.jpg)
+
+Step 4\. Click on the “Template” tab at the top of the page and click “Game.” Browse the available templates till you see one you like.
+
+![filmora game templates](https://images.wondershare.com/filmora/article-images/game-templates-filmora.jpg)
+
+Step 5\. Drag and drop the template you have chosen to the timeline as shown below.
+
+![drag game templates to timeline](https://images.wondershare.com/filmora/article-images/drag-filmora-game-template-to-timeline.jpg)
+
+Step 6\. Replace the sample footage in the template by dragging and dropping your own footage into the timeline.
+
+![replace media clips filmora](https://images.wondershare.com/filmora/article-images/replace-media-clips-in-filmora.jpg)
+
+Step 7\. Customize the footage and change the settings until you are happy with the outcome. Edit the text using the tools provided in the platform.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![edit text in filmora](https://images.wondershare.com/filmora/article-images/edit-text-filmora.jpg)
+
+Step 8\. Take a screenshot of the final result.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![take snapshot in filmora](https://images.wondershare.com/filmora/article-images/take-snapshot-filmora.jpg)
 
 Step 9\. Specify the snapshot format and choose the storage location before saving a copy to your device.
@@ -202,32 +351,50 @@ Wondershare Filmora is not the only platform you can use to create banner templa
 
 The first alternative to Filmora on our list is Canva, which has thousands of professional, ready-made designs to wow your audience. You can work alone or with a dedicated team to ensure you design only the best banner for your channel to attract the masses to the kind of content you create.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![canva gaming templates](https://images.wondershare.com/filmora/article-images/canva-gaming-banner-template.jpg)
 
 ### 2\. PosterMyWall
 
 We couldn’t forget to include PosterMyWall to our list, which has pre-made templates you can customize to suit your needs. With PosterMyWall, you can save the time you could have used to design a banner from scratch to think of more content for your channel. The developers suggest various templates you might like, not to mention that you can sign up for free!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![postermywall gaming templates](https://images.wondershare.com/filmora/article-images/postermywall-gaming-banner-templates.jpg)
 
 ### 3\. Freepik
 
 Another suitable alternative to Filmora is Freepik. We guarantee you cannot exhaust all the numerous templates this platform offers. Each template is unique, with different color combinations and fonts to cater to the theme colors on your YouTube channel. You could opt for the free version or sign up for a Premium account and get 30% off.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![freepik gameing template](https://images.wondershare.com/filmora/article-images/freepik-gaming-banner-template.jpg)
 
 ### 4\. Pickmaker
 
 The fourth alternative on our list is Pickmaker, a sure way to take your gaming channel to the next level. The templates are arranged in broad categories to help you pick the best one based on the type of content you post. In addition, you don’t have to part with your precious monies to start designing YouTube banners with Pickmaker.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![picmaker gaming banner template](https://images.wondershare.com/filmora/article-images/picmaker-gaming-banner-template.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### 5\. Placeit
 
 Last but definitely not least is Placeit, which contains picturesque templates fitting for a gaming YouTube channel. We guarantee your audience won’t resist clicking on your videos once you use any of the templates within this platform. All you need to do is create a free account to enjoy the perks. Placeit makes your work easier by allowing you to indicate your favorite templates for use later.
 
 ![placeit gaming banner template](https://images.wondershare.com/filmora/article-images/placeit-gaming-banner-template.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Gaming content is far from boring, and neither should your banner. Remember, your audience will judge you based on your banner, the first content they interact with before they click to watch your video.
@@ -250,10 +417,16 @@ Step 3\. Upload your footage or photo from your internal storage by clicking on 
 
 Step 4\. Click on the “Template” tab at the top of the page and click “Game.” Browse the available templates till you see one you like.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora game templates](https://images.wondershare.com/filmora/article-images/game-templates-filmora.jpg)
 
 Step 5\. Drag and drop the template you have chosen to the timeline as shown below.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drag game templates to timeline](https://images.wondershare.com/filmora/article-images/drag-filmora-game-template-to-timeline.jpg)
 
 Step 6\. Replace the sample footage in the template by dragging and dropping your own footage into the timeline.
@@ -270,26 +443,44 @@ Step 8\. Take a screenshot of the final result.
 
 Step 9\. Specify the snapshot format and choose the storage location before saving a copy to your device.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![snapshot window in filmora](https://images.wondershare.com/filmora/article-images/snapshot-window-filmora.jpg)
 
 Step 10\. Once the snapshot appears in the Media Panel, right-click on it to open. Select “Reveal in Explorer” to locate the picture in your internal storage. You can now use the photo as your YouTube gaming banner.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![reveal in explorer filmora](https://images.wondershare.com/filmora/article-images/reveal-in-explorer-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5 Websites for Gaming Banner Templates Your YouTube
 
 Wondershare Filmora is not the only platform you can use to create banner templates for your YouTube channel. Here is a list of 5 more websites you can try and a detailed breakdown of the remarkable features you are bound to enjoy.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Canva
 
 The first alternative to Filmora on our list is Canva, which has thousands of professional, ready-made designs to wow your audience. You can work alone or with a dedicated team to ensure you design only the best banner for your channel to attract the masses to the kind of content you create.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![canva gaming templates](https://images.wondershare.com/filmora/article-images/canva-gaming-banner-template.jpg)
 
 ### 2\. PosterMyWall
 
 We couldn’t forget to include PosterMyWall to our list, which has pre-made templates you can customize to suit your needs. With PosterMyWall, you can save the time you could have used to design a banner from scratch to think of more content for your channel. The developers suggest various templates you might like, not to mention that you can sign up for free!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![postermywall gaming templates](https://images.wondershare.com/filmora/article-images/postermywall-gaming-banner-templates.jpg)
 
 ### 3\. Freepik
@@ -302,94 +493,18 @@ Another suitable alternative to Filmora is Freepik. We guarantee you cannot exha
 
 The fourth alternative on our list is Pickmaker, a sure way to take your gaming channel to the next level. The templates are arranged in broad categories to help you pick the best one based on the type of content you post. In addition, you don’t have to part with your precious monies to start designing YouTube banners with Pickmaker.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![picmaker gaming banner template](https://images.wondershare.com/filmora/article-images/picmaker-gaming-banner-template.jpg)
 
 ### 5\. Placeit
 
 Last but definitely not least is Placeit, which contains picturesque templates fitting for a gaming YouTube channel. We guarantee your audience won’t resist clicking on your videos once you use any of the templates within this platform. All you need to do is create a free account to enjoy the perks. Placeit makes your work easier by allowing you to indicate your favorite templates for use later.
 
-![placeit gaming banner template](https://images.wondershare.com/filmora/article-images/placeit-gaming-banner-template.jpg)
-
-## Conclusion
-
-Gaming content is far from boring, and neither should your banner. Remember, your audience will judge you based on your banner, the first content they interact with before they click to watch your video.
-
-The better you can design your banner, the higher your chances of growing an audience that supports you by watching your content regularly. Once you have created an enticing banner, all that’s left is to ensure you have the content to match.
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-Below is a detailed step-by-step guide on how to make a gaming YouTuber banner template with Wondershare Filmora.
-
-Step 1\. After creating a project with Filmora, click on the “File” tab, wait for a drop-down menu to appear, and select “Project Settings.”
-
-![filmora project settings](https://images.wondershare.com/filmora/article-images/filmora-project-setting.jpg)
-
-Step 2\. Once a dialogue box appears, go to the “Resolution” tab and adjust the resolution to 2560\*1140.
-
-Step 3\. Upload your footage or photo from your internal storage by clicking on the logo below.
-
-![import footage to filmora](https://images.wondershare.com/filmora/article-images/import-footage-to-filmora.jpg)
-
-Step 4\. Click on the “Template” tab at the top of the page and click “Game.” Browse the available templates till you see one you like.
-
-![filmora game templates](https://images.wondershare.com/filmora/article-images/game-templates-filmora.jpg)
-
-Step 5\. Drag and drop the template you have chosen to the timeline as shown below.
-
-![drag game templates to timeline](https://images.wondershare.com/filmora/article-images/drag-filmora-game-template-to-timeline.jpg)
-
-Step 6\. Replace the sample footage in the template by dragging and dropping your own footage into the timeline.
-
-![replace media clips filmora](https://images.wondershare.com/filmora/article-images/replace-media-clips-in-filmora.jpg)
-
-Step 7\. Customize the footage and change the settings until you are happy with the outcome. Edit the text using the tools provided in the platform.
-
-![edit text in filmora](https://images.wondershare.com/filmora/article-images/edit-text-filmora.jpg)
-
-Step 8\. Take a screenshot of the final result.
-
-![take snapshot in filmora](https://images.wondershare.com/filmora/article-images/take-snapshot-filmora.jpg)
-
-Step 9\. Specify the snapshot format and choose the storage location before saving a copy to your device.
-
-![snapshot window in filmora](https://images.wondershare.com/filmora/article-images/snapshot-window-filmora.jpg)
-
-Step 10\. Once the snapshot appears in the Media Panel, right-click on it to open. Select “Reveal in Explorer” to locate the picture in your internal storage. You can now use the photo as your YouTube gaming banner.
-
-![reveal in explorer filmora](https://images.wondershare.com/filmora/article-images/reveal-in-explorer-filmora.jpg)
-
-## 5 Websites for Gaming Banner Templates Your YouTube
-
-Wondershare Filmora is not the only platform you can use to create banner templates for your YouTube channel. Here is a list of 5 more websites you can try and a detailed breakdown of the remarkable features you are bound to enjoy.
-
-### 1\. Canva
-
-The first alternative to Filmora on our list is Canva, which has thousands of professional, ready-made designs to wow your audience. You can work alone or with a dedicated team to ensure you design only the best banner for your channel to attract the masses to the kind of content you create.
-
-![canva gaming templates](https://images.wondershare.com/filmora/article-images/canva-gaming-banner-template.jpg)
-
-### 2\. PosterMyWall
-
-We couldn’t forget to include PosterMyWall to our list, which has pre-made templates you can customize to suit your needs. With PosterMyWall, you can save the time you could have used to design a banner from scratch to think of more content for your channel. The developers suggest various templates you might like, not to mention that you can sign up for free!
-
-![postermywall gaming templates](https://images.wondershare.com/filmora/article-images/postermywall-gaming-banner-templates.jpg)
-
-### 3\. Freepik
-
-Another suitable alternative to Filmora is Freepik. We guarantee you cannot exhaust all the numerous templates this platform offers. Each template is unique, with different color combinations and fonts to cater to the theme colors on your YouTube channel. You could opt for the free version or sign up for a Premium account and get 30% off.
-
-![freepik gameing template](https://images.wondershare.com/filmora/article-images/freepik-gaming-banner-template.jpg)
-
-### 4\. Pickmaker
-
-The fourth alternative on our list is Pickmaker, a sure way to take your gaming channel to the next level. The templates are arranged in broad categories to help you pick the best one based on the type of content you post. In addition, you don’t have to part with your precious monies to start designing YouTube banners with Pickmaker.
-
-![picmaker gaming banner template](https://images.wondershare.com/filmora/article-images/picmaker-gaming-banner-template.jpg)
-
-### 5\. Placeit
-
-Last but definitely not least is Placeit, which contains picturesque templates fitting for a gaming YouTube channel. We guarantee your audience won’t resist clicking on your videos once you use any of the templates within this platform. All you need to do is create a free account to enjoy the perks. Placeit makes your work easier by allowing you to indicate your favorite templates for use later.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![placeit gaming banner template](https://images.wondershare.com/filmora/article-images/placeit-gaming-banner-template.jpg)
 
 ## Conclusion
@@ -410,10 +525,16 @@ The better you can design your banner, the higher your chances of growing an aud
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Steady as You Go: Camera Stability Without a Tripod
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -424,10 +545,17 @@ The better you can design your banner, the higher your chances of growing an aud
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
@@ -477,6 +605,10 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -519,10 +651,16 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -545,6 +683,129 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
 
  _Here are some more cool ideas!_
 
+### **DIY adjustable tripod using books and a towel**
+
+You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
+
+But if you can use any stable surface, why do people buy tripods?
+
+Because it isn’t convenient to rearrange your furniture whenever you want to make a video, and also because tripods are adjustable. You can change their height, you can use them to pan or tilt, and it’s pretty easy to move them a bit forwards or backward while you’re setting up your shot.
+
+To get similar functions from the ‘any stable surface’ solution you can use a **table**, a **stack of books**, and a **towel**.
+
+1. Set up the area where you’re going to sit while you’re filming on one end of the table.
+2. Put the towel down over the approximate spot you want your camera to be.
+3. Stack your books on top of the towel.
+4. Put your camera on top of the books.
+
+Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+### **DIY gripping ‘Gorillapod’ using wire and tape**
+
+Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
+
+Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
+ ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+_All of your supplies plus the finished product._
+
+**Readying your legs**
+
+**_Step 1:_** Bend 2 inches at one end of each wire into a ‘U’ shape. You will probably need pliers for this.
+
+**_Step 2:_** Pick up one of your pieces of wire and wrap one end with electrical tape. Go around 5-10 times (to prevent it from coming undone at the end) and then, without cutting your tape, start moving up and wrapping the rest of your wire. Stop before your ‘U’ section.
+
+Repeat this with the other two wires.
+
+ **Attaching your legs**
+
+_**Step 1:**_ Place the ‘U’ section of a leg against your bolt. The bolt’s threading should be pointing away from the leg. Now, use your tape to attach them. Wind it around 2 or 3 times, then repeat the process with both of the other legs individually.
+
+_**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 as tightly as you can.
+
+ Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
+
+_Note: make sure the bolt is a fit for your camera before you get too far into this process._
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
+
+### DIY Your Video with Wondershare Filmora
+
+Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **DIY smartphone tripod using binder clips or hair clips**
+
+You’re a solo operation and your best camera is on your phone. That’s pretty common.
+
+If you have a DSLR then you can set it down on any stable surface while filming yourself, but your phone can’t stand up by itself. It needs something or someone to hold it. Do you just accept that and shoot everything as a selfie?
+
+No. No, you don’t, because there are common household items that can help you out of this problem. For this DIY tripod, you need either **2 binder clips** or **2 ‘claw clips’** (also called ‘hair jaws’).
+
+Hold your phone in landscape mode (horizontally, so it’s long rather than tall) and attach clips to the bottom corners. If you are worried about scratching your screen, fold up some paper to place between your clip and your phone.
+
+Here it is with binder clips:
+
+![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+And here it is with hair clips:
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
+![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+Now you can set your smartphone upon any stable surface, like a table or a stack of books.
+
+ _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -590,6 +851,9 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -606,14 +870,23 @@ Follow @Richard Bennett
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -630,12 +903,18 @@ Here it is with binder clips:
 
 And here it is with hair clips:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -653,97 +932,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-### **DIY gripping ‘Gorillapod’ using wire and tape**
-
-Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
-
-Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
-
- ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-_All of your supplies plus the finished product._
-
-**Readying your legs**
-
-**_Step 1:_** Bend 2 inches at one end of each wire into a ‘U’ shape. You will probably need pliers for this.
-
-**_Step 2:_** Pick up one of your pieces of wire and wrap one end with electrical tape. Go around 5-10 times (to prevent it from coming undone at the end) and then, without cutting your tape, start moving up and wrapping the rest of your wire. Stop before your ‘U’ section.
-
-Repeat this with the other two wires.
-
- **Attaching your legs**
-
-_**Step 1:**_ Place the ‘U’ section of a leg against your bolt. The bolt’s threading should be pointing away from the leg. Now, use your tape to attach them. Wind it around 2 or 3 times, then repeat the process with both of the other legs individually.
-
-_**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 as tightly as you can.
-
- Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
-
-_Note: make sure the bolt is a fit for your camera before you get too far into this process._
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
-
-### DIY Your Video with Wondershare Filmora
-
-Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Here are 3 of our favorite DIY tripods.
-
-### **DIY smartphone tripod using binder clips or hair clips**
-
-You’re a solo operation and your best camera is on your phone. That’s pretty common.
-
-If you have a DSLR then you can set it down on any stable surface while filming yourself, but your phone can’t stand up by itself. It needs something or someone to hold it. Do you just accept that and shoot everything as a selfie?
-
-No. No, you don’t, because there are common household items that can help you out of this problem. For this DIY tripod, you need either **2 binder clips** or **2 ‘claw clips’** (also called ‘hair jaws’).
-
-Hold your phone in landscape mode (horizontally, so it’s long rather than tall) and attach clips to the bottom corners. If you are worried about scratching your screen, fold up some paper to place between your clip and your phone.
-
-Here it is with binder clips:
-
-![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
-
-And here it is with hair clips:
-
-![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-
-Now you can set your smartphone upon any stable surface, like a table or a stack of books.
-
- _Here are some more cool ideas!_
-
-### **DIY adjustable tripod using books and a towel**
-
-You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
-
-But if you can use any stable surface, why do people buy tripods?
-
-Because it isn’t convenient to rearrange your furniture whenever you want to make a video, and also because tripods are adjustable. You can change their height, you can use them to pan or tilt, and it’s pretty easy to move them a bit forwards or backward while you’re setting up your shot.
-
-To get similar functions from the ‘any stable surface’ solution you can use a **table**, a **stack of books**, and a **towel**.
-
-1. Set up the area where you’re going to sit while you’re filming on one end of the table.
-2. Put the towel down over the approximate spot you want your camera to be.
-3. Stack your books on top of the towel.
-4. Put your camera on top of the books.
-
-Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -794,3 +985,41 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-step-by-step-guide-to-crafting-an-effective-youtube-watch-later-playlist/"><u>[New] 2024 Approved  A Step-by-Step Guide to Crafting an Effective YouTube Watch Later Playlist</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-create-magic-download-premium-soundscapes-now/"><u>[New] 2024 Approved  Create Magic  Download Premium Soundscapes Now</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-the-art-of-curating-music-on-youtube-with-our-steps/"><u>[New] 2024 Approved  Discover the Art of Curating Music on YouTube with Our Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-engagement-essential-video-formats-for-youtube-viewers/"><u>[New] 2024 Approved  Enhancing Engagement  Essential Video Formats for YouTube Viewers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-from-observer-to-participant-tips-for-guesting-on-tiktoks/"><u>[New] 2024 Approved  From Observer to Participant  Tips for Guesting on TikToks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ahead-of-the-game-in-sub4sub-essential-beginners-guide-recommended-for-2024/"><u>[New] Ahead of the Game in Sub4sub  Essential Beginner's Guide Recommended for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-engaging-gamers-banners-using-pre-made-themes/"><u>[New] In 2024, Crafting Engaging Gamers' Banners  Using Pre-Made Themes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cultivating-a-brand-identity-youtube-visibility-without-spending/"><u>[New] In 2024, Cultivating a Brand Identity  YouTube Visibility without Spending</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-easy-access-best-free-youtube-subtitle-extractors/"><u>[New] In 2024, Easy Access  Best Free YouTube Subtitle Extractors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-edu-top-ten-inspiring-educational-content-yt/"><u>[New] In 2024, Edu-Top Ten  Inspiring Educational Content YT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>[New] In 2024, Elevate Your YouTube Presence  Filmmaking with Filmora</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-smooth-sailing-for-social-broadcasts-fixing-interruptions-on-fb/"><u>[New] Smooth Sailing for Social Broadcasts  Fixing Interruptions on FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income-for-2024/"><u>[Updated] Creating Cash Flow on YouTube  An Ad-Free Blueprint for Income for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-8-key-money-making-moves-for-youtube-rookies/"><u>[Updated] In 2024, 8 Key Money-Making Moves for YouTube Rookies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boost-engagement-with-effortless-youtube-thumbnail-tips/"><u>[Updated] In 2024, Boost Engagement with Effortless Youtube Thumbnail Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-keep-them-coming-back-top-6-ways-to-enhance-your-audiences-staying-power-on-youtube/"><u>[Updated] Keep Them Coming Back  Top 6 Ways To Enhance Your Audience's Staying Power on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-refine-your-beauty-videos-with-youtubes-palette-tweaking/"><u>[Updated] Refine Your Beauty Videos with Youtube's Palette Tweaking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-blueprint-for-inspiring-valorant-video-thumbnails/"><u>[Updated] The Essential Blueprint for Inspiring Valorant Video Thumbnails</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-perfecting-screen-magnification-techniques-on-ms-teams/"><u>2024 Approved  Perfecting Screen Magnification Techniques on MS Teams</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unleash-your-youtube-potential-6-crucial-actions-for-visibility/"><u>2024 Approved  Unleash Your YouTube Potential  6 Crucial Actions for Visibility</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-limitless-space-20-best-free-cloud-platforms-offering-1tbplus/"><u>2024 Approved  Unlock Limitless Space  20 Best Free Cloud Platforms Offering 1TB+</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-what-are-the-laws-around-youtube-video-capture/"><u>2024 Approved  What Are the Laws Around YouTube Video Capture?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-your-beginners-guide-to-making-money-on-youtubers/"><u>2024 Approved  Your Beginner's Guide to Making Money on YouTubers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-tecno-phantom-v-flip-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Tecno Phantom V Flip? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mov-movies-on-redmi-note-12-4g-by-aiseesoft-video-converter-play-mov-on-android/"><u>Failed to play MOV movies on Redmi Note 12 4G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-vivo-v29-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Vivo V29 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-vivo-v29-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Vivo V29 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-artedit-master/"><u>In 2024, ArtEdit Master</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-mastering-video-privacy-the-art-of-concealing-details/"><u>In 2024, Mastering Video Privacy  The Art of Concealing Details</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-filmmakers-blueprint-making-youtube-splitscreen-magic/"><u>In 2024, The Filmmaker's Blueprint  Making YouTube Splitscreen Magic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-pathway-to-youtube-live-success-stories/"><u>In 2024, Your Pathway to YouTube Live Success Stories</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-to-avoid-copyright-strikes-on-youtube-videos-for-2024/"><u>Strategies to Avoid Copyright Strikes on YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/taking-down-the-veil-youtubes-most-elusive-videos-for-2024/"><u>Taking Down the Veil  YouTube's Most Elusive Videos for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Guide  YouTube Studio, The Editor's Haven\""
-date: 2024-06-05T15:34:57.428Z
-updated: 2024-06-06T15:34:57.428Z
+date: 2024-08-01T10:04:27.447Z
+updated: 2024-08-02T10:04:27.447Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/2ceae87a9b9364e8de7f8199f6943542799e9e444
 
 # Where Is Youtube Video Manager? \[All You Need to Know\]
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,6 +42,9 @@ So if you are wondering the sole purpose of YouTube studio and how to manage you
 * [How To Access YouTube Manager In YouTube Using Mobile Phones？](#part5)
 * [How to Access YouTube Manager on YouTube Using An iPad?](#part6)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Video Editing Software for YouTubers
 
 Making a video with Filmora is simple, as this movie maker enables its users to import virtually any type of footage in just a couple of clicks.
@@ -93,6 +99,9 @@ Step 4: Click on that icon.
 
 Step 5: You will be served with abundant options in the dropdown, but you need to click on the YouTube studio (beta) option.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![infterface of youtube video manager for PC](https://images.wondershare.com/filmora/article-images/access-youtube-video-manager-pc-4.jpg)
 
 Step 6: This will redirect you to your channel’s dashboard where you will be facilitated with multiple options related to your video uploads, a complete and wholesome package to organize, monitor, improvise and manage your videos in general.
@@ -105,6 +114,10 @@ Step 8: Click on Creator Studio Classic.
 
 Step 9: This will redirect you to creator studio. At the left on the window will be a bar full of multiple options where you will see the video manager option right there.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![infterface of youtube video manager for PC](https://images.wondershare.com/filmora/article-images/access-youtube-video-manager-pc-9.jpg)
 
 Step 10: Click on the video manager to manage.
@@ -113,6 +126,18 @@ Step 11: This will open a drop-down which gives you two options. One of managing
 
 Voila! You are here in video manager, having full liberty to make any alteration to the metadata of your YouTube uploads. You are now a single click away to change the video title, its stale or non-captivating caption, adjust comment setting and literally everything right according to your choice.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Access YouTube Manager In YouTube Using Mobile Phones?
 
 If you are used to operating your YouTube channel through smartphones like iPhone or any android phone or manage your account activities using a tablet then the process to manage your account remains quite the same.
@@ -123,10 +148,16 @@ YouTube studio application is an official tool dedicated to content creator intr
 
 All thanks to Google to launch such an amazing and wholesome product, considering the ample number of content creators who use mobile phones to create and manage their productions.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### YouTube Studio Application Link for iOS
 
 You can download this video manager YouTube application, named as YouTube studio, [on your iPhone by clicking the link given here](https://apps.apple.com/us/app/youtube-creator-studio/id888530356). You can download this YouTube video manager iPhone application on apple store which is absolutely free of cost.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![where is video manager on youtube in iphone](https://images.wondershare.com/filmora/article-images/youtube-studio-iphone.jpg)
 
 Downloading this tool will make the managing process of your YouTube channel quite easier and faster. Numerous list of options ranging from monitoring latest stats, create or update your productions’ thumbnail images to changing profile picture, reply to your comments, get notifications or organize your playlist on the go and stay connected from literally anywhere.
@@ -140,10 +171,21 @@ Features:
 * Create and modify your profile images.
 * Seek for help content using voice
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ### How To Access YouTube Manager In YouTube Using Android?
 
 Similar to the approach we used in for iPhone users, you can [download YouTube studio application on google store by clicking on the link given here](https://play.google.com/store/apps/details?id=com.google.android.apps.youtube.creator).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![how to get to youtube video manager in android](https://images.wondershare.com/filmora/article-images/youtube-studio-android.jpg)
 
 This application is available free on the internet.
@@ -157,6 +199,9 @@ Features:
 * Manage and organize playlist
 * Update video settings like schedule dates, personalizing thumbnail pictures, adding description, updating titles and monetization settings.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Access YouTube Manager on YouTube Using An iPad?
 
 You can enjoy all the same features as facilitated in the YouTube Studio app for iOS and Android users. All you need is to [download this application by clicking on the link given here](https://apps.apple.com/us/app/youtube-creator-studio/id888530356#?platform=ipad).
@@ -195,3 +240,66 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-10-second-teasers-explained-for-2024/"><u>[New] 10-Second Teasers Explained for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-accessing-your-curated-music-lists-on-youtube/"><u>[New] 2024 Approved  Accessing Your Curated Music Lists on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-listings-for-easy-access-to-youtube-intro-files/"><u>[New] 2024 Approved  Essential Listings for Easy Access to YouTube Intro Files</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-free-meeting-tools-ranked-your-ultimate-video-call-companion/"><u>[New] 2024 Approved  Free Meeting Tools Ranked - Your Ultimate Video Call Companion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-from-memories-to-reels-building-stellar-slideshows-for-facebook/"><u>[New] 2024 Approved  From Memories to Reels  Building Stellar SlideShows for Facebook</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-revisiting-radeon-review-and-restore/"><u>[New] 2024 Approved  Revisiting Radeon  Review and Restore</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-affordable-youtube-intro-designs-and-templates-for-2024/"><u>[New] Affordable YouTube Intro Designs and Templates for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-boosting-video-playback-speed-on-instagram-for-2024/"><u>[New] Boosting Video Playback Speed on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-steps-to-designing-exceptional-youtube-thumbnails-for-2024/"><u>[New] Essential Steps to Designing Exceptional YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-tips-for-harnessing-the-power-of-top-9-free-youtube-makers/"><u>[New] In 2024, Expert Tips for Harnessing the Power of Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-famebit-alternatives-for-finding-youtube-sponsorships/"><u>[New] In 2024, FameBit Alternatives for Finding YouTube Sponsorships</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-innovative-hubs-of-affordable-visual-content-sources/"><u>[New] Innovative Hubs of Affordable Visual Content Sources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-investment-alert-avoid-the-trap-of-artificial-youtube-engagement/"><u>[New] Investment Alert  Avoid the Trap of Artificial YouTube Engagement</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1716069375549-new-master-the-art-of-organizing-group-conversations-on-skype-irrespective-of-your-systems-os-for-2024/"><u>[New] Master the Art of Organizing Group Conversations on Skype, Irrespective of Your System's OS. For 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-playlist-sharing-on-youtube/"><u>[New] Mastering Playlist Sharing on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-perfect-your-channel-imagery-youtube-thumbnail-dos-and-donts/"><u>[New] Perfect Your Channel Imagery  YouTube Thumbnail Do's & Don'ts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-path-to-precision-audio-a-no-mic-approach/"><u>[New] The Path to Precision Audio  A No-Mic Approach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-tutorial-transferring-youtube-videos-to-dailymotion/"><u>[New] The Ultimate Tutorial  Transferring YouTube Videos to Dailymotion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-turning-youtube-sounds-into-text-an-in-depth-no-cost-course/"><u>[New] Turning YouTube Sounds Into Text  An In-Depth, No-Cost Course</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-winning-hearts-an-approach-to-encourage-sign-ups/"><u>[New] Winning Hearts  An Approach to Encourage Sign-Ups</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-music-magic-best-free-tools-for-wav-conversion/"><u>[New] YouTube's Music Magic  Best Free Tools for WAV Conversion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boost-popularity-quickly-top-30-hashtags-every-gamer-needs/"><u>[Updated] 2024 Approved  Boost Popularity Quickly  Top 30 Hashtags Every Gamer Needs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-connectivity-aid-fb-stories-saver-pro/"><u>[Updated] 2024 Approved  Connectivity Aid  FB Stories Saver Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-decoding-earnings-for-content-producers-on-short-form-platform/"><u>[Updated] 2024 Approved  Decoding Earnings for Content Producers on Short-Form Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-insights-for-asmr-aficionados/"><u>[Updated] 2024 Approved  Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-tips-for-flv-file-fusion-on-youtube/"><u>[Updated] 2024 Approved  Essential Tips for FLV File Fusion on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-online-guide-youtube-video-to-gif-magic-no-download-for-2024/"><u>[Updated] Effortless Online Guide  YouTube Video to GIF Magic (No Download) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-digital-footprint-crafting-compelling-shorts-thumbnails-for-2024/"><u>[Updated] Elevate Your Digital Footprint  Crafting Compelling Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-user-engagement-with-detailed-video-chapters-in-youtube-for-2024/"><u>[Updated] Elevating User Engagement with Detailed Video Chapters in YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone-for-2024/"><u>[Updated] Essential YouTube Strategies  Compiling 10 Basic Yet Engaging Ideas for Everyone for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-tutorial-for-effective-telegram-usage/"><u>[Updated] Expert Tutorial for Effective Telegram Usage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gain-an-edge-access-these-top-8-sites-for-free-eco-screen-backdrops-and-clips/"><u>[Updated] Gain an Edge - Access These Top 8 Sites for FREE Eco-Screen Backdrops and Clips</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-effortlessly-run-apps-and-videos-together-in-chrome/"><u>[Updated] How to Effortlessly Run Apps & Videos Together In Chrome</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhancing-engagement-through-thoughtful-youtube-tags/"><u>[Updated] In 2024, Enhancing Engagement Through Thoughtful YouTube Tags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-viral-fame-boosting-your-videos-popularity-on-youtube/"><u>[Updated] Mastering Viral Fame  Boosting Your Video's Popularity on YouTube</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-step-into-stardom-building-starry-eyed-tiktok-dances-on-macos/"><u>[Updated] Step Into Stardom  Building Starry-Eyed TikTok Dances on MacOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-channel-mastery-with-studio-power-ups/"><u>[Updated] Unlocking Channel Mastery with Studio Power-Ups</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-zero-cost-strategies-for-engaging-youtube-intros/"><u>[Updated] Zero-Cost Strategies for Engaging YouTube Intros</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/10-most-empathetic-3ds-emulators-on-android-for-2024/"><u>10 Most Empathetic 3DS Emulators on Android for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-quick-pace-facebook-videos-prime-extensions-tips-and-tricks-list/"><u>2024 Approved  Quick-Pace Facebook Videos  Prime Extensions, Tips & Tricks List</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-realme-c67-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/chronicles-unveiled-the-best-narrative-channels-on-youtube-this-year-for-2024/"><u>Chronicles Unveiled  The Best Narrative Channels on YouTube This Year for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/continuity-of-functionality-on-whatsapp-without-policy-consent/"><u>Continuity of Functionality on WhatsApp WITHOUT Policy Consent</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/continuous-improvement-regularly-practice-and-evaluate-your-listening-skills-identifying-areas-for-improvement-30-new-titles-that-convey-similar-meanings-to/"><u>Continuous Improvement  Regularly Practice and Evaluate Your Listening Skills, Identifying Areas for Improvement. 30 New Titles that Convey Similar Meanings to How to Change Your Voice in Free Fire Game? [Free Solution Included]</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/experience-ultra-clarity-in-xiaomis-screen-capture-technology/"><u>Experience Ultra Clarity in Xiaomi's Screen Capture Technology</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-realme-c67-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-examining-the-best-of-screen-capturing-tools-in-action/"><u>In 2024, Examining the Best of Screen Capturing Tools in Action</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-no-charge-subtitle-makers-srt/"><u>In 2024, The Ultimate Guide to No-Charge Subtitle Makers (SRT)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-samsung-galaxy-m14-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Samsung Galaxy M14 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-the-melody-adding-audio-to-your-canva-videos-for-2024/"><u>Mastering the Melody  Adding Audio to Your Canva Videos for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/nows-vr-device-showcase-and-analysis/"><u>Now’s VR Device Showcase & Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/online-media-crafter-for-2024/"><u>Online Media Crafter for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-screen-recording-tech-for-youtube-broadcasts-for-2024/"><u>Prime Screen Recording Tech for YouTube Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/short-form-success-strategic-hashtags-for-social-media-stardom-for-2024/"><u>Short-Form Success  Strategic Hashtags for Social Media Stardom for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/turning-product-analysis-into-income-via-video-platforms-for-2024/"><u>Turning Product Analysis Into Income via Video Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/video-wizardry-your-guide-to-the-top-10-editing-hacks-for-2024/"><u>Video Wizardry  Your Guide to the Top 10 Editing Hacks for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/virtualvista-viewers-verdict-for-2024/"><u>VirtualVista Viewer's Verdict for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/visualinterface-crashes-window-os-fixed-ready-to-go/"><u>VisualInterface Crashes, Window OS Fixed (Ready to Go)</u></a></li>
+</ul></div>

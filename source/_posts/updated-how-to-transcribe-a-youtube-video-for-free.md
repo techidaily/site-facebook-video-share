@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Transcribe a YouTube Video for FREE"
-date: 2024-06-05T16:04:32.988Z
-updated: 2024-06-06T16:04:32.988Z
+date: 2024-08-01T10:55:06.652Z
+updated: 2024-08-02T10:55:06.652Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 
 # How to Transcribe a YouTube Video for FREE
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -51,6 +54,9 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
 
 #### Step 3  Publish the Video
@@ -69,12 +75,18 @@ While on the **YouTube Studio** page, click **Subtitles** from the left pane to 
 
 In the video subtitle page of the target video, hover mouse on the **Published Automatic** status under the **Subtitles** column, click the **Options** icon (with three vertical dots) that appears, and click **Edit on Classic Studio**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
 
 1. **Download Transcription File**
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
 
 ### Method 2: Get YouTube Transcription when Watching
@@ -107,12 +119,19 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 **Step 3: Download the Transcription File**
 
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
 
 **Pros**
@@ -135,6 +154,9 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 **Step 3: Download the Transcription File**
@@ -169,6 +191,9 @@ If the speaker in the video is from a different region and is using an accent th
 
 If you own a blog that you have embedded your video to, the transcription could be used to add text to it so the target audience can get a fair idea of what the video is all about. This is useful because many people prefer reading over watching.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### YouTube Video Transcription FAQs
 
 #### 1. How to Transcribe YouTube Video to Text
@@ -221,3 +246,53 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-youtube-channel-name-ideas-for-aspiring-vloggers-and-film-makers-maximum-length-156-characters/"><u>[New] 2024 Approved  Best Youtube Channel Name Ideas For Aspiring Vloggers & Film Makers (Maximum Length  156 Characters)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-youtube-end-screen-templates-for-content-makers/"><u>[New] 2024 Approved  Essential YouTube End Screen Templates for Content Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-upheavals-top-rhythmic-disruptors-for-devices-for-2024/"><u>[New] Audio Upheavals  Top Rhythmic Disruptors for Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>[New] Best 10 YouTube Volume Boosters for Windows, MacOS, Android and iPhone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-captivating-content-top-three-channel-growth-strategies-for-2024/"><u>[New] Captivating Content  Top Three Channel Growth Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-conquering-the-fan-base-youtubes-pathway-to-more-followers-for-2024/"><u>[New] Conquering the Fan Base  YouTube's Pathway to More Followers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-craft-the-ultimate-outro-with-pro-maker-advice-for-2024/"><u>[New] Craft the Ultimate Outro with Pro Maker Advice for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-amplify-views-and-engagement-through-google-analytics-expertise/"><u>[New] In 2024, Amplify Views & Engagement Through Google Analytics Expertise</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-delightful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems/"><u>[New] In 2024, Delightful Yuletide Cinema on YouTube  Savor Nine Whole-Film Gems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-jumpstart-your-video-projects-access-free-stunning-banner-templates/"><u>[New] Jumpstart Your Video Projects  Access Free, Stunning Banner Templates</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-laughable-phone-melodies-essential-sites-listed/"><u>[New] Laughable Phone Melodies  Essential Sites Listed</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-navigating-updated-earnings-policies-for-streamers/"><u>[New] Navigating Updated Earnings Policies for Streamers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-youtube-channels-crafting-brands-that-attract-viewers/"><u>[New] The Art of YouTube Channels  Crafting Brands That Attract Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-the-best-video-editors-not-on-youtoo/"><u>[New] The Ultimate Guide to the Best Video Editors Not on YouToo</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-troubleshooting-why-are-your-shorts-thumbnails-hiding/"><u>[New] Troubleshooting  Why Are Your Shorts' Thumbnails Hiding?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtubes-encrypted-video-secrets/"><u>[New] Unlocking YouTube's Encrypted Video Secrets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-engaging-life-journeys-in-video-formats/"><u>[Updated] 2024 Approved  Crafting Engaging Life Journeys in Video Formats</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-youtube-live-with-high-quality-webcam-cameras/"><u>[Updated] 2024 Approved  Elevating YouTube Live with High-Quality Webcam Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-strategies-for-profitable-youtube-videos/"><u>[Updated] 2024 Approved  Essential Strategies for Profitable YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-your-thriving-youtube-space-for-gamers-for-2024/"><u>[Updated] Building Your Thriving YouTube Space for Gamers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-embrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification-for-2024/"><u>[Updated] Embrace the Pause Button  3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>[Updated] From Dull to Delightful  How To Craft Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-affordable-methods-for-video-and-text-synergy/"><u>[Updated] In 2024, Affordable Methods for Video and Text Synergy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-lawful-ways-to-attain-a-million-followers-on-youtube/"><u>[Updated] Lawful Ways to Attain a Million Followers on YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-melodious-messages-in-whatsapp/"><u>[Updated] Melodious Messages in WhatsApp</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prime-source-directory-downloading-youtube-video-intros/"><u>[Updated] Prime Source Directory  Downloading YouTube Video Intros</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-into-the-world-of-chroma-keying-youtubes-guide-to-green-screens/"><u>[Updated] Step Into the World of Chroma Keying – YouTube's Guide to Green Screens</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-navigating-image-purification-avoiding-obscuring-elements/"><u>2024 Approved  Navigating Image Purification  Avoiding Obscuring Elements</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-the-path-stream-your-google-meet-chats-to-youtube/"><u>2024 Approved  Navigating the Path  Stream Your Google Meet Chats to YouTube</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-professional-shooters-guide-to-stability/"><u>2024 Approved  Professional Shooters' Guide to Stability</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-twitch-time-rewind-hacks-unveiled/"><u>2024 Approved  Twitch Time Rewind Hacks Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-content-creation-evolution-choosing-studio-over-beta/"><u>2024 Approved  Video Content Creation Evolution  Choosing Studio Over Beta</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-7-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone 7 and iPad Securely</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/all-encompassing-look-at-the-ricoh-theta-s-design-for-2024/"><u>All-Encompassing Look at the Ricoh Theta S Design for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-poco-c55-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Poco C55 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gopro-max-360-vs-hero-11-which-is-the-best-gopro-video-camera/"><u>GoPro Max 360 VS Hero 11  Which Is the Best GoPro Video Camera?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-auditory-gamespace-vaults-copyright-free/"><u>In 2024, Free Auditory Gamespace Vaults (Copyright-Free)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/photoquarter-analysis/"><u>PhotoQuarter Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secure-and-simple-grab-your-desired-youtube-cover-at-no-charge-for-2024/"><u>Secure & Simple  Grab Your Desired YouTube Cover at No Charge for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/step-by-step-guide-to-youtube-playlist-in-html-for-2024/"><u>Step-by-Step Guide to YouTube Playlist in HTML for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-social-blade-approach-to-analyzing-youtube-video-performance-metrics-for-2024/"><u>The Social Blade Approach to Analyzing YouTube Video Performance Metrics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/understanding-the-impact-of-youtube-money-changes-for-2024/"><u>Understanding the Impact of YouTube Money Changes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-profitability-on-youtube-shorts-essentials-and-future-earning-prospects-for-2024/"><u>Unlocking Profitability on Youtube Shorts  Essentials and Future Earning Prospects for 2024</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to identify malfunctioning your drivers with Windows Device Manager on Windows 11 & 10 & 7</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/what-to-do-when-youtube-shorts-thumbnails-fail-to-appear-in-2024/"><u>What to Do When YouTube Shorts Thumbnails Fail to Appear, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-yearly-list-prime-free-video-editing-software-for-2024/"><u>Your Yearly List  Prime Free Video Editing Software for 2024</u></a></li>
+</ul></div>

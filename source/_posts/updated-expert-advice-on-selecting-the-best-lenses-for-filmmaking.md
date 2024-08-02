@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Expert Advice on Selecting The Best Lenses For Filmmaking"
-date: 2024-06-05T15:10:31.540Z
-updated: 2024-06-06T15:10:31.540Z
+date: 2024-08-01T09:22:30.503Z
+updated: 2024-08-02T09:22:30.503Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/a4224fc73a6465f58bae54c290236f5e5e4311745
 
 # A Vlogger's Guide To Camera Lenses
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -82,6 +85,9 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
@@ -101,8 +107,14 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Aperture
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
@@ -115,6 +127,9 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -141,6 +156,11 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -157,3 +177,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-term-roi-analysis./"><u>[New] __Energy Savings Calculations__  While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis.</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-steps-to-curate-youtube-music-selections/"><u>[New] 2024 Approved  Essential Steps to Curate YouTube Music Selections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-building-a-diverse-content-portfolio-on-youtube-shorts-for-2024/"><u>[New] Building a Diverse Content Portfolio on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-captivate-audiences-unveiling-secrets-for-striking-youtube-banners-for-2024/"><u>[New] Captivate Audiences  Unveiling Secrets for Striking YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-dancefloor-directives-expert-dj-video-downloads-for-2024/"><u>[New] Dancefloor Directives  Expert DJ Video Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-functionality-of-youtubes-media-hub-for-2024/"><u>[New] Decoding the Functionality of YouTube's Media Hub for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-youtube-tagging-strategies-for-optimal-visibility-for-2024/"><u>[New] Essential YouTube Tagging Strategies for Optimal Visibility for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-add-instagram-filter-to-existing-photos-and-videos/"><u>[Updated] 2024 Approved  How to Add Instagram Filter to Existing Photos and Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-8-key-money-making-moves-for-youtube-rookies-for-2024/"><u>[Updated] 8 Key Money-Making Moves for YouTube Rookies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-asmr-gurus-recommend-best-microphones-reviewed-for-2024/"><u>[Updated] ASMR Gurus Recommend  Best Microphones Reviewed for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-chucklechamber-a-universe-of-comedy-creation-online-for-2024/"><u>[Updated] ChuckleChamber  A Universe of Comedy Creation Online for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-youtube-experience-tips-on-channel-art-and-sizes-for-2024/"><u>[Updated] Elevating Your YouTube Experience  Tips on Channel Art and Sizes for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-edge-mastering-the-art-of-360-videos/"><u>[Updated] Facebook's Edge  Mastering the Art of 360 Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-virality-youtube-promotion-no-cost-involved/"><u>[Updated] In 2024, Achieving Virality  YouTube Promotion No Cost Involved</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-autoplay-youtube-on-mobile-no-distractions/"><u>[Updated] In 2024, AutoPlay YouTube on Mobile, No Distractions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-an-inviting-subscribe-icon-for-youtube-videographers/"><u>[Updated] In 2024, Crafting an Inviting Subscribe Icon for YouTube Videographers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-guide-iphones-video-loop-functionality/"><u>[Updated] Quick Guide  IPhone's Video Loop Functionality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-revealing-10-hidden-viewers-of-stories/"><u>[Updated] Revealing 10 Hidden Viewers of Stories</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-say-goodbye-to-excess-master-the-art-of-editing-tiktok-drafters/"><u>[Updated] Say Goodbye to Excess  Master the Art of Editing TikTok Drafters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-youtube-potential-with-smart-tags-and-titles/"><u>[Updated] Unleash YouTube Potential with Smart Tags and Titles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-mystery-of-youtubes-monetization-rates/"><u>[Updated] Unveiling the Mystery of YouTube's Monetization Rates</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-basic-to-spectaculr-the-best-cams-gear-guide/"><u>2024 Approved  From Basic to Spectaculr  The Best Cams' Gear Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-masterclass-beginners-kit-free-courses-collection/"><u>2024 Approved  YouTube Masterclass Beginners Kit  Free Courses Collection</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-v27-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo V27 Pro</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-realme-12-pro-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Realme 12 Pro 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-samsung-galaxy-a34-5g-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Nokia 130 Music? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-image-editor-repertoire-for-text-addition/"><u>In 2024, The Ultimate Image Editor Repertoire for Text Addition</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-14-pro-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 14 Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-your-videos-focus-with-simple-blurring-techniques-for-2024/"><u>Perfect Your Video's Focus with Simple Blurring Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade-for-2024/"><u>Streamline Video Analytics  A Guide to YouTube Statistics with Social Blade for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transform-your-pubg-presence-with-new-sounds/"><u>Transform Your PUBG Presence with New Sounds</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unlock-advanced-splitting-with-non-xsplit-apps-for-2024/"><u>Unlock Advanced Splitting with Non-Xsplit Apps for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-revenue-analysis-made-simple-for-2024/"><u>YouTube Revenue Analysis Made Simple for 2024</u></a></li>
+</ul></div>

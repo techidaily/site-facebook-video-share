@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Haute Couture at Home  Makeup, Tools & Techniques\""
-date: 2024-06-05T14:50:16.531Z
-updated: 2024-06-06T14:50:16.531Z
+date: 2024-08-01T08:48:42.672Z
+updated: 2024-08-02T08:48:42.672Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,16 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
    9. **[How to Make a Makeup Tutorial – Recording](#recording)**
    10. **[How to Make a Makeup Tutorial – After Shooting](#after)**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Best YouTube Video Editor- Wondershare Filmora
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## **Finding Your Niche in Beauty or Lifestyle**
@@ -57,6 +63,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -151,6 +160,9 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
@@ -161,6 +173,9 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -197,6 +212,9 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -215,6 +233,9 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -242,6 +263,9 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -252,6 +276,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -291,3 +318,50 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-comprehensive-look-at-lighting-your-youtube-videos-right/"><u>[New] 2024 Approved  A Comprehensive Look at Lighting Your YouTube Videos Right</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-affordable-acoustic-amps-and-mics-for-video-voyagers/"><u>[New] 2024 Approved  Affordable Acoustic Amps and Mics for Video Voyagers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-budget-friendly-broadcaster-gear-for-video-voyeurs/"><u>[New] 2024 Approved  Budget-Friendly Broadcaster Gear for Video Voyeurs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-auditory-accents-integrating-tracks-into-video-on-modern-windows/"><u>[New] Auditory Accents  Integrating Tracks Into Video on Modern Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-deleted-and-found-again-streaming-yts-forgotten-videos-for-2024/"><u>[New] Deleted and Found Again  Streaming YT’s Forgotten Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-download-youtube-gallery-files-instantly-for-2024/"><u>[New] Download YouTube Gallery Files Instantly for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ensuring-copyright-compliance-in-youtube-to-mp4-for-2024/"><u>[New] Ensuring Copyright Compliance in Youtube-to-MP4 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-youtubes-thumbnail-impact-on-traffic/"><u>[New] In 2024, Decoding YouTube's Thumbnail Impact on Traffic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-tv-screens-with-automatic-loops-of-youtube/"><u>[New] In 2024, Enhance TV Screens With Automatic Loops of YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-ensuring-long-term-youtube-success-with-creative-commons-mainteninas/"><u>[New] In 2024, Ensuring Long-Term YouTube Success with Creative Commons Mainteninas</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-designing-aplus-cover-photos-for-your-insta-highlights/"><u>[New] In 2024, Step-by-Step  Designing A+ Cover Photos for Your Insta Highlights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-understanding-the-core-of-asmr-media/"><u>[New] Understanding the Core of ASMR Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-laughter-on-screen-essential-tactics-for-youtube-reaction-video-making-3-ways/"><u>[New] Unleashing Laughter on Screen  Essential Tactics for YouTube Reaction Video Making (3 Ways)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-digital-video-conquerors-ultimate-toolkit-list/"><u>[Updated] 2024 Approved  Digital Video Conquerors' Ultimate Toolkit List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-list-5-leading-youtube-shortened-url-services/"><u>[Updated] 2024 Approved  Essential List  5 Leading YouTube Shortened URL Services</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-virtual-venue-video-verifier/"><u>[Updated] 2024 Approved  Virtual Venue Video Verifier</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-accelerated-pathway-through-keying-fundamentals-for-2024/"><u>[Updated] Accelerated Pathway Through Keying Fundamentals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-adobes-toolset-perfecting-your-youtube-uploads-for-2024/"><u>[Updated] Adobe's Toolset  Perfecting Your YouTube Uploads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-blogging-basics-for-business-beginnings-for-2024/"><u>[Updated] Blogging Basics for Business Beginnings for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-easy-path-from-spotify-to-youtube-discover-the-best-playlist-tools-for-2024/"><u>[Updated] Easy Path From Spotify to YouTube  Discover the Best Playlist Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-economical-audio-devices-for-vloggers-on-a-budget-for-2024/"><u>[Updated] Economical Audio Devices for Vloggers on a Budget for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels/"><u>[Updated] Green Screen Mastery  Essential Free Lessons From YouTube's Best 4 Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-deciphering-youtubes-monetary-mechanisms/"><u>[Updated] In 2024, Deciphering YouTube's Monetary Mechanisms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>[Updated] In 2024, Diving Into Video Quality  DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-free-resources-for-youtube-intros/"><u>[Updated] In 2024, Essential Free Resources for YouTube Intros</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-your-channel-identity-with-smart-naming/"><u>[Updated] Master Your Channel Identity with Smart Naming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-the-art-of-selecting-free-music-for-videos/"><u>[Updated] Mastering the Art of Selecting Free Music for Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-social-media-trends-visualized/"><u>[Updated] Social Media Trends Visualized</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ultimate-gear-guide-for-streaming-sensations/"><u>[Updated] Ultimate Gear Guide for Streaming Sensations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-virtual-battles-real-money-gamer-prospects-2024/"><u>[Updated] Virtual Battles, Real Money  Gamer Prospects 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-stepwise-approach-to-uploading-youtube-shorts-on-laptop-phone/"><u>[Updated] Your Stepwise Approach to Uploading YouTube Shorts on Laptop, Phone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-golden-rule-for-profit-partnership/"><u>[Updated] YouTube's Golden Rule for Profit Partnership</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-achieve-flawless-network-livestream-mastering-vlc-techniques/"><u>2024 Approved  Achieve Flawless Network Livestream  Mastering VLC Techniques</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-lava-blaze-curve-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Lava Blaze Curve 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-realme-12-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Realme 12 5G</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-oneplus-nord-3-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass OnePlus Nord 3 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-xr-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone XR to iPhone | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-economical-growth-methodology-subscribe-now/"><u>In 2024, Economical Growth Methodology - Subscribe Now!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-picks-of-top-fee-free-live-streaming-tech-tools-for-everyone/"><u>In 2024, Expert Picks of Top, Fee-Free Live Streaming Tech Tools for Everyone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-mastering-live-show-recordings-the-modern-way/"><u>In 2024, Mastering Live Show Recordings  The Modern Way</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-honor-x50-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-xp-vista-and-win10-missing-amd-gpu-drivers/"><u>Windows XP, Vista & Win10: Missing AMD GPU Drivers</u></a></li>
+</ul></div>

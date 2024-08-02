@@ -1,7 +1,7 @@
 ---
 title: "[New] Key Tools Every New YouTuber Needs"
-date: 2024-06-05T15:30:19.781Z
-updated: 2024-06-06T15:30:19.781Z
+date: 2024-08-01T09:56:31.330Z
+updated: 2024-08-02T09:56:31.330Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,9 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Tripods and Camera Stands](#tripod)
 * [Smartphone Camera Gear](#phone)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -60,6 +63,9 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -72,6 +78,9 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -82,8 +91,19 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Smartphone Camera Gear
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -98,6 +118,9 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -114,3 +137,43 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-easy-process-extracting-youtube-media-directly/"><u>[New] 2024 Approved  Easy Process  Extracting YouTube Media Directly</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-crafting-captivating-podcasts-a-step-by-step-writing-guide/"><u>[New] Crafting Captivating Podcasts  A Step-by-Step Writing Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-easy-mp3-conversion-from-mp3-files-to-youtube-videos-3-ways-for-2024/"><u>[New] Easy MP3 Conversion  From MP3 Files to YouTube Videos [3 Ways] for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-clearing-up-confusion-understanding-digital-rights-management-drm/"><u>[New] In 2024, Clearing Up Confusion  Understanding Digital Rights Management (DRM)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-captivating-intros-on-mobile-platforms/"><u>[New] In 2024, Crafting Captivating Intros on Mobile Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dissecting-youtubes-user-commentary/"><u>[New] In 2024, Dissecting YouTubes' User Commentary</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-strengthen-your-content-identity-inserting-watermarklogo-in-videos/"><u>[New] Strengthen Your Content Identity  Inserting Watermark/Logo in Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tasty-trailblazers-culinary-youtube-icons/"><u>[New] Tasty Trailblazers  Culinary YouTube Icons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-branding-edge-design-strategies-for-game-changing-banners/"><u>[New] The Branding Edge  Design Strategies for Game-Changing Banners</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-journey-to-exceptional-educational-content-creating-impactful-vids-on-youtube/"><u>[New] The Journey to Exceptional Educational Content  Creating Impactful Vids on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-designing-powerful-youtube-logos/"><u>[New] The Ultimate Guide to Designing Powerful YouTube Logos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweeted-timelines-a-complete-guide-to-video-backups/"><u>[New] Tweeted Timelines  A Complete Guide to Video Backups</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-engaging-audience-from-anywhere-phone-based-filming-techniques/"><u>[Updated] 2024 Approved  Engaging Audience From Anywhere  Phone-Based Filming Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-best-web-conversion-solutions-for-direct-hassle-free-gif-to-video-for-2024/"><u>[Updated] Best Web Conversion Solutions For Direct, Hassle-Free GIF To Video for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-direct-to-mp3-ease-select-10-video-to-audio-devices-for-2024/"><u>[Updated] Direct to Mp3 Ease  Select 10 Video-to-Audio Devices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-engaging-local-audiences-with-social-media-videos-for-2024/"><u>[Updated] Engaging Local Audiences with Social Media Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-tips-for-crafting-youtube-shorts-templates-for-2024/"><u>[Updated] Essential Tips for Crafting YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exclusive-deals-and-previews-from-creators/"><u>[Updated] Exclusive Deals & Previews From Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-convert-youtube-videos-to-gifs-no-download-for-2024/"><u>[Updated] How to Convert YouTube Videos to GIFs [No Download] for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-clickthrough-rates-with-attention-grabbing-youtube-thumbnails/"><u>[Updated] In 2024, Boosting Clickthrough Rates with Attention-Grabbing YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-designing-an-editorial-epilogue/"><u>[Updated] In 2024, Designing an Editorial Epilogue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-online-tutorial-adding-youtube-playlists-to-your-site/"><u>[Updated] Online Tutorial  Adding YouTube Playlists to Your Site</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-settled-unseen-videos-a-fix/"><u>[Updated] Settled  Unseen Videos - A Fix</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/affinity-photo-expertise-review-guide/"><u>Affinity Photo Expertise Review Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-apple-id-and-apple-password-on-iphone-15-pro-by-drfone-ios/"><u>How to Reset Apple ID and Apple Password On iPhone 15 Pro</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-word-2007-free-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign Word 2007 free</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-detailed-insights-into-instagrams-video-time-policy/"><u>In 2024, Detailed Insights Into Instagram’s Video Time Policy</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-microsofts-glimpse-into-augmented-reality-the-hololens-journey/"><u>In 2024, Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-spotlight-a-podcast-on-your-instagram-feed/"><u>In 2024, Spotlight a Podcast on Your Instagram Feed</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/1719574118383-printerranker-setting-snafu-alert/"><u>Printer'ranker: Setting Snafu Alert!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-secret-sauce-for-stellar-telegram-campaigns/"><u>The Secret Sauce for Stellar Telegram Campaigns</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-youtube-seo-compendium-for-enhanced-visibility-for-2024/"><u>The Ultimate YouTube SEO Compendium for Enhanced Visibility for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tracing-view-count-to-cash-flow-on-youtube-platform-for-2024/"><u>Tracing View Count to Cash Flow on YouTube Platform for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-no-cost-video-editing-top-online-solutions-ranked-for-2024/"><u>Updated No-Cost Video Editing Top Online Solutions Ranked for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/viral-beats-cutting-edge-music-for-youtube-short-videos-for-2024/"><u>Viral Beats  Cutting-Edge Music for YouTube Short Videos for 2024</u></a></li>
+</ul></div>

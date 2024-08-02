@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Thumbnails That Captivate  A Professional's Guide to Visual Lures\""
-date: 2024-06-05T15:16:51.162Z
-updated: 2024-06-06T15:16:51.162Z
+date: 2024-08-01T09:33:25.971Z
+updated: 2024-08-02T09:33:25.971Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,9 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Make a YouTube Thumbnail
 
 In order to create a custom video thumbnail, you’ll need a program to put it together in. You can use an image editing program like Photoshop if you have one, but if you don’t you can check out these [free thumbnail makers](#makers).
@@ -70,12 +73,32 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
 
 The three main elements of the Emotional Laser thumbnail are a background (usually bright), your face on the right wearing an over-pronounced expression, and either the thing your expression is in reaction to (i.e. food, a product, the topic of your video in text) or reinforcement of your emotion (i.e an emoji or question marks) on the left.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### #1. Ham It Up (Take Your Reaction Photo)
@@ -117,6 +140,18 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -177,12 +212,18 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -199,3 +240,40 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-champions-tech-the-ultimate-gaming-toolkit/"><u>[New] 2024 Approved  Champion's Tech  The Ultimate Gaming Toolkit</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-earnings-from-a-million-youtube-globals/"><u>[New] 2024 Approved  Earnings From a Million YouTube Globals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-content-with-insightful-channel-descriptions/"><u>[New] 2024 Approved  Elevate Your Content with Insightful Channel Descriptions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mac-techniques-to-shorten-instagram-vids/"><u>[New] 2024 Approved  Mac Techniques to Shorten Instagram Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-captivating-audiences-adopting-youtube-vlogger-charisma-for-2024/"><u>[New] Captivating Audiences  Adopting YouTube Vlogger Charisma for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audience-appeal-the-ultimate-guide-to-youtube-video-formats/"><u>[New] In 2024, Audience Appeal  The Ultimate Guide to YouTube Video Formats</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bridal-bliss-filmed-alike-high-quality-8-marriage-videos-online/"><u>[New] In 2024, Bridal Bliss Filmed Alike  High-Quality 8 Marriage Videos Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-decoding-story-weaving-basics/"><u>[New] In 2024, Decoding Story-Weaving Basics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expertly-lit-the-17-must-haves-for-youtubers/"><u>[New] In 2024, Expertly Lit  The 17 Must-Haves for Youtubers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-inside-the-directors-domain-comprehensive-guide-to-2024/"><u>[New] Inside the Director's Domain  Comprehensive Guide to 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-notes-an-introduction-to-youtube-list-making/"><u>[New] Navigating Notes  An Introduction to YouTube List Making</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>[New] Unlimited Christmas Classics  9 Films Available for No Charge</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-how-to-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>[Updated] 2024 Approved  How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleash-hd-playback-with-av1-on-youtube/"><u>[Updated] 2024 Approved  Unleash HD Playback with AV1 on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-5-leading-3d-video-entrance-design-tools-for-2024/"><u>[Updated] 5 Leading 3D Video Entrance Design Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-earning-potential-in-beauty-blogging-for-2024/"><u>[Updated] Earning Potential in Beauty Blogging for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ignite-your-passion-launching-an-epic-youtube-game-streaming-venture/"><u>[Updated] Ignite Your Passion  Launching an Epic YouTube Game-Streaming Venture</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-social-media-perspective-dissecting-igtv-versus-youtubes-features/"><u>[Updated] In 2024, A Social Media Perspective  Dissecting IGTV versus YouTube's Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-digital-content-arena-competing-titans-vimeo-youtube-dailymotion/"><u>[Updated] In 2024, Digital Content Arena  Competing Titans - Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-securing-your-stake-in-youtubes-financial-future/"><u>[Updated] Securing Your Stake in YouTube's Financial Future</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-premier-league-of-youtubes-most-watched-shorters/"><u>[Updated] The Premier League of YouTube's Most Watched Shorters</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023s-leading-covert-video-download-apps-1-8/"><u>2023'S Leading Covert Video Download Apps #1-8</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-into-virtual-realms-assessing-current-progress-future-hurdles/"><u>2024 Approved  Into Virtual Realms  Assessing Current Progress, Future Hurdles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-transformation-blueprint-for-igtv-adaptation/"><u>2024 Approved  YouTube's Transformation Blueprint for IGTV Adaptation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/capturing-the-horizon-expert-techniques-in-drone-filmmaking/"><u>Capturing the Horizon  Expert Techniques in Drone Filmmaking</u></a></li>
+<li><a href="https://driver-install.techidaily.com/elevate-your-system-with-the-latest-windows-11-touch-support/"><u>Elevate Your System with the Latest Windows 11 Touch Support</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-organizing-epics-implementing-chapters-in-vimeo-media/"><u>In 2024, Organizing Epics  Implementing Chapters in Vimeo Media</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-camera-balance-gimbals-for-drones-explained/"><u>Mastering Camera Balance  Gimbals for Drones Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/social-media-sovereigns-ranked-by-youtube-subscribers-for-2024/"><u>Social Media Sovereigns  Ranked by YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-by-step-connect-classic-games-with-mypics-w11/"><u>Step-by-Step: Connect Classic Games with MyPics W11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlock-joy-amidst-confinement-prime-20-jailbreak-funny-on-fb-for-2024/"><u>Unlock Joy Amidst Confinement  Prime 20 Jailbreak Funny on Fb for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/what-does-jailbreaking-iphone-6s-i-do-get-answers-here-by-drfone-ios/"><u>What Does Jailbreaking iPhone 6s i Do? Get Answers here</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-film-craft-mastering-thumbnail-creation-on-mobiles-for-2024/"><u>YouTube Film Craft  Mastering Thumbnail Creation on Mobiles for 2024</u></a></li>
+</ul></div>

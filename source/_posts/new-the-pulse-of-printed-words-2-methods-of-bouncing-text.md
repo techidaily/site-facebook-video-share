@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Pulse of Printed Words  2 Methods of Bouncing Text\""
-date: 2024-06-05T15:26:42.559Z
-updated: 2024-06-06T15:26:42.559Z
+date: 2024-08-01T09:50:22.372Z
+updated: 2024-08-02T09:50:22.372Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,9 @@ thumbnail: https://thmb.techidaily.com/92d935200679b107d6e949886541d1fff9656f8b1
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -44,6 +47,9 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
 **Step 3: Add Shake Filters**
@@ -70,6 +76,9 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -80,6 +89,9 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -106,6 +118,9 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -120,6 +135,9 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -136,3 +154,49 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-10-best-funny-videos-on-twitter/"><u>[New] 10 Best Funny Videos on Twitter</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-success-metrics-subscriber-and-play-buttons/"><u>[New] 2024 Approved  Channel Success Metrics  Subscriber & Play Buttons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-deletion-methods-for-youtubes-backlogged-video-collection/"><u>[New] 2024 Approved  Deletion Methods for YouTube's Backlogged Video Collection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-guide-to-writing-click-worthy-youtube-titles/"><u>[New] 2024 Approved  Essential Guide to Writing Click-Worthy Youtube Titles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-your-gaming-channel-on-youtube-for-2024/"><u>[New] Crafting Your Gaming Channel on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevating-video-revenue-youtubes-path-for-2024/"><u>[New] Elevating Video Revenue  YouTube's Path for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-visual-experience-youtubes-quality-boosting-guide-for-2024/"><u>[New] Elevating Visual Experience  YouTube's Quality Boosting Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-androids-best-youtube-video-downloaders-reviewed/"><u>[New] In 2024, Android's Best YouTube Video Downloaders Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-downloading-standardized-youtube-images-with-ease-and-precision/"><u>[New] In 2024, Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-silent-snaps-mastering-the-art-of-unseen-image-recording-on-snapchat/"><u>[New] In 2024, Silent Snaps  Mastering the Art of Unseen Image Recording on Snapchat</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-instagram-as-an-influencer-5-must-know-techniques-and-case-studies/"><u>[New] Mastering Instagram As An Influencer  5 Must-Know Techniques and Case Studies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-video-impact-on-youtube-top-video-formats/"><u>[New] Maximizing Video Impact on YouTube – Top Video Formats</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-6-superior-apps-for-effortless-mac-video-grabbing/"><u>[Updated] 2024 Approved  6 Superior Apps for Effortless Mac Video Grabbing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-accelerated-conversion-of-yt-content-for-mac-screens/"><u>[Updated] 2024 Approved  Accelerated Conversion of YT Content for MAC Screens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-banner-bliss-get-a-peek-at-our-library-of-50-free-youtube-banners/"><u>[Updated] Banner Bliss  Get a Peek at Our Library of 50 Free YouTube Banners!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-carminatis-gig-economy-ajays-youtube-wealth-stream-for-2024/"><u>[Updated] Carminati's Gig Economy  AJay's YouTube Wealth Stream for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harnessing-technology-the-art-of-capturing-ios-devices-in-media/"><u>[Updated] Harnessing Technology  The Art of Capturing iOS Devices in Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ease-and-speed-effective-methods-for-comment-removal/"><u>[Updated] In 2024, Ease and Speed  Effective Methods for Comment Removal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effective-color-difference-filters-in-film-making/"><u>[Updated] In 2024, Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tiktoks-biggest-winners-on-the-twittersphere/"><u>[Updated] In 2024, TikTok's Biggest Winners on the Twittersphere</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-professional-thumbnails-from-your-phone-for-youtube/"><u>[Updated] Professional Thumbnails From Your Phone for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-profit-strategies-in-youtube-marketing/"><u>[Updated] Profit Strategies in YouTube Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-up-your-mobile-filmmaking-with-these-9-must-have-tools/"><u>[Updated] Step Up Your Mobile Filmmaking with These 9 Must-Have Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-inserting-timestamps-in-youtube-urls/"><u>[Updated] The Ultimate Guide to Inserting Timestamps in YouTube URLs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[Updated] Top Choices  Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-uncover-free-photo-and-video-resources-from-esteemed-4-online-sources/"><u>[Updated] Uncover Free Photo and Video Resources From Esteemed 4 Online Sources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-power-of-social-sharing-for-your-youtube-videos/"><u>[Updated] Unlock the Power of Social Sharing for Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlocking-video-revenue-potential-the-facebook-marketing-playbook-for-2024/"><u>[Updated] Unlocking Video Revenue Potential  The Facebook Marketing Playbook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-video-excellence-started-with-quality-cameras-and-lenses/"><u>[Updated] Video Excellence Started with Quality Cameras and Lenses</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-streamlining-your-gaming-experience-windows-11-edition/"><u>2024 Approved  Streamlining Your Gaming Experience  Windows 11 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-elite-gear-top-5-video-chat-headsets/"><u>2024 Approved  YouTube's Elite Gear  Top 5 Video Chat Headsets</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-nokia-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Nokia Phones with/without a PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-fb-rights-instant-video-ownership-takedown-questions/"><u>In 2024, FB Rights  Instant Video Ownership Takedown Questions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-how-to-facetime-with-your-android-phone/"><u>In 2024, How To Facetime with Your Android Phone ?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-iphone-12-pro-max-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your iPhone 12 Pro Max and iPad</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-redmi-a2plus-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Xiaomi Redmi A2+</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/self-balancing-snap-shots-without-supports-for-2024/"><u>Self-Balancing  Snap Shots Without Supports for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-strategies-how-to-create-stellar-youtube-shorts-for-2024/"><u>Step-by-Step Strategies  How to Create Stellar YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/techniques-for-swiftly-cleaning-your-youtube-buffered-queue-for-2024/"><u>Techniques for Swiftly Cleaning Your YouTube Buffered Queue for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-choices-pro-shake-free-cameras-for-video-streams-for-2024/"><u>Top Choices  Pro Shake-Free Cameras for Video Streams for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/vlc-analysis-and-substitutes-revisited/"><u>VLC Analysis & Substitutes Revisited</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-image-files-made-simple-online-desktop-and-terminal-steps-for-2024/"><u>Youtube’s Image Files Made Simple  Online, Desktop & Terminal Steps for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Building a Loyal Following with Respectful Requests for 2024"
-date: 2024-06-05T16:27:15.815Z
-updated: 2024-06-06T16:27:15.815Z
+date: 2024-08-01T11:33:52.668Z
+updated: 2024-08-02T11:33:52.668Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,9 @@ There are people who think that if people like their videos they’ll subscribe,
    2. [Step 2: Get to The Point Quickly](#point)  
    3. [Step 3: Create a Moment - Make Subscribing Part of the Experience](#moment)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -44,6 +47,9 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -52,6 +58,9 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 #### Step 2: Get to The Point Quickly
@@ -62,6 +71,9 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
@@ -74,10 +86,16 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -94,3 +112,49 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-digital-influencers-riches-exceed-ages-kaji-ryan-story-for-2024/"><u>[New] Digital Influencer's Riches Exceed Ages  Kaji Ryan Story for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-carryminatis-income-blueprint-journey-through-2023/"><u>[New] In 2024, CarryMinati's Income Blueprint  Journey Through 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-comprehensive-list-of-high-quality-game-entrance-makers-online/"><u>[New] In 2024, Comprehensive List of High-Quality Game Entrance Makers Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-easy-steps-to-extract-and-save-your-youtube-watch-lists/"><u>[New] In 2024, Easy Steps to Extract and Save Your YouTube Watch Lists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-engage-viewers-from-the-start-mobile-film-techniques-for-thumbnails/"><u>[New] In 2024, Engage Viewers From the Start  Mobile Film Techniques for Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-history-vids-student-edition-of-top-10-lists/"><u>[New] In 2024, Essential History Vids  Student Edition of Top 10 Lists</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-moment-mastery-the-best-cams-for-extended-shutter-times/"><u>[New] Moment Mastery  The Best Cams for Extended Shutter Times</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-strategies-for-retrieving-private-chat-photos-for-2024/"><u>[New] Strategies for Retrieving Private Chat Photos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-earnings-potential-dm-and-yo-showdown/"><u>[New] Unlocking Earnings Potential  Dm & Yo Showdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-7-dslrs-to-elevate-virtual-presentations-and-broadcasts/"><u>[Updated] 2024 Approved  Essential 7 DSLRs to Elevate Virtual Presentations & Broadcasts</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-ultimate-record-assistant-az-audits-and-substitutes/"><u>[Updated] 2024 Approved  Ultimate Record Assistant - AZ Audits & Substitutes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-visionary-8-webcams-the-future-of-live-broadcasts/"><u>[Updated] 2024 Approved  Visionary 8 Webcams  The Future of Live Broadcasts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-boosting-your-snapstreak-essential-tips-and-tricks/"><u>[Updated] Boosting Your Snapstreak  Essential Tips and Tricks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-leading-flv-to-youtube-video-converters/"><u>[Updated] In 2024, 10 Leading FLV to YouTube Video Converters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-15-indispentic-tools-to-launch-your-youtube-career/"><u>[Updated] In 2024, 15 Indispentic Tools to Launch Your YouTube Career</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-architects-crafting-fantasy-realms-for-marvel/"><u>[Updated] In 2024, Architects Crafting Fantasy Realms for Marvel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-chapter-tactics-to-complement-your-youtube-presentations/"><u>[Updated] In 2024, Cutting-Edge Chapter Tactics to Complement Your YouTube Presentations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-insights-on-youtube-tvs-unique-features/"><u>[Updated] In 2024, Essential Insights on YouTube TV's Unique Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-youtube-markets-the-quest-for-a-targeted-niche/"><u>[Updated] Navigating YouTube Markets  The Quest for a Targeted Niche</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionizing-video-sharing-alternatives-to-youtube/"><u>[Updated] Revolutionizing Video Sharing  Alternatives to YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-subtlety-at-the-helm-lowering-sound-intensity-in-fl-studio/"><u>2024 Approved  Subtlety at the Helm  Lowering Sound Intensity in FL Studio</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-ultimate-benq-sw320-review-a-journey-to-4k/"><u>2024 Approved  The Ultimate BenQ SW320 Review  A Journey to 4K</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-thoroughly-assessing-the-performance-of-theta-s/"><u>2024 Approved  Thoroughly Assessing the Performance of Theta S</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youth-empowerment-your-life-story-can-inspire/"><u>2024 Approved  Youth Empowerment  Your Life Story Can Inspire</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-rewind-feat-unraveling-sequence-with-a-single-click/"><u>2024 Approved  YouTube's Rewind Feat  Unraveling Sequence with a Single Click</u></a></li>
+<li><a href="https://extra-information.techidaily.com/captivating-movement-a-guide-to-perfect-canon-timelapses-for-2024/"><u>Captivating Movement  A Guide to Perfect Canon Timelapses for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocer-el-mes-completo-todos-los-dias-del-ciclo-semanal-en-espanol/"><u>Conocer El Mes Completo: Todos Los Días Del Ciclo Semanal en Español</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-access-your-apple-iphone-14-plus-when-you-forget-the-passcode-by-drfone-ios/"><u>In 2024, How to Access Your Apple iPhone 14 Plus When You Forget the Passcode?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-nocturnal-images-on-iphones/"><u>In 2024, Navigating Nocturnal Images on iPhones</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-meizu-21-pro-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Meizu 21 Pro for Streaming | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-reno-11-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo Reno 11 5G Phone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transforming-your-view-with-the-hp-envy-27-monitor/"><u>In 2024, Transforming Your View with the HP Envy 27 Monitor</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vintage-video-making-masterclass-complete-tutorial/"><u>In 2024, Vintage Video Making Masterclass  Complete Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubing-upstarts-the-ideal-gadgets-list/"><u>In 2024, YouTubing Upstarts  The Ideal Gadgets List</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/interactive-presenters-synopsis-update-8-for-2024/"><u>Interactive Presenter's Synopsis, Update 8 for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/most-trusted-websites-for-inexpensive-motion-graphics-for-2024/"><u>Most Trusted Websites for Inexpensive Motion Graphics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secrets-of-saving-youtube-thumbnails-in-various-formats-for-2024/"><u>Secrets of Saving Youtube Thumbnails in Various Formats for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/skyrocket-viewer-numbers-with-the-top-12-effective-tactics-for-2024/"><u>Skyrocket Viewer Numbers with the Top 12 Effective Tactics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streaming-profitably-understanding-youtube-updates-for-2024/"><u>Streaming Profitably  Understanding YouTube Updates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tailoring-thumbnails-for-maximum-youtube-impact-for-2024/"><u>Tailoring Thumbnails for Maximum YouTube Impact for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-infinix-gt-10-pro-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Infinix GT 10 Pro FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-the-art-of-concealing-the-boundaries-between-sounds-with-fades/"><u>Updated In 2024, The Art of Concealing the Boundaries Between Sounds with Fades</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+</ul></div>

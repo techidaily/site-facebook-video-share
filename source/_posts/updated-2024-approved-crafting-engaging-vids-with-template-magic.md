@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Engaging Vids with Template Magic\""
-date: 2024-06-05T15:23:06.192Z
-updated: 2024-06-06T15:23:06.192Z
+date: 2024-08-01T09:44:12.167Z
+updated: 2024-08-02T09:44:12.167Z
 tags:
   - ai video
   - ai youtube
@@ -20,18 +20,31 @@ Titles and thumbnails sometimes aren't enough. Viewers need to know more about t
 
 Description templates will let you write descriptions very easily. All you have to do is replace the words to fit your video, and you are done! Learn more about them below.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![youtube description template](https://images.wondershare.com/filmora/article-images/youtube-description-template.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Overview of YouTube Description
 
 What are YouTube descriptions? There are two types: video description and channel description.
 
 ### YouTube Video Description
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![example of a video description](https://images.wondershare.com/filmora/article-images/youtube-description-templates-video-description-sample.JPG)
 
 The video description is the text below each video. Adding descriptions to your videos is not required. However, if you want success on YouTube, we highly recommend paying attention to video descriptions. It will give viewers more context about the video and will convince them to watch it.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### YouTube Channel Description
 
 ![example of a channel description](https://images.wondershare.com/filmora/article-images/youtube-description-templates-description-sample.JPG)
@@ -50,6 +63,9 @@ YouTube is not only telling people that they should watch your content. It also 
 6. Add a call-to-action to remind your viewers to like and subscribe.
 7. Note that only the first 200 characters will appear on the screen. Users need to click the "Show More" button to view the rest. So put what's most important in the first 200 characters.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Benefits of Using a YouTube Description Templates
 
 If you have a business or something on the internet that needs promotion, you think of SEO (Search Engine Optimization.) It makes the material appear more often and higher on searches.
@@ -58,6 +74,10 @@ When thinking about SEO, people think of Google. And rightly so. It is the large
 
 YouTube descriptions play a huge part in SEO. And description templates make writing appealing descriptions easier for content creators like you.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## 5 Best YouTube Video Description Template
 
 Now, you are well aware of the importance of YouTube descriptions. That may have made you feel more pressured to write fantastic ones. Here are 5 YouTube description templates you can use so it would not be much of a problem.
@@ -104,6 +124,10 @@ Please note that this is not the whole description. Rather, it is only the first
 
 **Tip:** Use URL shorteners if your website URL is too long. Remember that you only have 200 characters to use. So every character you can remove counts.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### 4\. YouTube Video Descriptions for How-To Videos With Products
 
 _Hello! Today I'm going to teach you how to \[topic.\] I regularly post things like this. So please subscribe and turn on your notifications to know when I post new content._
@@ -126,6 +150,9 @@ _Instagram: \[Your Instagram account link\]_
 
 Use this template for how-to videos wherein you use or mention your products. For example, the makeup products you used in a makeup tutorial video.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 5\. YouTube Video Description for Travel Vlogs
 
 _Join me as I explore \[location\], a \[more information about the location.\] To know more about this place, you can visit: \[website for the location.\]_
@@ -140,10 +167,17 @@ _\[Plus your other socials.\]_
 
 Use this template for videos where you travel to different places.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## 5 Best YouTube Channel Description Template
 
 People who found your video interesting will likely visit your channel. Having a fantastic YouTube Channel description will help encourage them to subscribe. You can edit these channel description templates to make one.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. YouTube Channel Description Template for Business Accounts
 
 Suppose you are using YouTube for marketing purposes. You can use this template to make your channel description.
@@ -154,6 +188,9 @@ _\[Channel name\] provides \[your services\]._
 
  _Download \[your product\] Now: \[Download link\]_
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. YouTube Channel Description Template for Travel Vloggers
 
 Is your content about traveling around places? If so, you can use this template.
@@ -166,6 +203,9 @@ _Welcome to the \[Channel Name\] YouTube Channel!_
 
  _You can also find me on Instagram to see pictures of the places I visit: \[your Instagram link.\]_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### 3\. YouTube Channel Description Template for Gaming Channels
 
 Gaming is a popular category on YouTube. If that's what your channel is for, you can try this template.
@@ -178,6 +218,9 @@ _You can also find me at:_
 
 _\[Insert your other socials\]_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4_._ YouTube Channel Description Templates for Beauty/Fashion Vloggers
 
 If your videos are makeup tutorials, fashion vlogs, and GRWM videos, you can use this template to write your channel description.
@@ -210,10 +253,16 @@ Of course, good video and channel descriptions are useless if your videos aren't
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![filmora editing videos](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
 Wondershare Filmora is a budget-friendly, beginner-friendly, feature-rich video editor. It also gets regular updates. The latest one introduced fantastic features like enhanced keyframes, draw masks, switchable workspace layouts, and more AI tools. With these tools in your hands, you can transform your YouTube videos into masterpieces.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 YouTube descriptions are crucial to the success of your YouTube channel. If you can't write a good one by yourself, don't worry. You can use YouTube description [**templates**](https://tools.techidaily.com/wondershare/filmora/download/) to make it easier.
@@ -222,6 +271,9 @@ With well-written descriptions and high-quality videos, your success on YouTube 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora editing videos](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
 Wondershare Filmora is a budget-friendly, beginner-friendly, feature-rich video editor. It also gets regular updates. The latest one introduced fantastic features like enhanced keyframes, draw masks, switchable workspace layouts, and more AI tools. With these tools in your hands, you can transform your YouTube videos into masterpieces.
@@ -248,6 +300,9 @@ With well-written descriptions and high-quality videos, your success on YouTube 
 
 # How to Record Good Audio Without a Microphone?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -291,6 +346,9 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -317,6 +375,9 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -329,6 +390,112 @@ _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Audio quality is more important than video quality on YouTube. You’ve probably heard that before – viewers might forgive sub-par video quality if they're interested in what you're saying, but if it’s hard to understand what you’re saying they'll click away.
+
+Getting an external mic (even a **[$10 one-off Amazon](https://www.amazon.com/Microphone-Seacue-Omnidirectional-Condenser-Smartphones/dp/B0727Z8TMX/ref=sr%5F1%5F5?ie=UTF8&qid=1504204000&sr=8-5&keywords=lav+mic)**) is one of the best ways to improve your videos. That said, maybe your budget is $0\. Or, maybe you just don’t happen to have a mic now and don’t want to wait to make videos. It could even be that you just don’t want to bother with an external mic.
+
+Luckily, there are a lot of easy, free, things you can do to protect the quality of your audio recording even if you’re not using an external mic. Here are a few tips:
+
+* [1\. Keep Your Camera Close](#close)
+* [2\. Shoot Somewhere Quiet](#quiet)
+* [3\. Pick a Good Room](#room)
+* [4\. Protect your Built-In Mic from Wind](#wind)
+* [5\. Use a Free Audio App](#app)
+* [6\. Do a Sound Check](#check)
+
+## 1\. Keep Your Camera Close (like, really close)
+
+The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
+
+For example, your camera’s mic might be just as good as a clip-on LAV, but that LAV is right by your mouth and the camera is a couple of big steps away.
+
+Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
+
+## 2.Shoot Somewhere Quiet
+
+The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
+
+Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+## 3\. Pick a Good Room
+
+There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
+
+You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
+
+Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
+## 4\. Protect your Built-In Mic from Wind
+
+If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
+
+There are a few ways to do this. If you’re doing hand-held shots you can partially cover your camera or phone’s mic with your finger. You don’t want to completely cover it/press down or your audio will be muffled. What you’re trying to do is create a barrier blocking out the wind.
+
+On movie sets, they block out wind by covering the microphones with big fuzzy things called ‘dead cats’. You can also block out wind noise by attaching something fuzzy to your microphone. If your camera’s built-in mic is on front of it then you just need something big and fluffy you can loop around the lens. You can use a piece of a boa, a fuzzy novelty scrunchie – you can even murder a fuzzy stuffed animal! Do you have an old coat with a fuzz around the hood? That fuzz would do nicely.
+
+_The pompom used in this video cost $2, but you might already have something that would work!_
+
+If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
+![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
+
+_You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
+
+The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+## 5\. Use a Free Audio App
+
+If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
+
+Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
+
+Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
+
+## 6\. Do a Sound Check
+
+Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
+
+Do you have any of your own audio tips to pass on? Leave them in the comments!
+
+_This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### Polish Your YouTube Videos with Filmora
+
+As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -392,6 +559,9 @@ _The pompom used in this video cost $2, but you might already have something tha
 
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
@@ -406,6 +576,11 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -418,6 +593,9 @@ _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -455,12 +633,18 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Pick a Good Room
 
 There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
@@ -469,6 +653,9 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -507,95 +694,9 @@ _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Audio quality is more important than video quality on YouTube. You’ve probably heard that before – viewers might forgive sub-par video quality if they're interested in what you're saying, but if it’s hard to understand what you’re saying they'll click away.
-
-Getting an external mic (even a **[$10 one-off Amazon](https://www.amazon.com/Microphone-Seacue-Omnidirectional-Condenser-Smartphones/dp/B0727Z8TMX/ref=sr%5F1%5F5?ie=UTF8&qid=1504204000&sr=8-5&keywords=lav+mic)**) is one of the best ways to improve your videos. That said, maybe your budget is $0\. Or, maybe you just don’t happen to have a mic now and don’t want to wait to make videos. It could even be that you just don’t want to bother with an external mic.
-
-Luckily, there are a lot of easy, free, things you can do to protect the quality of your audio recording even if you’re not using an external mic. Here are a few tips:
-
-* [1\. Keep Your Camera Close](#close)
-* [2\. Shoot Somewhere Quiet](#quiet)
-* [3\. Pick a Good Room](#room)
-* [4\. Protect your Built-In Mic from Wind](#wind)
-* [5\. Use a Free Audio App](#app)
-* [6\. Do a Sound Check](#check)
-
-## 1\. Keep Your Camera Close (like, really close)
-
-The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
-
-For example, your camera’s mic might be just as good as a clip-on LAV, but that LAV is right by your mouth and the camera is a couple of big steps away.
-
-Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
-
-## 2.Shoot Somewhere Quiet
-
-The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
-
-Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
-
-## 3\. Pick a Good Room
-
-There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
-
-You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
-
-Look for a room that has a lot of soft things in it, like beds and sofas.
-
-## 4\. Protect your Built-In Mic from Wind
-
-If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
-
-There are a few ways to do this. If you’re doing hand-held shots you can partially cover your camera or phone’s mic with your finger. You don’t want to completely cover it/press down or your audio will be muffled. What you’re trying to do is create a barrier blocking out the wind.
-
-On movie sets, they block out wind by covering the microphones with big fuzzy things called ‘dead cats’. You can also block out wind noise by attaching something fuzzy to your microphone. If your camera’s built-in mic is on front of it then you just need something big and fluffy you can loop around the lens. You can use a piece of a boa, a fuzzy novelty scrunchie – you can even murder a fuzzy stuffed animal! Do you have an old coat with a fuzz around the hood? That fuzz would do nicely.
-
-_The pompom used in this video cost $2, but you might already have something that would work!_
-
-If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
-
-![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
-
-_You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
-
-The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
-
-## 5\. Use a Free Audio App
-
-If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
-
-Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
-
-Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-## 6\. Do a Sound Check
-
-Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
-
-Do you have any of your own audio tips to pass on? Leave them in the comments!
-
-_This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
-
-### Polish Your YouTube Videos with Filmora
-
-As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
-
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -620,3 +721,42 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-building-your-brand-making-money-with-vids/"><u>[New] 2024 Approved  Building Your Brand  Making Money with Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-youtube-end-card-tactics-and-layouts/"><u>[New] 2024 Approved  Cutting Edge Youtube End Card Tactics & Layouts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-charting-the-future-essential-online-stock-yts-for-2024/"><u>[New] Charting the Future  Essential Online Stock YTs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-affiliate-advancements-how-small-channels-thrive-financially/"><u>[New] In 2024, Affiliate Advancements  How Small Channels Thrive Financially</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-the-art-of-video-cuts-essential-tools-for-mac-users/"><u>[New] Master the Art of Video Cuts  Essential Tools for Mac Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-craft-how-to-produce-mukbang-videos/"><u>[New] Mastering the Craft  How to Produce Mukbang Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-tv-broadcasts-repeating-youtube-videos-effortlessly/"><u>[New] Mastering TV Broadcasts  Repeating YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-rising-riches-of-a-kid-star-ryans-income-insights/"><u>[New] The Rising Riches of a Kid Star  Ryan's Income Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-artisans-crafting-marvel-fantasy-landscapes/"><u>[Updated] 2024 Approved  Artisans Crafting Marvel Fantasy Landscapes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-average-gain-for-youtubers-per-ad-exposure/"><u>[Updated] 2024 Approved  Average Gain for YouTubers per Ad Exposure?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-building-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>[Updated] 2024 Approved  Building Buzz  Strategies for Shaping Your Unique YouTubing Image</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-down-complexity-the-simplified-guide-to-youtube-4k-submissions-for-2024/"><u>[Updated] Cutting Down Complexity  The Simplified Guide to Youtube 4K Submissions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-daily-vlogging-ideas-what-to-talk-about-while-vlogging-for-2024/"><u>[Updated] Daily Vlogging Ideas  What to Talk About While Vlogging for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-divergent-paths-in-video-sharing-comparing-igtv-and-youtube-for-2024/"><u>[Updated] Divergent Paths in Video Sharing  Comparing IGTV & YouTube for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-expand-your-igtv-reach-the-top-5-methods-to-attract-more-viewers-for-2024/"><u>[Updated] Expand Your IGTV Reach  The Top 5 Methods to Attract More Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-youtube-videos-on-your-smartphone/"><u>[Updated] How To Make YouTube Videos on Your Smartphone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-complete-guide-to-downloading-youtube-videos-to-iphone-or-ipad/"><u>[Updated] In 2024, A Complete Guide to Downloading YouTube Videos to iPhone or iPad</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-youtube-seo-toolkit-boosting-your-content-rankings/"><u>[Updated] The Ultimate YouTube SEO Toolkit  Boosting Your Content Rankings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/20-best-copyright-free-pubg-montage-thumbnail/"><u>20 Best Copyright-Free PUBG Montage Thumbnail</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-beginners-blueprint-for-iphone-reflection-photography/"><u>2024 Approved  A Beginner's Blueprint for iPhone Reflection Photography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-step-by-step-guide-to-creating-a-peak-vr-environment/"><u>2024 Approved  Step-by-Step Guide to Creating a Peak VR Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comparative-look-at-the-fall-of-online-communities-vs-social-networks/"><u>A Comparative Look at the Fall of Online Communities Vs. Social Networks</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-tecno-spark-20-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-poco-c50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-y77t-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo Y77t to PC? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-on-apple-iphone-13-pro-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons On Apple iPhone 13 Pro? Find the Best Solution Here</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-iphone-14-pro-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on iPhone 14 Pro online without jailbreak</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-brand-creation-top-titles-for-video-content-craftsmen-max-156/"><u>In 2024, Youtube Brand Creation  Top Titles for Video Content Craftsmen (Max 156)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/parody-basics-tips-for-entertaining-mocks-for-2024/"><u>Parody Basics  Tips for Entertaining Mocks for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/solving-windows-10-blurry-image-issue/"><u>Solving Windows 10 Blurry Image Issue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-monetary-impact-of-mr-beast-for-2024/"><u>The Monetary Impact of Mr. Beast for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/versatile-online-creations-simple-and-inclusive-ideas-for-your-first-videos-for-2024/"><u>Versatile Online Creations  Simple and Inclusive Ideas for Your First Videos for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-apple-iphone-15-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your Apple iPhone 15 has bad ESN or blacklisted IMEI?</u></a></li>
+</ul></div>

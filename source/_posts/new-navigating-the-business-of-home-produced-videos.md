@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigating the Business of Home-Produced Videos\""
-date: 2024-06-05T12:27:29.819Z
-updated: 2024-06-06T12:27:29.819Z
+date: 2024-08-01T04:49:18.843Z
+updated: 2024-08-02T04:49:18.843Z
 tags:
   - ai video
   - ai youtube
@@ -49,14 +49,23 @@ But most importantly, they’re easy to make and easy to watch. The most popular
 
 So you've started filming videos on YouTube vlogs, but why aren't you making any money from them? Is it something you can change? Let's look at some common reasons why vloggers aren't making any income and figure out how to get around them.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ### Who is my target audience?
 
 ![target audience](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-3.jpg)
 
 So, let's be honest; most vloggers focus on the wrong audience. Most vloggers think they're not making money because they haven't figured out the right audience for their videos. But the reason why most vloggers aren't making money is that the majority of their audience is just not interested in them. It seems strange to say it, but when it comes down to it, most vloggers they're trying to appeal to the wrong type of people.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What problems am I solving?
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ![problem solving](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-4.jpg)
 
 It seems that more and more vloggers are doing videos today. However, so many vloggers aren't making money because they are trying to solve problems that no one wants to hear about! Make videos on the problem many people want to know about; they will want to see what you are saying—resulting in more views and money.
@@ -65,10 +74,16 @@ It seems that more and more vloggers are doing videos today. However, so many vl
 
 The internet provides many tools and resources to help vloggers find a job or business. Youtubers provide quality content, but some fall short of providing solutions. As a vlogger, it is your job to help potential clients identify what solution you are offering. You must be able to prove your expertise. You need to see if you're addressing the target audience's needs.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2:How To Start a Profitable Vlog YouTube Channel
 
 It's easy to get started on YouTube. Go to the website, set up a free account, and upload videos. But when it comes to growing a profitable vlog YouTube channel, there are some tricks to getting the best results. Here are the three things you must do to achieve the success that will bring you money.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Find your niche. (what is a niche, and how to find)
 
 A niche is a more specific topic than your normal interests and therefore requires more thought and research. Finding a niche means narrowing down what you're passionate about and what you're good at and carving out a community of viewers who want what you're offering. Once you figure out your niche, the next step is to create content that suits your niche and what you want to share.
@@ -77,6 +92,9 @@ A niche is a more specific topic than your normal interests and therefore requir
 
 Another thing that makes vlogging a successful business is consistency. Vloggers who put out new content every week or even every day may get a lot of views. A consistent schedule means you can produce new videos that will retain people's interest and keep them returning for more. Also, YouTube algorithms favor timely, fresh, and well-made videos. You must be patient and wait to get the attention of YouTube's algorithm.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Content quality
 
 With the success of big YouTube stars like Markiplier and Casey Neistat, it's clear that the market is for quality vlog content which is quite lucrative. YouTube's algorithm favors videos with large numbers of views, so if you're looking to start a profitable vlog YouTube channel, you'll need to add quality, creativity, and useful content for viewers.
@@ -138,6 +156,9 @@ Ad revenue comes from advertisers who pay to show their brand message across the
 
 According to Google, a publisher (Youtuber) will get 68% of ad revenue. An advertiser's actual rate varies, but it averages almost $0.18\. That means that for every 1000 ad views, a vlogger will receive $18.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Brand Sponsorship
 
 ![sponsorship](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-7.jpg)
@@ -146,24 +167,45 @@ While the vlogger market is still young, brands are starting to recognize its en
 
 Vloggers also use their videos to demonstrate how a product should be used and answer questions about the brand, its products, and services. As well as they will often provide some insight into a product or service through creative storytelling.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Affiliate Marketing
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube affiliate marketing](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-8.jpg)
 
 Affiliate marketing is another form of monetization for online video bloggers. In affiliate marketing, bloggers earn commissions by referring traffic to affiliate products through affiliate links. The goal of affiliate marketing is to drive sales and build a sustainable source of revenue, whether it's through Amazon, Google, or other platforms.
 
 ### Patreon
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![support on patreon](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-9.jpg)
 
 Patreon is another option, and if done correctly, it can turn a niche blog into a revenue source, which is great for bloggers and vloggers alike. By creating a Patreon account, you are allowing people to donate money to help support your content creation. In return, you offer rewards to supporters of your channel. Rewards could include extra content, merchandise, access to private forums, or even free ebooks.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Sell your service or products
 
 ![sell products or services](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-10.jpg)
 
 With over 1 billion monthly active users, there's an opportunity for content creators to make money by selling their products or services. You could sell your physical products to your audience as a vlogger. The best method this can be done is by creating an online store that sells T-shirts and mugs with your branding. Make sure those products must be related to your niche or channel category. As for services, you could also offer tips on improving your life, starting an online business, or even becoming a successful Youtuber!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Top 10 Highest-Paid Vloggers on YouTube
 
 Vloggers on YouTube are earning some big money. From the top-earning vloggers to the most-watched channels on YouTube, we're breaking down the ones raking in the dough.
@@ -183,14 +225,23 @@ Here are the top 10 highest paid vloggers on YouTube, according to Forbes:
 | 9\. Logan Paul        | 245 million       |
 | 10\. Preston Arsement | 20 million        |
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Hot FAQs on How To Start a Vlog and Make Money
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Is daily vlogging worth it?
 
 Yes, daily vlogs are the perfect way to establish yourself as an online expert if you think of it as a business. With the right strategy, there is no doubt that starting daily vlogs will be worthwhile for your business.
 
 However, many vloggers have found that it isn't easy to stick to the routine. You may start losing quality, and as a result, your daily vlogs performance degrades. This can be a frustrating experience for you, so you must consider this before embarking on a daily vlogging project.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. What is the best topic for vlogging?
 
 There isn't a specific topic for vlogging. The best topics to cover on any vlog can be the vlogger's most interesting thing of his life, what he loves doing, what makes him feel like making a difference in the community, or what he wants people to remember about the vlog. It all comes down to a person's personality, interests, and preferences.
@@ -215,6 +266,9 @@ So you've started filming videos on YouTube vlogs, but why aren't you making any
 
 ### Who is my target audience?
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![target audience](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-3.jpg)
 
 So, let's be honest; most vloggers focus on the wrong audience. Most vloggers think they're not making money because they haven't figured out the right audience for their videos. But the reason why most vloggers aren't making money is that the majority of their audience is just not interested in them. It seems strange to say it, but when it comes down to it, most vloggers they're trying to appeal to the wrong type of people.
@@ -225,10 +279,16 @@ So, let's be honest; most vloggers focus on the wrong audience. Most vloggers th
 
 It seems that more and more vloggers are doing videos today. However, so many vloggers aren't making money because they are trying to solve problems that no one wants to hear about! Make videos on the problem many people want to know about; they will want to see what you are saying—resulting in more views and money.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What solutions am I offering? Are these solutions both financially viable for you and in line with the needs of your target audience?
 
 The internet provides many tools and resources to help vloggers find a job or business. Youtubers provide quality content, but some fall short of providing solutions. As a vlogger, it is your job to help potential clients identify what solution you are offering. You must be able to prove your expertise. You need to see if you're addressing the target audience's needs.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2:How To Start a Profitable Vlog YouTube Channel
 
 It's easy to get started on YouTube. Go to the website, set up a free account, and upload videos. But when it comes to growing a profitable vlog YouTube channel, there are some tricks to getting the best results. Here are the three things you must do to achieve the success that will bring you money.
@@ -249,6 +309,9 @@ And to do that, you must try [Wondershare Filmora](https://tools.techidaily.com/
 
 **[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![wondershare filmora 11](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-5.jpg)
 
 This game-changing editor helps you create amazing videos by offering effects and features designed explicitly for Youtube videos.
@@ -302,6 +365,9 @@ Ad revenue comes from advertisers who pay to show their brand message across the
 
 According to Google, a publisher (Youtuber) will get 68% of ad revenue. An advertiser's actual rate varies, but it averages almost $0.18\. That means that for every 1000 ad views, a vlogger will receive $18.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### Brand Sponsorship
 
 ![sponsorship](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-7.jpg)
@@ -324,6 +390,9 @@ Patreon is another option, and if done correctly, it can turn a niche blog into 
 
 ### Sell your service or products
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![sell products or services](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-10.jpg)
 
 With over 1 billion monthly active users, there's an opportunity for content creators to make money by selling their products or services. You could sell your physical products to your audience as a vlogger. The best method this can be done is by creating an online store that sells T-shirts and mugs with your branding. Make sure those products must be related to your niche or channel category. As for services, you could also offer tips on improving your life, starting an online business, or even becoming a successful Youtuber!
@@ -347,6 +416,9 @@ Here are the top 10 highest paid vloggers on YouTube, according to Forbes:
 | 9\. Logan Paul        | 245 million       |
 | 10\. Preston Arsement | 20 million        |
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Hot FAQs on How To Start a Vlog and Make Money
 
 ### 1\. Is daily vlogging worth it?
@@ -355,6 +427,9 @@ Yes, daily vlogs are the perfect way to establish yourself as an online expert i
 
 However, many vloggers have found that it isn't easy to stick to the routine. You may start losing quality, and as a result, your daily vlogs performance degrades. This can be a frustrating experience for you, so you must consider this before embarking on a daily vlogging project.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ### 2\. What is the best topic for vlogging?
 
 There isn't a specific topic for vlogging. The best topics to cover on any vlog can be the vlogger's most interesting thing of his life, what he loves doing, what makes him feel like making a difference in the community, or what he wants people to remember about the vlog. It all comes down to a person's personality, interests, and preferences.
@@ -365,6 +440,9 @@ With a tripod, the most basic gear to start vlogging is a camera, microphone, an
 
 In addition to the gear needed to get started, there is one more item you'll need to consider to produce quality vlogs. A video editing software that helps you convert your raw footage into eye-catching content, like Wondershare Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## The Bottom Line
 
 So, in summary, if you want to become a vlogger, you will need to figure out how to find your target audience, connect with them, and keep them interested in you. And you can do all of this through social media, advertising, and email marketing. It might be tough at first, but once you get started, you'll be able to start generating revenue pretty quickly.
@@ -385,6 +463,9 @@ So, in summary, if you want to become a vlogger, you will need to figure out how
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Unlocking Video Content Potential: Integrating Interactive Features in Youtube Cards
 
 # How to Add YouTube Annotations and Cards?
@@ -403,6 +484,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -427,6 +511,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -438,6 +526,254 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+## How to add YouTube annotations
+
+YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
+
+* Click on the video manager tab
+* Click edit tab under the video screen shot you want to add the annotation on
+* Click on the "End screen & Annotation" tab
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+* On the right panel click on "+ Add Element" and select the kind of annotation you want to add
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+* Apply changes
+
+**The types of YouTube annotations:**
+
+#### 1\. Speech Bubbles
+
+Speech Bubbles: look like the dialogue box in a comic strip. There is a tail which you can adjust so it looks like one of the people in your video is saying what is written in the annotation. Speech bubbles are great for adding in funny comments.
+
+#### 2\. Notes
+
+Notes: come in a limited selection of colors and can be adjusted to take up a maximum of 30% of your player screen. Sometimes you need a huge annotation to get an important point across, but using huge note annotations too often – especially near the beginnings of your videos – will annoy viewers. If you need a large note annotation make sure to place it later in your video, when a viewer will already be invested in what they are watching and less likely to click away.
+
+#### 3\. Titles
+
+Titles: are large pieces of text that go either at the beginning of your video or in-between different topics within your video. YouTube’s titles are not very nice to look at, but they are a decent option if you do not have access to video editing software.
+
+#### 4\. Spotlights
+
+Spotlights: have a subtle border and are completely clear inside. Your text only appears when a user hovers over the spotlight. Spotlights are great for turning elements within your video into links.
+
+#### 5\. Labels
+
+Labels: are completely transparent, like spotlights, but the user does not have to hover over them for your text to be visible.
+
+#### 6\. Pauses
+
+Pauses: are no longer available to add to your videos, although Pause Annotations added before they were removed still work. Pause Annotations used to stop your video for a set period of time when your annotation appeared.
+
+If somebody watches your video and gets to the end then that means they enjoyed it and will probably be open to checking out more of your content. Rather than hoping that your other videos show up in the ‘Suggested Videos’ YouTube will show after yours has finished playing you should always include an outro, or ending card, after your video to recommend your own work. Annotations are used in a lot of successful YouTuber’s ending cards.
+
+One form this takes is small Note annotations in the bottom corners of the screen, one linking to your previous video and one to the next. Sometimes your viewers might not necessarily get the most enjoyment out of your videos by watching them in order, though. Sometimes you want to link viewers to the videos that are most related to the one they just watched.
+
+The best outros also include a subscribe button, which can be created using annotations. These annotations work best when combined with a verbal call to action. Make sure your outro lasts long enough for people to make the decision to subscribe or click another video.
+
+No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+**Update:** YouTube has replaced annotation with end screen. You can find the latest informaiton about [YouTube screen and YouTube cards](https://tools.techidaily.com/wondershare/filmora/download/) here.
+
+YouTube Cards and Annotations are very useful if you want to encourage your viewrs to take an action, like Subscribe, go to another video or associated website, etc. Today, we're going to show you the differences between cards and annotations, and how to add them in YouTube videos.
+
+---
+
+Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+The main difference between annotation and cards is their outlook. Cards are more graphical whereas annotations are text based. The cards slide in once you click the small "i" button on the video where as the annotation is there based on the timings set by the user. Moreover the main differences between the two are:
+
+1\. YouTube Cards are small and unobtrusive, unless a viewer chooses to click on them, which is why they are the better option when you are trying to get views on other videos. Irritating a few people with a big annotation might be worth it if you also draw other people’s attention to your cause or website, but it is not a good way to endear yourself to people you are trying to get views and subscriptions from. When a card is clicked a thumbnail will appear with a link to your additional content. YouTube Cards are often better than annotations for adding links to your videos because they look much tidier. Also, unlike annotations, cards will be visible to people watching your videos on their mobile devices.
+
+2\. You cannot use Cards just to insert notes into your videos, though, and you cannot adjust their size like you can with annotations. So, if you do need a link to be large and extremely noticeable, annotations might still be your best option. Cards and annotations can even be used in combination sometimes.
+
+* [Part 1: How to Add YouTube Cards](#part1)
+* [Part 2: How to Add YouTube Annotations](#part2)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
+## How to add YouTube Cards
+
+YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
+
+* Click on the "Video Manager" tab
+
+![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+* Click "Edit" tab under the video screen shot you want to add the card on
+* Click on the "Cards" tab
+
+![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+* On the right panel click on "Add Card" drop down menu and select the type of card you want to add
+* Click on the create button which will open the corresponding video
+* Once you finish the subsequent information required click create card
+* Select the timeline for the playhead to appear which leads to the card slide
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+* Apply changes and exit
+
+## How to add YouTube annotations
+
+YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
+
+* Click on the video manager tab
+* Click edit tab under the video screen shot you want to add the annotation on
+* Click on the "End screen & Annotation" tab
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+* On the right panel click on "+ Add Element" and select the kind of annotation you want to add
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+* Apply changes
+
+**The types of YouTube annotations:**
+
+#### 1\. Speech Bubbles
+
+Speech Bubbles: look like the dialogue box in a comic strip. There is a tail which you can adjust so it looks like one of the people in your video is saying what is written in the annotation. Speech bubbles are great for adding in funny comments.
+
+#### 2\. Notes
+
+Notes: come in a limited selection of colors and can be adjusted to take up a maximum of 30% of your player screen. Sometimes you need a huge annotation to get an important point across, but using huge note annotations too often – especially near the beginnings of your videos – will annoy viewers. If you need a large note annotation make sure to place it later in your video, when a viewer will already be invested in what they are watching and less likely to click away.
+
+#### 3\. Titles
+
+Titles: are large pieces of text that go either at the beginning of your video or in-between different topics within your video. YouTube’s titles are not very nice to look at, but they are a decent option if you do not have access to video editing software.
+
+#### 4\. Spotlights
+
+Spotlights: have a subtle border and are completely clear inside. Your text only appears when a user hovers over the spotlight. Spotlights are great for turning elements within your video into links.
+
+#### 5\. Labels
+
+Labels: are completely transparent, like spotlights, but the user does not have to hover over them for your text to be visible.
+
+#### 6\. Pauses
+
+Pauses: are no longer available to add to your videos, although Pause Annotations added before they were removed still work. Pause Annotations used to stop your video for a set period of time when your annotation appeared.
+
+If somebody watches your video and gets to the end then that means they enjoyed it and will probably be open to checking out more of your content. Rather than hoping that your other videos show up in the ‘Suggested Videos’ YouTube will show after yours has finished playing you should always include an outro, or ending card, after your video to recommend your own work. Annotations are used in a lot of successful YouTuber’s ending cards.
+
+One form this takes is small Note annotations in the bottom corners of the screen, one linking to your previous video and one to the next. Sometimes your viewers might not necessarily get the most enjoyment out of your videos by watching them in order, though. Sometimes you want to link viewers to the videos that are most related to the one they just watched.
+
+The best outros also include a subscribe button, which can be created using annotations. These annotations work best when combined with a verbal call to action. Make sure your outro lasts long enough for people to make the decision to subscribe or click another video.
+
+No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+**Update:** YouTube has replaced annotation with end screen. You can find the latest informaiton about [YouTube screen and YouTube cards](https://tools.techidaily.com/wondershare/filmora/download/) here.
+
+YouTube Cards and Annotations are very useful if you want to encourage your viewrs to take an action, like Subscribe, go to another video or associated website, etc. Today, we're going to show you the differences between cards and annotations, and how to add them in YouTube videos.
+
+---
+
+Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+The main difference between annotation and cards is their outlook. Cards are more graphical whereas annotations are text based. The cards slide in once you click the small "i" button on the video where as the annotation is there based on the timings set by the user. Moreover the main differences between the two are:
+
+1\. YouTube Cards are small and unobtrusive, unless a viewer chooses to click on them, which is why they are the better option when you are trying to get views on other videos. Irritating a few people with a big annotation might be worth it if you also draw other people’s attention to your cause or website, but it is not a good way to endear yourself to people you are trying to get views and subscriptions from. When a card is clicked a thumbnail will appear with a link to your additional content. YouTube Cards are often better than annotations for adding links to your videos because they look much tidier. Also, unlike annotations, cards will be visible to people watching your videos on their mobile devices.
+
+2\. You cannot use Cards just to insert notes into your videos, though, and you cannot adjust their size like you can with annotations. So, if you do need a link to be large and extremely noticeable, annotations might still be your best option. Cards and annotations can even be used in combination sometimes.
+
+* [Part 1: How to Add YouTube Cards](#part1)
+* [Part 2: How to Add YouTube Annotations](#part2)
+
+## How to add YouTube Cards
+
+YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
+
+* Click on the "Video Manager" tab
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+* Click "Edit" tab under the video screen shot you want to add the card on
+* Click on the "Cards" tab
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+* On the right panel click on "Add Card" drop down menu and select the type of card you want to add
+* Click on the create button which will open the corresponding video
+* Once you finish the subsequent information required click create card
+* Select the timeline for the playhead to appear which leads to the card slide
+
+![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+* Apply changes and exit
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -509,6 +845,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -522,6 +861,9 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -540,10 +882,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -552,218 +902,9 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
-
-* On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-* Apply changes
-
-**The types of YouTube annotations:**
-
-#### 1\. Speech Bubbles
-
-Speech Bubbles: look like the dialogue box in a comic strip. There is a tail which you can adjust so it looks like one of the people in your video is saying what is written in the annotation. Speech bubbles are great for adding in funny comments.
-
-#### 2\. Notes
-
-Notes: come in a limited selection of colors and can be adjusted to take up a maximum of 30% of your player screen. Sometimes you need a huge annotation to get an important point across, but using huge note annotations too often – especially near the beginnings of your videos – will annoy viewers. If you need a large note annotation make sure to place it later in your video, when a viewer will already be invested in what they are watching and less likely to click away.
-
-#### 3\. Titles
-
-Titles: are large pieces of text that go either at the beginning of your video or in-between different topics within your video. YouTube’s titles are not very nice to look at, but they are a decent option if you do not have access to video editing software.
-
-#### 4\. Spotlights
-
-Spotlights: have a subtle border and are completely clear inside. Your text only appears when a user hovers over the spotlight. Spotlights are great for turning elements within your video into links.
-
-#### 5\. Labels
-
-Labels: are completely transparent, like spotlights, but the user does not have to hover over them for your text to be visible.
-
-#### 6\. Pauses
-
-Pauses: are no longer available to add to your videos, although Pause Annotations added before they were removed still work. Pause Annotations used to stop your video for a set period of time when your annotation appeared.
-
-If somebody watches your video and gets to the end then that means they enjoyed it and will probably be open to checking out more of your content. Rather than hoping that your other videos show up in the ‘Suggested Videos’ YouTube will show after yours has finished playing you should always include an outro, or ending card, after your video to recommend your own work. Annotations are used in a lot of successful YouTuber’s ending cards.
-
-One form this takes is small Note annotations in the bottom corners of the screen, one linking to your previous video and one to the next. Sometimes your viewers might not necessarily get the most enjoyment out of your videos by watching them in order, though. Sometimes you want to link viewers to the videos that are most related to the one they just watched.
-
-The best outros also include a subscribe button, which can be created using annotations. These annotations work best when combined with a verbal call to action. Make sure your outro lasts long enough for people to make the decision to subscribe or click another video.
-
-No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-**Update:** YouTube has replaced annotation with end screen. You can find the latest informaiton about [YouTube screen and YouTube cards](https://tools.techidaily.com/wondershare/filmora/download/) here.
-
-YouTube Cards and Annotations are very useful if you want to encourage your viewrs to take an action, like Subscribe, go to another video or associated website, etc. Today, we're going to show you the differences between cards and annotations, and how to add them in YouTube videos.
-
----
-
-Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-The main difference between annotation and cards is their outlook. Cards are more graphical whereas annotations are text based. The cards slide in once you click the small "i" button on the video where as the annotation is there based on the timings set by the user. Moreover the main differences between the two are:
-
-1\. YouTube Cards are small and unobtrusive, unless a viewer chooses to click on them, which is why they are the better option when you are trying to get views on other videos. Irritating a few people with a big annotation might be worth it if you also draw other people’s attention to your cause or website, but it is not a good way to endear yourself to people you are trying to get views and subscriptions from. When a card is clicked a thumbnail will appear with a link to your additional content. YouTube Cards are often better than annotations for adding links to your videos because they look much tidier. Also, unlike annotations, cards will be visible to people watching your videos on their mobile devices.
-
-2\. You cannot use Cards just to insert notes into your videos, though, and you cannot adjust their size like you can with annotations. So, if you do need a link to be large and extremely noticeable, annotations might still be your best option. Cards and annotations can even be used in combination sometimes.
-
-* [Part 1: How to Add YouTube Cards](#part1)
-* [Part 2: How to Add YouTube Annotations](#part2)
-
-## How to add YouTube Cards
-
-YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
-
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
-
-* Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-* On the right panel click on "Add Card" drop down menu and select the type of card you want to add
-* Click on the create button which will open the corresponding video
-* Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
-
-* Apply changes and exit
-
-## How to add YouTube annotations
-
-YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
-
-* Click on the video manager tab
-* Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
-
-* On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-* Apply changes
-
-**The types of YouTube annotations:**
-
-#### 1\. Speech Bubbles
-
-Speech Bubbles: look like the dialogue box in a comic strip. There is a tail which you can adjust so it looks like one of the people in your video is saying what is written in the annotation. Speech bubbles are great for adding in funny comments.
-
-#### 2\. Notes
-
-Notes: come in a limited selection of colors and can be adjusted to take up a maximum of 30% of your player screen. Sometimes you need a huge annotation to get an important point across, but using huge note annotations too often – especially near the beginnings of your videos – will annoy viewers. If you need a large note annotation make sure to place it later in your video, when a viewer will already be invested in what they are watching and less likely to click away.
-
-#### 3\. Titles
-
-Titles: are large pieces of text that go either at the beginning of your video or in-between different topics within your video. YouTube’s titles are not very nice to look at, but they are a decent option if you do not have access to video editing software.
-
-#### 4\. Spotlights
-
-Spotlights: have a subtle border and are completely clear inside. Your text only appears when a user hovers over the spotlight. Spotlights are great for turning elements within your video into links.
-
-#### 5\. Labels
-
-Labels: are completely transparent, like spotlights, but the user does not have to hover over them for your text to be visible.
-
-#### 6\. Pauses
-
-Pauses: are no longer available to add to your videos, although Pause Annotations added before they were removed still work. Pause Annotations used to stop your video for a set period of time when your annotation appeared.
-
-If somebody watches your video and gets to the end then that means they enjoyed it and will probably be open to checking out more of your content. Rather than hoping that your other videos show up in the ‘Suggested Videos’ YouTube will show after yours has finished playing you should always include an outro, or ending card, after your video to recommend your own work. Annotations are used in a lot of successful YouTuber’s ending cards.
-
-One form this takes is small Note annotations in the bottom corners of the screen, one linking to your previous video and one to the next. Sometimes your viewers might not necessarily get the most enjoyment out of your videos by watching them in order, though. Sometimes you want to link viewers to the videos that are most related to the one they just watched.
-
-The best outros also include a subscribe button, which can be created using annotations. These annotations work best when combined with a verbal call to action. Make sure your outro lasts long enough for people to make the decision to subscribe or click another video.
-
-No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-**Update:** YouTube has replaced annotation with end screen. You can find the latest informaiton about [YouTube screen and YouTube cards](https://tools.techidaily.com/wondershare/filmora/download/) here.
-
-YouTube Cards and Annotations are very useful if you want to encourage your viewrs to take an action, like Subscribe, go to another video or associated website, etc. Today, we're going to show you the differences between cards and annotations, and how to add them in YouTube videos.
-
----
-
-Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-The main difference between annotation and cards is their outlook. Cards are more graphical whereas annotations are text based. The cards slide in once you click the small "i" button on the video where as the annotation is there based on the timings set by the user. Moreover the main differences between the two are:
-
-1\. YouTube Cards are small and unobtrusive, unless a viewer chooses to click on them, which is why they are the better option when you are trying to get views on other videos. Irritating a few people with a big annotation might be worth it if you also draw other people’s attention to your cause or website, but it is not a good way to endear yourself to people you are trying to get views and subscriptions from. When a card is clicked a thumbnail will appear with a link to your additional content. YouTube Cards are often better than annotations for adding links to your videos because they look much tidier. Also, unlike annotations, cards will be visible to people watching your videos on their mobile devices.
-
-2\. You cannot use Cards just to insert notes into your videos, though, and you cannot adjust their size like you can with annotations. So, if you do need a link to be large and extremely noticeable, annotations might still be your best option. Cards and annotations can even be used in combination sometimes.
-
-* [Part 1: How to Add YouTube Cards](#part1)
-* [Part 2: How to Add YouTube Annotations](#part2)
-
-## How to add YouTube Cards
-
-YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
-
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
-
-* Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-* On the right panel click on "Add Card" drop down menu and select the type of card you want to add
-* Click on the create button which will open the corresponding video
-* Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
-
-* Apply changes and exit
-
-## How to add YouTube annotations
-
-YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
-
-* Click on the video manager tab
-* Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -829,3 +970,51 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-does-paying-regularly-for-youtube-premium-give-you-more-than-just-an-ad-free-view/"><u>[New] 2024 Approved  Does Paying Regularly For YouTube Premium Give You More Than Just An Ad-Free View?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-how-to-use-screenrec/"><u>[New] 2024 Approved  How to Use ScreenRec</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-instas-trendy-filters/"><u>[New] 2024 Approved  The Ultimate Guide to Insta's Trendy Filters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boosting-channel-profitability-famebit-powered-sponsorship-tactics-for-2024/"><u>[New] Boosting Channel Profitability  FameBit-Powered Sponsorship Tactics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-compile-of-free-high-quality-sound-clips-for-videos-for-2024/"><u>[New] Compile of Free, High-Quality Sound Clips for Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-designing-distinctive-denouements-for-2024/"><u>[New] Designing Distinctive Denouements for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-3-easy-youtube-audio-extraction-methods-free-and-secure/"><u>[New] In 2024, 3 Easy YouTube Audio Extraction Methods  Free & Secure</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-mac-mp4-cutter-apps-enhance-video-editing/"><u>[New] In 2024, Best Mac MP4 Cutter Apps  Enhance Video Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creative-vanguard-audio-visual-convergence/"><u>[New] In 2024, Creative Vanguard  Audio-Visual Convergence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-the-art-of-youtube-playlist-shuffling/"><u>[New] In 2024, Discover the Art of YouTube Playlist Shuffling</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-free-video-editing-apps-for-iphonesipads/"><u>[New] In 2024, Essential Free Video Editing Apps for iPhones/iPads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-understanding-the-criteria-for-youtube-comment-spotlighting/"><u>[New] Understanding the Criteria for YouTube Comment Spotlighting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-path-to-perfect-videos-with-any-of-these-7-free-tools/"><u>[New] Your Path to Perfect Videos with Any of These 7 Free Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-instagram-connection-posting-video-content/"><u>[New] YouTube-Instagram Connection  Posting Video Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-2-ways-to-increase-your-youtube-audience-fast/"><u>[Updated] 2024 Approved  2 Ways to Increase Your YouTube Audience Fast</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-soundshapers-for-content-makers-on-youtube/"><u>[Updated] 2024 Approved  Best Soundshapers for Content Makers on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-diving-deep-into-the-income-of-ajey-carryminati/"><u>[Updated] 2024 Approved  Diving Deep Into the Income of Ajey (CarryMinati)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ultimate-guide-to-calculate-your-youtube-views-and-money/"><u>[Updated] 2024 Approved  Ultimate Guide to Calculate Your YouTube Views and Money</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cementing-climactic-conclusions-for-2024/"><u>[Updated] Cementing Climactic Conclusions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-driving-income-from-views-on-youtube-for-2024/"><u>[Updated] Driving Income From Views on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-economical-audience-expansion-buy-subscribers-not-time-for-2024/"><u>[Updated] Economical Audience Expansion  Buy Subscribers, Not Time for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-express-thumbnails-for-epic-battle-royale/"><u>[Updated] Express Thumbnails for Epic Battle Royale</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-youtube-thumbnails-saving-guide/"><u>[Updated] Free YouTube Thumbnails Saving Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-screen-grabber-gadgets-for-youtube-channels/"><u>[Updated] In 2024, Best Screen Grabber Gadgets for YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cultivating-connection-not-compulsion-in-subscriptions/"><u>[Updated] In 2024, Cultivating Connection, Not Compulsion in Subscriptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-the-secrets-of-youtubes-content-hub/"><u>[Updated] In 2024, Decoding the Secrets of YouTube's Content Hub</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-instant-adjustment-match-youtube-to-mac-aspects/"><u>[Updated] Instant Adjustment  Match YouTube to Mac Aspects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-iphoneandroid-autoplay-continuous-youtube-access/"><u>[Updated] IPhone/Android AutoPlay  Continuous YouTube Access</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-modify-twitter-clip-visuals/"><u>[Updated] Modify Twitter Clip Visuals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-savory-sensations-top-youtube-food-influencers/"><u>[Updated] Savory Sensations  Top YouTube Food Influencers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-right-sound-the-right-mic-top-recommendations-for-diverse-online-presence/"><u>[Updated] The Right Sound, The Right Mic  Top Recommendations for Diverse Online Presence</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-ultimate-conversion-of-tiktok-to-facebook-for-2024/"><u>[Updated] The Ultimate Conversion of TikTok to Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-youtube-editing-in-imovie-software/"><u>[Updated] The Ultimate Guide to YouTube Editing in iMovie Software</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-twist-and-turn-tales-transforming-visual-content-on-instagram-platforms-for-2024/"><u>[Updated] Twist and Turn Tales  Transforming Visual Content on Instagram Platforms for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximize-space-not-time-discover-the-coolest-34-phone-apps-for-slashing-size/"><u>2024 Approved  Maximize Space, Not Time  Discover the Coolest 34 Phone Apps for Slashing Size</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-zany-zooms-a-list-of-10-hilarious-short-youtube-video-scenes/"><u>2024 Approved  Zany Zooms  A List of 10 Hilarious, Short YouTube Video Scenes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-xiaomi-redmi-13c-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Xiaomi Redmi 13C Phone that is Locked?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-xiaomi-mix-fold-3-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Xiaomi Mix Fold 3 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-6-methods-for-switching-from-apple-iphone-13-pro-max-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 6 Methods for Switching from Apple iPhone 13 Pro Max to Samsung | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-balancing-act-lowering-audio-levels/"><u>In 2024, Balancing Act  Lowering Audio Levels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-as-a-learning-tool-insider-advice-for-teachers/"><u>In 2024, YouTube as a Learning Tool  Insider Advice for Teachers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/proven-youtube-intra-creation-strategies-free-edition-for-2024/"><u>Proven YouTube Intra Creation Strategies, Free Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/spectacular-screen-synergy-the-perfect-partner-pairing-for-an-mcn-for-2024/"><u>Spectacular Screen Synergy  The Perfect Partner Pairing for an MCN for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-to-webm-the-finest-video-converters-unveiled-for-2024/"><u>YouTube-to-WebM  The Finest Video Converters Unveiled for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The New Earnings Threshold  YouTube's $500 Rule\""
-date: 2024-06-05T14:42:22.733Z
-updated: 2024-06-06T14:42:22.733Z
+date: 2024-08-01T08:35:54.710Z
+updated: 2024-08-02T08:35:54.710Z
 tags:
   - ai video
   - ai youtube
@@ -24,10 +24,16 @@ For small creators on YouTube, getting monetized seemed like an uphill task. You
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## **Part 1.** **YouTube Monetization Revamp: 500 Subscribers Minimum Threshold Unveiled**
 
 The recent update in YouTube monetization requirements has made it easier than ever for small creators to make money on the platform. The YPP program changed and reduced the number of subscribers needed to be eligible. It has also reduced the amount of watch time needed. Let’s have a look at what the new eligibility criteria look like:
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![new eligibility criteria](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-1.JPG)
 
 The eligibility criteria for the YPP program are now easier and more achievable than before. To apply, you now need:
@@ -39,10 +45,18 @@ The eligibility criteria for the YPP program are now easier and more achievable 
 
 The new requirements are lower than the old ones. Previously, you were required to have at least 1,000 subscribers with over 4,000 public watch hours. By lowering the threshold, YouTube makes it easier for all creators to monetize their content.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Part 2\. YouTube Monetization with 500 Subscribers: A Brief Guide**
 
 YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ### **Know If You are Eligible**
 
 As a creator, you will want to know if you are eligible for the YouTube monetization 500 subscribers’ plan. Make sure that the notify feature on your channel is active to receive a notification. Go to the Earn area of the YouTube channel, and select Get Notified. Once selected, YouTube will send you an email when reach above the eligibility threshold.
@@ -68,6 +82,9 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ##### Step 1Sign in to YouTube Studio on your computer or desktop
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
 ##### Step 2Click Earn in the left menu
@@ -80,6 +97,9 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ##### Step 4Click Start to set up an AdSense account
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
 
 #### **On Android, iPhone and iPad**
@@ -93,6 +113,9 @@ Applying for YouTube monetization on your mobile devices follows the same proces
 
 Once you complete these steps on your computer or mobile, In Progress status will surface in the Get Reviewed step. This means that YouTube will review your channel and provide feedback within a month.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **What Monetization Review Entails**
 
 Once you submit your application, YouTube’s automated systems and human reviewers will look at your channel for a while. They will review it to make sure it follows all the platform’s policies and guidelines. As the reviews are in progress, creators are encouraged to back to the Earn section of YouTube Studio regularly. Typically, you will get the results within a month, but this may be affected by several factors:
@@ -108,6 +131,9 @@ Sometimes the first application may not be successful for some reason. In this c
 
 The major way of earning money on YouTube is through ads that show in your videos. In the case of Shorts, the ad-sharing revenue involves YouTube sharing the revenue generated from the ads with creators. However, getting accepted to YPP also allows you to start earning with fan funding and Shopping features. This means that creators can earn money directly from their views using these unique features
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![youtube monetization features](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-7.JPG)
 
 YouTube monetization 500 subscribers update allows you to earn money through monetization features that were not there before. This allows creators to interact more with their viewer while generating income. The main fan funding features include:
@@ -131,6 +157,10 @@ Filmora offers creators fantastic editing features to create better Shorts. Let�
 
 YouTube Shorts require quick content that covers everything within 60 seconds. With the Filmora AI Copywriting feature, you can get inspiration and add text to your videos. Express your thoughts more clearly and generate text that makes the video more engaging.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### 2\. [**Split Screen Video Editor**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
@@ -143,6 +173,9 @@ With YouTube Shorts, you need to be more creative. Adding objects to your videos
 
 The way you present your video means a lot to the audience. No one wants a boring or a really slow-moving video. With the Speed Ramping feature on Filmora, you can adjust the speed of your Shorts with better control of your keyframes. This allows you to create unique cinematic effects that keep the audience wanting more of the content.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## **Conclusion**
 
 The introduction of the YouTube monetization 500 subscribers’ policy update was a special moment for small YouTubers. It meant that the platform was extending its YPP program to more creators, allowing them to earn money from their content. Lowering the monetization requirement gives more people a chance to make money faster. However, it is important to make sure that your videos are offering value to your audience. We recommend using Wondershare Filmora to edit your videos and make sure they stand out from the competition. The better your videos will be, the more views you will get, and the more money you will make.
@@ -159,3 +192,53 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-convincing-audiences-to-join-a-positive-approach/"><u>[New] 2024 Approved  Convincing Audiences to Join  A Positive Approach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dive-into-9-premium-uncut-full-length-winter-wonderland-flicks/"><u>[New] 2024 Approved  Dive Into 9 Premium, Uncut Full-Length Winter Wonderland Flicks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-clear-distraction-free-viewing-of-old-youtube-content-for-2024/"><u>[New] Clear, Distraction-Free Viewing of Old YouTube Content for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-guide-to-top-8-linux-screenshot-solutions/"><u>[New] Guide to Top 8 Linux Screenshot Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-10-best-youtube-music-reaction-video-and-how-to-make-one/"><u>[New] In 2024, 10 Best YouTube Music Reaction Video & How to Make One</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-comprehensive-guide-to-the-12-superior-vlogging-cameras/"><u>[New] In 2024, A Comprehensive Guide to the 12 Superior Vlogging Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-charting-the-course-from-scale-to-submillions-in-youtube/"><u>[New] In 2024, Charting the Course  From Scale to Submillions in Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-convert-and-share-optimal-tools-for-youtube-to-avi-transfers/"><u>[New] In 2024, Convert & Share  Optimal Tools for YouTube-to-AVI Transfers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cutting-edge-editors-elevating-online-videos/"><u>[New] In 2024, Cutting-Edge Editors Elevating Online Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-the-secrets-of-highly-successful-youtube-shorts-templates/"><u>[New] In 2024, Decoding the Secrets of Highly Successful YouTube Shorts Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-visibility-on-yt-key-aspects-of-channel-art-and-banner-size/"><u>[New] In 2024, Enhance Visibility on YT  Key Aspects of Channel Art & Banner Size</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-essential-samsung-vr-games-for-beginners/"><u>[New] In 2024, Essential Samsung VR Games for Beginners</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-tools-ranking-the-best-mobile-videography-apps/"><u>[New] In 2024, Essential Tools  Ranking the Best Mobile Videography Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-definitive-guide-to-instagram-to-mp4-transformation-2-ways/"><u>[New] In 2024, The Definitive Guide to Instagram-to-MP4 Transformation 2 Ways</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-tips-and-tricks-for-joining-friends-live-on-tiktok/"><u>[New] In 2024, Tips & Tricks for Joining Friends' LIVE on TikTok</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-mastering-the-art-of-tweeting-tiktoks-for-2024/"><u>[New] Mastering the Art of Tweeting TikToks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtube-video-composition-techniques/"><u>[New] Mastering YouTube Video Composition Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-editors-guide-to-powerful-notebooks-and-more/"><u>[New] The Editor's Guide to Powerful Notebooks and More</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-new-age-of-income-generation-for-youtube-visionaries/"><u>[New] The New Age of Income Generation for YouTube Visionaries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-downloading-standardized-images-from-youtube/"><u>[New] The Ultimate Guide to Downloading Standardized Images From Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-step-by-step-approach-to-crafting-your-video-market-standouts/"><u>[Updated] 2024 Approved  A Step-by-Step Approach to Crafting Your Video' Market Standouts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-break-the-ice-with-these-beginner-video-gadgets-for-2024/"><u>[Updated] Break the Ice with These Beginner Video Gadgets for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-brands-together-a-guide-to-selecting-youtube-teams-for-2024/"><u>[Updated] Building Brands Together  A Guide to Selecting YouTube Teams for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-embrace-laughter-and-sorrow-with-these-top-10-meme-igs-for-2024/"><u>[Updated] Embrace Laughter and Sorrow with These Top 10 Meme IGs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-tips-on-choosing-the-best-youtube-to-avi-software/"><u>[Updated] Expert Tips on Choosing the Best YouTube-to-AVI Software</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-much-wealth-awaits-one-million-youtube-followers-in-2024/"><u>[Updated] How Much Wealth Awaits One Million YouTube Followers, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exclusive-access-to-6-premium-thumbnail-generators-for-youtube/"><u>[Updated] In 2024, Exclusive Access to 6 Premium Thumbnail Generators for YouTube</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-precision-in-reducing-image-size-the-essential-guide-to-thumbnails/"><u>[Updated] In 2024, Precision in Reducing Image Size  The Essential Guide to Thumbnails</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-premium-camcorders-enhancing-podcasting/"><u>2024 Approved  Premium Camcorders Enhancing Podcasting</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-streamlining-tiktok-posts-for-facebook-exposure/"><u>2024 Approved  Streamlining TikTok Posts for Facebook Exposure</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-oppo-reno-8t-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Oppo Reno 8T Face Lock?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-tecno-pova-5-pro-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Tecno Pova 5 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-tecno-spark-10-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Tecno Spark 10 Pro to New Android? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-honor-x8b-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Honor X8b to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>In 2024, Elevate Your Channel  Hit the 10,000 View Mark Fast!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-maximizing-socialization-with-ease-xbox-ones-zoom-functionality/"><u>In 2024, Maximizing Socialization with Ease  Xbox One's Zoom Functionality</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-tech-basics-essential-equipment-guide/"><u>In 2024, YouTube Tech Basics  Essential Equipment Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/optimize-your-viewing-experience-adjust-netflix-speed-for-2024/"><u>Optimize Your Viewing Experience  Adjust Netflix Speed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/social-network-power-play-understanding-igtv-vs-youtubes-dynamics-for-2024/"><u>Social Network Power Play  Understanding IGTV Vs. YouTube's Dynamics for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stand-out-on-youtube-logo-tips-for-visibility-for-2024/"><u>Stand Out on YouTube  Logo Tips for Visibility for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-into-success-with-instant-youtube-thumbnail-skills-for-2024/"><u>Step Into Success with Instant YouTube Thumbnail Skills for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/step-by-step-process-for-iptv-stream-imaging/"><u>Step-by-Step Process for IPTV Stream Imaging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-12-youtube-game-openers-both-free-and-fee-based-options-for-2024/"><u>Top 12 YouTube Game Openers  Both Free & Fee-Based Options for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-3-online-tools-for-premium-gif-creation-for-2024/"><u>Top 3 Online Tools for Premium GIF Creation for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-asus-rog-phone-7-ultimate-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Asus ROG Phone 7 Ultimate FRP Bypass</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/virtual-pantheon-of-streaming-achievements-for-2024/"><u>Virtual Pantheon of Streaming Achievements for 2024</u></a></li>
+</ul></div>

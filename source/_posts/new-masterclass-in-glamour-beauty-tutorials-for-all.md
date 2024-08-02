@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Masterclass in Glamour  Beauty Tutorials for All\""
-date: 2024-06-05T13:46:48.655Z
-updated: 2024-06-06T13:46:48.655Z
+date: 2024-08-01T07:01:55.108Z
+updated: 2024-08-02T07:01:55.108Z
 tags:
   - ai video
   - ai youtube
@@ -41,12 +41,18 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
    9. **[How to Make a Makeup Tutorial – Recording](#recording)**
    10. **[How to Make a Makeup Tutorial – After Shooting](#after)**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Best YouTube Video Editor- Wondershare Filmora
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -57,6 +63,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -116,6 +125,9 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -139,6 +151,9 @@ You might want to experiment with sitting at different distances to see how the 
 
 **_Step 2:_** Set your camera up a bit higher than your face and tilt it down towards yourself (shooting from slightly above is always more flattering). It should be set up at about a 15° angle to you.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
@@ -151,6 +166,9 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
@@ -161,6 +179,9 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -261,6 +282,9 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -275,6 +299,9 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -291,3 +318,38 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-live-stream-screen-recorders-for-youtube/"><u>[New] 2024 Approved  Best Live Stream Screen Recorders for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creating-a-clickable-thumbnail-enhancing-video-visibility-without-costs/"><u>[New] 2024 Approved  Creating a Clickable Thumbnail  Enhancing Video Visibility without Costs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-drive-engagement-not-farewells-top-strategies-to-keep-your-audience-hooked-on-youtube/"><u>[New] 2024 Approved  Drive Engagement, Not Farewells  Top Strategies to Keep Your Audience Hooked on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-stealthy-search-strategies-for-elusive-youtube-videos/"><u>[New] 2024 Approved  Stealthy Search Strategies for Elusive YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-complete-walkthrough-to-grab-youtube-playlists-for-2024/"><u>[New] Complete Walkthrough to Grab YouTube Playlists for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-diy-video-mastery-10-straightforward-concepts-everyone-should-try-for-2024/"><u>[New] DIY Video Mastery  10 Straightforward Concepts Everyone Should Try for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-editing-excellence-the-ultimate-guide-to-top-notebooks-for-2024/"><u>[New] Editing Excellence  The Ultimate Guide to Top Notebooks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-5-effective-tricks-for-youtube-subscriber-surges/"><u>[New] In 2024, 5 Effective Tricks for YouTube Subscriber Surges</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtube-video-free-transcription-techniques/"><u>[New] Mastering YouTube Video Free Transcription Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-creativity-with-youtube-list-mix-ups/"><u>[New] Unleash Creativity with YouTube List Mix-Ups</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-easy-guide-to-exceptional-thumbnails/"><u>[New] YouTube's Easy Guide to Exceptional Thumbnails</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-top-6-minecraft-modern-house-ideas/"><u>[Updated] 2024 Approved  Top 6 Minecraft Modern House Ideas</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-behind-the-scenes-preparing-to-go-live/"><u>[Updated] Behind the Scenes  Preparing to Go Live</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-bp550-review-latest-tech-advances/"><u>[Updated] BP550 Review  Latest Tech Advances</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-convert-and-edit-wonders-10-best-youtube-tools-feat-audio-for-2024/"><u>[Updated] Convert & Edit Wonders  10 Best YouTube Tools Feat. Audio for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capture-youtube-in-full-free-screencast-tutorials-you-need-right-now/"><u>[Updated] In 2024, Capture YouTube in Full - Free Screencast Tutorials You Need Right Now</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-compiling-leading-short-form-video-editors-iosandroid-edition/"><u>[Updated] In 2024, Compiling Leading Short-Form Video Editors  IOS/Android Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cultivating-a-visionary-channel-with-best-video-ideas/"><u>[Updated] In 2024, Cultivating a Visionary Channel with Best Video Ideas</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-most-trending-twitch-originals-from-amazon-prime/"><u>[Updated] In 2024, The Most Trending Twitch Originals From Amazon Prime</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-keyword-mastery-the-10-best-online-resources-to-increase-views/"><u>[Updated] Keyword Mastery  The 10 Best Online Resources to Increase Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-the-landscape-of-youtube-advertising-and-banners/"><u>[Updated] Navigating the Landscape of YouTube Advertising & Banners</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamlined-search-for-personalized-song-collection-on-youtube/"><u>[Updated] Streamlined Search for Personalized Song Collection on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-tailoring-your-archive-strategy-on-instagram/"><u>[Updated] Tailoring Your Archive Strategy on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-guide-to-youtube-thumbnail-crafting-mac/"><u>[Updated] The Essential Guide to YouTube Thumbnail Crafting (Mac)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-launchpad-gear-list-enhance-your-beginners-gopro-journey/"><u>2024 Approved  Launchpad Gear List - Enhance Your Beginner's GoPro Journey</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-nokia-c12-plus-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Nokia C12 Plus</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-comprehensive-guide-to-great-ig-videos/"><u>In 2024, The Comprehensive Guide to Great IG Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-apples-podcast-submission-requirements-clearly/"><u>Navigating Apple's Podcast Submission Requirements Clearly</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/snapshots-of-success-jake-pauls-youtube-milestones-for-2024/"><u>Snapshots of Success  Jake Paul’s YouTube Milestones for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+</ul></div>

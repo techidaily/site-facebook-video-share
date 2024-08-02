@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Creating Captivating Visuals with DIY Filming Methods"
-date: 2024-06-05T15:30:19.027Z
-updated: 2024-06-06T15:30:19.027Z
+date: 2024-08-01T09:56:30.236Z
+updated: 2024-08-02T09:56:30.236Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,9 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -53,6 +56,9 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -67,6 +73,9 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -75,6 +84,9 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -95,8 +107,14 @@ Looking to find the right lights for your video recording set? Check out our [To
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -113,3 +131,43 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-evaluating-mr-beasts-monetary-world/"><u>[New] 2024 Approved  Evaluating Mr. Beast's Monetary World</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-rx-fanfare-update-pack/"><u>[New] 2024 Approved  RX Fanfare Update Pack</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhance-video-screenshot-with-vivid-neon-outlines-for-2024/"><u>[New] Enhance Video Screenshot with Vivid Neon Outlines for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-expert-audio-guide-for-vloggers/"><u>[New] Expert Audio Guide for Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-design-mastery-selecting-the-right-yt-banner-and-art-sizes/"><u>[New] In 2024, Channel Design Mastery  Selecting the Right YT Banner & Art Sizes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-youtubes-top-mp3-conversion-apps/"><u>[New] In 2024, Decoding YouTube's Top MP3 Conversion Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-info-on-crafting-engaging-yt-shorts/"><u>[New] In 2024, Essential Info on Crafting Engaging YT Shorts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-speedy-cam-and-commentary-recorder-software/"><u>[New] In 2024, Speedy Cam & Commentary Recorder Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-analyzing-youtube-numbers-views-and-money/"><u>[New] Mastering the Art of Analyzing YouTube Numbers  Views & Money</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monthly-earnings-potential-on-youtube/"><u>[New] Monthly Earnings Potential on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-taste-titans-top-culinary-bloggers-and-youtubers/"><u>[New] Taste Titans  Top Culinary Bloggers & YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-build-and-launch-youtube-video-ads-on-budget/"><u>[Updated] 2024 Approved  Build & Launch YouTube Video Ads on Budget</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-deactivating-instagrams-igtv-feature/"><u>[Updated] 2024 Approved  Deactivating Instagram's IGTV Feature</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortlessly-stream-mp3-to-youtube-with-3-key-steps/"><u>[Updated] 2024 Approved  Effortlessly Stream  MP3 to YouTube with 3 Key Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-how-to-create-a-youtube-music-playlist/"><u>[Updated] 2024 Approved  How to Create a YouTube Music Playlist</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comedy-canvas-painting-laughter-with-top-10-video-concepts-for-2024/"><u>[Updated] Comedy Canvas  Painting Laughter with Top 10 Video Concepts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-online-impact-with-effective-backlink-strategies-for-2024/"><u>[Updated] Elevate Your Online Impact with Effective Backlink Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-techniques-for-professionalizing-mobile-based-youtube-thumbnails-for-2024/"><u>[Updated] Expert Techniques for Professionalizing Mobile-Based YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-assemble-a-personalized-youtube-music-list/"><u>[Updated] How to Assemble a Personalized YouTube Music List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>[Updated] In 2024, 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-deep-dive-into-youtubes-latest-monetization-policy/"><u>[Updated] In 2024, A Deep Dive Into YouTube's Latest Monetization Policy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-media-top-ranking-camera-apps-for-iphonesandroid-devices/"><u>[Updated] In 2024, Exploring Media  Top-Ranking Camera Apps for iPhones/Android Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mobile-guide-kickstarting-your-youtube-entrepreneurial-venture/"><u>[Updated] Mobile Guide  Kickstarting Your YouTube Entrepreneurial Venture</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategizing-to-spot-and-capture-youtubes-hidden-markets/"><u>[Updated] Strategizing to Spot and Capture Youtube's Hidden Markets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-shorts-success-error-free-techniques/"><u>[Updated] YouTube Shorts Success  Error-Free Techniques</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-crafting-conversations-that-captivate-google-meet-edition/"><u>2024 Approved  Crafting Conversations that Captivate  Google Meet Edition</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-gauge-if-an-mcn-is-right-for-your-youtube-journey/"><u>2024 Approved  How to Gauge if an MCN Is Right for Your YouTube Journey</u></a></li>
+<li><a href="https://games-able.techidaily.com/commanding-the-dungeon-top-6-strategies-with-gpt-assisted-gameplay/"><u>Commanding the Dungeon: Top 6 Strategies with GPT-Assisted Gameplay</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-honor-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Honor</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-vivo-y100t-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Vivo Y100t without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-vivo-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Vivo Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-video-quality-comparison-mirrorless-or-dslr-cameras/"><u>In 2024, Video Quality Comparison  Mirrorless or DSLR Cameras?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/premium-selection-10-affordable-captions-from-youtube-for-2024/"><u>Premium Selection  10 Affordable Captions From YouTube for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-samsung-galaxy-f04-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Samsung Galaxy F04 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/say-hello-to-banner-creativity-with-our-curated-set-of-50-free-youtube-pieces-for-2024/"><u>Say Hello to Banner Creativity with Our Curated Set of 50 Free YouTube Pieces for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/syncing-youtube-optimizing-screen-viewing-for-live-tv-audiences-for-2024/"><u>Syncing YouTube  Optimizing Screen Viewing for Live TV Audiences for 2024</u></a></li>
+</ul></div>

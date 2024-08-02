@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting YouTube Trailers  A Filmora Guide\""
-date: 2024-06-05T13:37:04.894Z
-updated: 2024-06-06T13:37:04.894Z
+date: 2024-08-01T06:45:32.432Z
+updated: 2024-08-02T06:45:32.432Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,18 @@ Do you want to know how to get more subscribers? Do you want your channel to be 
 
 The most efficient and easy way to do this is by making a YouTube trailer. It will help to attract a new audience and give your channel a more artistic and pleasing approach. Scroll more to get secret tips!
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. What is a YouTube trailer?
 
 A YouTube trailer is a short intro video for your channel. What do you do? What is your content? It is a brief video that helps the new audience understand your channel.
@@ -66,6 +78,9 @@ Make a short intro, depending on the content and your presence on the screen. Ag
 
 You can add a quick introduction about yourself and your backstory. It will create a sense of personal attachment to the channel and help you engage better with the audience.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** keep in mind to make a short intro. Please don't spend too much time on it. And remember, it's all about the audience.
@@ -96,6 +111,9 @@ You can refer to the most popular style in your area. Then, making the possibili
 
 Schedules are vital if you want regularly engaging viewers. The audience will be kept track of your activities and be there as soon as you upload your video. Also, new viewers know when to expect new content from you and commit to your goal, so they know your strategy.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![video posts schedules](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-4.jpg)
 
 ##### Step6 Call to action
@@ -170,6 +188,9 @@ One of the easiest ways is to use perfect music. So if you want to know how to s
 
 Here, you should explain to your audience the purpose of your channel and what they can expect from you. At this stage, new potential viewers can get you, whether your goal is to entertain them, teach something specific, or discuss certain topics and how you intend to achieve them.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![an example of a creative trailer](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-3.jpg)
 
 **Determine the style of your video**
@@ -186,6 +207,9 @@ You can refer to the most popular style in your area. Then, making the possibili
 
 Schedules are vital if you want regularly engaging viewers. The audience will be kept track of your activities and be there as soon as you upload your video. Also, new viewers know when to expect new content from you and commit to your goal, so they know your strategy.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![video posts schedules](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-4.jpg)
 
 ##### Step6 Call to action
@@ -222,10 +246,16 @@ Alright! Following the steps mentioned above, you will be able to create a good 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ignite Views: Effective Strategies for Optimizing YouTube Collaborations
 
 # YouTube Outros that Grow Your Channel Faster
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -263,6 +293,142 @@ You may also want to include **social icons and handles** for your accounts on s
 
 Here are 4 sites where you can download templates for YouTube Outros:
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Tube Arsenal Outro template](https://images.wondershare.com/filmora/article-images/tubearsenal-outro-template.jpg)
+
+**Tube Arsenal:** this site has a good selection of customizable outros with moving backgrounds. On the Tube Arsenal site, before you download, you can adjust the colors and text included in your outro and even load in your own logo.
+
+You can preview your customized outro by clicking Preview Still or Preview Movie.
+
+Outros on Tube Arsenal cost $9 for 720P or $13 for 1080p.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Outro Maker Templates](https://images.wondershare.com/filmora/article-images/outro-maker-template.jpg)
+
+**Outro Maker:** you can get animated end screens/outros from Outro Maker for $2.99 a month (or, if you just need one outro, you can probably finish it during your 7-day free trial).
+
+Outro Maker uses the content already uploaded onto your channel to create your outro, so you will need to link the service with your channel.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
+![Biteable Outro Template](https://images.wondershare.com/filmora/article-images/biteable-outro-maker-template.jpg)
+
+**Biteable:** the templates you can customize on Biteable are not specifically designed to be YouTube Outros and will not have slots for your end screen elements. The videos start out a lot longer than you’ll want for an end screen (an end screen can’t last longer than 20 seconds), but you can shorten them by deleting all the ‘scenes’ you don’t need and keeping just the one or two you want.
+
+The clips you can get from Biteable look great, and their process for changing the text and colors is simple and intuitive.
+
+You can create 5 free projects every month with Biteable, but you’ll need to upgrade to their paid service to download them. It’s $30 for one month.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Velosofy Outro Template](https://images.wondershare.com/filmora/article-images/velosofy-outro-maker-template.jpg)
+
+**Velosofy:** this site has a decent selection of templates you can download for free. However, the downloads are all project files for programs like Adobe Photoshop or After Effects. You’ll need to have the program that goes with your download in order to customize your outro.
+
+You can also find free outro templates by searching for them on YouTube! Lots of people have created free outros to share with the YouTube community.
+
+Besides downloading outro templates from the website, you can also create it with some [outro makers](https://tools.techidaily.com/wondershare/filmora/download/) or with the video editing software that you are using. [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) is the video editor that I used often, it is featured some cool templates and preset for making an outro. I recommend you try it as well.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 3: How to Use YouTube’s End Screen Feature
+
+Make sure to create a space at the end of your video for the elements of your end screen to sit on top of. Your end screen will not add to the length of your video, it will overlay onto the last 5-20 seconds.
+
+Here’s how you add an End Screen:
+
+1. Go to your **YouTube Studio**, then switch to **Videos** on the left menu;
+2. Click **Details** next to the video you want to add an end screen to.
+3. Click the **End screen** in the menu under the lower right window.
+4. Click **Element** to start adding videos, playlists, and subscribe buttons to your outro. You could also choose to use the same layout as a previous end screen with **Import From Video**, or you could apply multiple elements at once with a **YouTube Template**.
+5. Drag the elements to where you want them and adjust the timing using the timeline.
+6. Click **Save** when you’re done.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 4: How YouTube Outros/End Screens Can Help You Grow on YouTube
+
+One of the most important statistics for measuring the growth of Your YouTube channel is Watch Time. You need 4,000 hours of watch time (over the past 12 months) in order to qualify for monetization/the YouTube Partner Program, and watch time also plays an important role in how your videos are ranked in YouTube’s search results.
+
+Watch time is more important than views. If you’re getting views, but people are only watching short sections of your video, YouTube’s algorithm thinks the people who are clicking on your videos don’t like them and ranks them lower.
+
+Outros are one of the best ways of increasing the watch time for your channel, because the whole point of an outro is to convince viewers to stick around and watch more videos. Here are some best practices:
+
+**Link to related videos and playlists**: if someone has watched one video on a topic to the end, they’ll likely be interested in another highly related video from you. For example, someone who’s watched a Let’s Play for God of War is more likely to be interested in another God of War video than your review of your new gaming headset.
+
+**Link to your newest video:** YouTube’s algorithm places the most weight on the data it collects about your video within the first 24 hours of it being listed as Public. To give your newest video it’s the best chance at success, you should do everything you can to boost its watch time when it’s first posted and linking to it in the end screens of all your other videos is one way to do that.
+
+You don’t have to change every screen individually, YouTube lets you link to your most recent video automatically.
+
+**Link to Playlists:** if you can get a viewer watching a playlist of related videos then that’s great for your watch time. If they’re already in a playlist they’re far more likely to watch multiple videos than if they have to go to your channel page and hunt down the content they’re interested in.
+
+**Include a ‘CTA’ with your subscribe button:** besides just including a button people can use to subscribe, you should ask them to click on it with a ‘Call to Action’ or CTA. This can mean writing something like ‘Subscribe for more videos!’ on your end card, or asking them in an outro voiceover. People are more likely to subscribe if you ask than if you don’t.
+
+Are you using a YouTube outro? What elements do you include, and how do you think it’s helped the growth of your channel?
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Your YouTube outro, or [end screen](https://tools.techidaily.com/wondershare/filmora/download/), is your last chance to keep a viewer on your channel. There are a lot of videos in the ‘Related’ sidebar that might catch their attention, or they could decide to go back to their search results.
+
+A good outro will prompt viewers to keep watching related content from you instead of from someone else, and it could even convince them to subscribe.
+
+1. [YouTube Outro Basics](#basics)
+2. [YouTube Outro Templates](#templates)
+3. [How to Use YouTube’s End Screen Feature](#howto)
+4. [How YouTube Outros/End Screens Can Help You Grow on YouTube](#grow)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
+## Part 1: YouTube Outro Basics
+
+_From the video above we can see that it features video recommendations and a prominent subscribe button._
+
+A YouTube end screen might have the following features:
+
+**Videos:** you can embed links/thumbnails for videos you’ve made on similar topics in order to keep viewers watching your content.
+
+**Playlists:** instead of (or in addition to) linking to individual videos, you can embed playlists and link viewers to all of your content on a particular topic.
+
+**Subscribe Button:** prompt viewers to subscribe to your channel.
+
+**Background:** you may choose to use all of the elements described above in combination with an end card consisting of a moving background or still image. You can even find [templates](#templates) that will have slots for all your thumbnails and buttons.
+
+You may also want to include **social icons and handles** for your accounts on sites like Instagram or Twitter. These won’t be clickable (you’ll need to add them yourself outside of YouTube’s end screen tool), but they’ll still let viewers know where else they can find and follow you.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: YouTube Outro Templates Download
+
+Here are 4 sites where you can download templates for YouTube Outros:
+
 ![Tube Arsenal Outro template](https://images.wondershare.com/filmora/article-images/tubearsenal-outro-template.jpg)
 
 **Tube Arsenal:** this site has a good selection of customizable outros with moving backgrounds. On the Tube Arsenal site, before you download, you can adjust the colors and text included in your outro and even load in your own logo.
@@ -285,6 +451,9 @@ The clips you can get from Biteable look great, and their process for changing t
 
 You can create 5 free projects every month with Biteable, but you’ll need to upgrade to their paid service to download them. It’s $30 for one month.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Velosofy Outro Template](https://images.wondershare.com/filmora/article-images/velosofy-outro-maker-template.jpg)
 
 **Velosofy:** this site has a decent selection of templates you can download for free. However, the downloads are all project files for programs like Adobe Photoshop or After Effects. You’ll need to have the program that goes with your download in order to customize your outro.
@@ -293,8 +462,14 @@ You can also find free outro templates by searching for them on YouTube! Lots of
 
 Besides downloading outro templates from the website, you can also create it with some [outro makers](https://tools.techidaily.com/wondershare/filmora/download/) or with the video editing software that you are using. [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) is the video editor that I used often, it is featured some cool templates and preset for making an outro. I recommend you try it as well.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to Use YouTube’s End Screen Feature
 
 Make sure to create a space at the end of your video for the elements of your end screen to sit on top of. Your end screen will not add to the length of your video, it will overlay onto the last 5-20 seconds.
@@ -393,6 +568,9 @@ The clips you can get from Biteable look great, and their process for changing t
 
 You can create 5 free projects every month with Biteable, but you’ll need to upgrade to their paid service to download them. It’s $30 for one month.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![Velosofy Outro Template](https://images.wondershare.com/filmora/article-images/velosofy-outro-maker-template.jpg)
 
 **Velosofy:** this site has a decent selection of templates you can download for free. However, the downloads are all project files for programs like Adobe Photoshop or After Effects. You’ll need to have the program that goes with your download in order to customize your outro.
@@ -403,6 +581,9 @@ Besides downloading outro templates from the website, you can also create it wit
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Part 3: How to Use YouTube’s End Screen Feature
 
 Make sure to create a space at the end of your video for the elements of your end screen to sit on top of. Your end screen will not add to the length of your video, it will overlay onto the last 5-20 seconds.
@@ -416,6 +597,9 @@ Here’s how you add an End Screen:
 5. Drag the elements to where you want them and adjust the timing using the timeline.
 6. Click **Save** when you’re done.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Part 4: How YouTube Outros/End Screens Can Help You Grow on YouTube
 
 One of the most important statistics for measuring the growth of Your YouTube channel is Watch Time. You need 4,000 hours of watch time (over the past 12 months) in order to qualify for monetization/the YouTube Partner Program, and watch time also plays an important role in how your videos are ranked in YouTube’s search results.
@@ -436,6 +620,9 @@ You don’t have to change every screen individually, YouTube lets you link to y
 
 Are you using a YouTube outro? What elements do you include, and how do you think it’s helped the growth of your channel?
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -459,6 +646,9 @@ A good outro will prompt viewers to keep watching related content from you inste
 3. [How to Use YouTube’s End Screen Feature](#howto)
 4. [How YouTube Outros/End Screens Can Help You Grow on YouTube](#grow)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Part 1: YouTube Outro Basics
 
 _From the video above we can see that it features video recommendations and a prominent subscribe button._
@@ -479,6 +669,9 @@ You may also want to include **social icons and handles** for your accounts on s
 
 Here are 4 sites where you can download templates for YouTube Outros:
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Tube Arsenal Outro template](https://images.wondershare.com/filmora/article-images/tubearsenal-outro-template.jpg)
 
 **Tube Arsenal:** this site has a good selection of customizable outros with moving backgrounds. On the Tube Arsenal site, before you download, you can adjust the colors and text included in your outro and even load in your own logo.
@@ -524,114 +717,9 @@ Here’s how you add an End Screen:
 5. Drag the elements to where you want them and adjust the timing using the timeline.
 6. Click **Save** when you’re done.
 
-## Part 4: How YouTube Outros/End Screens Can Help You Grow on YouTube
-
-One of the most important statistics for measuring the growth of Your YouTube channel is Watch Time. You need 4,000 hours of watch time (over the past 12 months) in order to qualify for monetization/the YouTube Partner Program, and watch time also plays an important role in how your videos are ranked in YouTube’s search results.
-
-Watch time is more important than views. If you’re getting views, but people are only watching short sections of your video, YouTube’s algorithm thinks the people who are clicking on your videos don’t like them and ranks them lower.
-
-Outros are one of the best ways of increasing the watch time for your channel, because the whole point of an outro is to convince viewers to stick around and watch more videos. Here are some best practices:
-
-**Link to related videos and playlists**: if someone has watched one video on a topic to the end, they’ll likely be interested in another highly related video from you. For example, someone who’s watched a Let’s Play for God of War is more likely to be interested in another God of War video than your review of your new gaming headset.
-
-**Link to your newest video:** YouTube’s algorithm places the most weight on the data it collects about your video within the first 24 hours of it being listed as Public. To give your newest video it’s the best chance at success, you should do everything you can to boost its watch time when it’s first posted and linking to it in the end screens of all your other videos is one way to do that.
-
-You don’t have to change every screen individually, YouTube lets you link to your most recent video automatically.
-
-**Link to Playlists:** if you can get a viewer watching a playlist of related videos then that’s great for your watch time. If they’re already in a playlist they’re far more likely to watch multiple videos than if they have to go to your channel page and hunt down the content they’re interested in.
-
-**Include a ‘CTA’ with your subscribe button:** besides just including a button people can use to subscribe, you should ask them to click on it with a ‘Call to Action’ or CTA. This can mean writing something like ‘Subscribe for more videos!’ on your end card, or asking them in an outro voiceover. People are more likely to subscribe if you ask than if you don’t.
-
-Are you using a YouTube outro? What elements do you include, and how do you think it’s helped the growth of your channel?
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Your YouTube outro, or [end screen](https://tools.techidaily.com/wondershare/filmora/download/), is your last chance to keep a viewer on your channel. There are a lot of videos in the ‘Related’ sidebar that might catch their attention, or they could decide to go back to their search results.
-
-A good outro will prompt viewers to keep watching related content from you instead of from someone else, and it could even convince them to subscribe.
-
-1. [YouTube Outro Basics](#basics)
-2. [YouTube Outro Templates](#templates)
-3. [How to Use YouTube’s End Screen Feature](#howto)
-4. [How YouTube Outros/End Screens Can Help You Grow on YouTube](#grow)
-
-## Part 1: YouTube Outro Basics
-
-_From the video above we can see that it features video recommendations and a prominent subscribe button._
-
-A YouTube end screen might have the following features:
-
-**Videos:** you can embed links/thumbnails for videos you’ve made on similar topics in order to keep viewers watching your content.
-
-**Playlists:** instead of (or in addition to) linking to individual videos, you can embed playlists and link viewers to all of your content on a particular topic.
-
-**Subscribe Button:** prompt viewers to subscribe to your channel.
-
-**Background:** you may choose to use all of the elements described above in combination with an end card consisting of a moving background or still image. You can even find [templates](#templates) that will have slots for all your thumbnails and buttons.
-
-You may also want to include **social icons and handles** for your accounts on sites like Instagram or Twitter. These won’t be clickable (you’ll need to add them yourself outside of YouTube’s end screen tool), but they’ll still let viewers know where else they can find and follow you.
-
-## Part 2: YouTube Outro Templates Download
-
-Here are 4 sites where you can download templates for YouTube Outros:
-
-![Tube Arsenal Outro template](https://images.wondershare.com/filmora/article-images/tubearsenal-outro-template.jpg)
-
-**Tube Arsenal:** this site has a good selection of customizable outros with moving backgrounds. On the Tube Arsenal site, before you download, you can adjust the colors and text included in your outro and even load in your own logo.
-
-You can preview your customized outro by clicking Preview Still or Preview Movie.
-
-Outros on Tube Arsenal cost $9 for 720P or $13 for 1080p.
-
-![Outro Maker Templates](https://images.wondershare.com/filmora/article-images/outro-maker-template.jpg)
-
-**Outro Maker:** you can get animated end screens/outros from Outro Maker for $2.99 a month (or, if you just need one outro, you can probably finish it during your 7-day free trial).
-
-Outro Maker uses the content already uploaded onto your channel to create your outro, so you will need to link the service with your channel.
-
-![Biteable Outro Template](https://images.wondershare.com/filmora/article-images/biteable-outro-maker-template.jpg)
-
-**Biteable:** the templates you can customize on Biteable are not specifically designed to be YouTube Outros and will not have slots for your end screen elements. The videos start out a lot longer than you’ll want for an end screen (an end screen can’t last longer than 20 seconds), but you can shorten them by deleting all the ‘scenes’ you don’t need and keeping just the one or two you want.
-
-The clips you can get from Biteable look great, and their process for changing the text and colors is simple and intuitive.
-
-You can create 5 free projects every month with Biteable, but you’ll need to upgrade to their paid service to download them. It’s $30 for one month.
-
-![Velosofy Outro Template](https://images.wondershare.com/filmora/article-images/velosofy-outro-maker-template.jpg)
-
-**Velosofy:** this site has a decent selection of templates you can download for free. However, the downloads are all project files for programs like Adobe Photoshop or After Effects. You’ll need to have the program that goes with your download in order to customize your outro.
-
-You can also find free outro templates by searching for them on YouTube! Lots of people have created free outros to share with the YouTube community.
-
-Besides downloading outro templates from the website, you can also create it with some [outro makers](https://tools.techidaily.com/wondershare/filmora/download/) or with the video editing software that you are using. [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) is the video editor that I used often, it is featured some cool templates and preset for making an outro. I recommend you try it as well.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 3: How to Use YouTube’s End Screen Feature
-
-Make sure to create a space at the end of your video for the elements of your end screen to sit on top of. Your end screen will not add to the length of your video, it will overlay onto the last 5-20 seconds.
-
-Here’s how you add an End Screen:
-
-1. Go to your **YouTube Studio**, then switch to **Videos** on the left menu;
-2. Click **Details** next to the video you want to add an end screen to.
-3. Click the **End screen** in the menu under the lower right window.
-4. Click **Element** to start adding videos, playlists, and subscribe buttons to your outro. You could also choose to use the same layout as a previous end screen with **Import From Video**, or you could apply multiple elements at once with a **YouTube Template**.
-5. Drag the elements to where you want them and adjust the timing using the timeline.
-6. Click **Save** when you’re done.
-
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How YouTube Outros/End Screens Can Help You Grow on YouTube
 
 One of the most important statistics for measuring the growth of Your YouTube channel is Watch Time. You need 4,000 hours of watch time (over the past 12 months) in order to qualify for monetization/the YouTube Partner Program, and watch time also plays an important role in how your videos are ranked in YouTube’s search results.
@@ -674,3 +762,62 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-arena-of-games-100plus-channel-spectrums-galore/"><u>[New] 2024 Approved  Arena of Games  100+ Channel Spectrums Galore</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-audience-alchemy-converting-shorts-to-sensations/"><u>[New] 2024 Approved  Audience Alchemy  Converting Shorts to Sensations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creating-compelling-channel-names-simplified/"><u>[New] 2024 Approved  Creating Compelling Channel Names Simplified</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-discovering-ideal-hashtags-for-your-youtube-videos/"><u>[New] Discovering Ideal Hashtags for Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-content-the-secrets-to-increased-subscribers-for-2024/"><u>[New] Elevate Your Content  The Secrets to Increased Subscribers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-how-to-add-edit-and-optimize-youtube-tagstitledescription-for-more-views-for-2024/"><u>[New] How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-adding-visual-time-indicators-to-your-youtube-links/"><u>[New] In 2024, Adding Visual Time Indicators to Your YouTube Links</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-behind-the-scenes-the-genesis-of-a-mukbang-video/"><u>[New] In 2024, Behind the Scenes  The Genesis of a Mukbang Video</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-movavis-leap-forward-the-2024-edition-of-video-proplus/"><u>[New] Movavi's Leap Forward  The 2024 Edition of Video Pro+</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-uncompromised-quality-activate-av1-for-youtube-streams/"><u>[New] Uncompromised Quality  Activate AV1 for YouTube Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-yogis-guide-top-10-yoga-channels-to-watch/"><u>[New] Yogi's Guide  Top 10 Yoga Channels to Watch</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-analyzing-youtubes-creator-rewards-regularity/"><u>[Updated] 2024 Approved  Analyzing YouTube's Creator Rewards Regularity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-avoiding-the-crowd-stand-out-with-unique-youtube-persona/"><u>[Updated] 2024 Approved  Avoiding the Crowd  Stand Out with Unique YouTube Persona</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-7-live-streaming-apps-to-amplify-your-youtube-presence-on-iphone-and-android/"><u>[Updated] 2024 Approved  Best 7 LIVE Streaming Apps to Amplify Your YouTube Presence on iPhone and Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-can-youtube-sub4sub-really-enhance-viewing-experience/"><u>[Updated] 2024 Approved  Can YouTube Sub4Sub Really Enhance Viewing Experience?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-captivating-subscription-making-an-animated-button-for-youtube-with-filmora/"><u>[Updated] 2024 Approved  Captivating Subscription  Making an Animated Button for YouTube with Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discover-how-to-design-dynamic-youtube-music-playlists/"><u>[Updated] 2024 Approved  Discover How to Design Dynamic YouTube Music Playlists</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-fix-in-a-flash-rapid-recovery-techniques-for-disrupted-fb-lives/"><u>[Updated] 2024 Approved  Fix in a Flash  Rapid Recovery Techniques for Disrupted FB Lives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-analyzing-earnings-disparity-dailymovement-and-youtube-profits-compared-for-2024/"><u>[Updated] Analyzing Earnings Disparity  DailyMovement and YouTube Profits Compared for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-assessing-instagrams-limits-on-posted-videos-for-2024/"><u>[Updated] Assessing Instagram's Limits on Posted Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boost-your-channel-game-essential-video-editing-advice-for-2024/"><u>[Updated] Boost Your Channel Game  Essential Video Editing Advice for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exquisite-couple-clips-the-best-weddings-online-8-picks-for-2024/"><u>[Updated] Exquisite Couple Clips  The Best Weddings Online (8 Picks) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-film-and-image-repository-highlights/"><u>[Updated] Free Film and Image Repository Highlights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-identifying-ideal-frame-rates-in-slow-mo-vids/"><u>[Updated] Identifying Ideal Frame Rates in Slow-Mo Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-directly-infuse-youtube-music-into-any-imovie-project/"><u>[Updated] In 2024, Directly Infuse YouTube Music Into Any iMovie Project</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhancing-viewer-interest-with-thumbnails/"><u>[Updated] In 2024, Enhancing Viewer Interest with Thumbnails</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-approaches-to-network-broadcast-with-vlc/"><u>[Updated] Innovative Approaches to Network Broadcast with VLC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-innovative-discussion-themes-for-vloggers/"><u>[Updated] Innovative Discussion Themes for Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-iosplusandroid-tips-for-uninterrupted-youtube-viewing/"><u>[Updated] IOS+Android Tips for Uninterrupted YouTube Viewing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-macbooks-camera-unleashed-recording-made-simple/"><u>[Updated] MacBook's Camera Unleashed  Recording Made Simple</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-monetization-tracker-tool-for-online-videos/"><u>[Updated] Monetization Tracker Tool for Online Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-perfect-dimension-formula-for-youtube-videos/"><u>[Updated] The Perfect Dimension Formula for YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-power-of-pixels-expert-advice-on-youtube-thumbnail-sizing/"><u>[Updated] Unlock the Power of Pixels  Expert Advice on YouTube Thumbnail Sizing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-world-through-your-lens-how-to-become-a-professional-travel-vlogger/"><u>[Updated] Unveiling the World Through Your Lens  How To Become A Professional Travel Vlogger</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-elite-screen-recording-apps-of-2023-expert-picks/"><u>2024 Approved  Elite Screen Recording Apps of 2023 - Expert Picks</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-film-making-mastery-guidebook/"><u>2024 Approved  Film Making Mastery Guidebook</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-tips-for-writing-irresistible-podcast-intros/"><u>2024 Approved  Tips for Writing Irresistible Podcast Intros</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-unearthing-the-obscured-videotapes/"><u>2024 Approved  YouTube  Unearthing the Obscured Videotapes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-xiaomi-redmi-note-12-4g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Xiaomi Redmi Note 12 4G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-the-power-of-azure-transcript-services-for-2024/"><u>Harnessing the Power of Azure Transcript Services for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-iphone-6s-with-or-without-password-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on iPhone 6s With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-leave-a-life360-group-on-xiaomi-redmi-note-13-pro-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Xiaomi Redmi Note 13 Pro 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-video-conversion-wizardry-from-youtube-to-igtv/"><u>In 2024, Video Conversion Wizardry  From Youtube to IGTV</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-entry-level-equipment-checklist-for-youtube-success/"><u>In 2024, Your Entry-Level Equipment Checklist for YouTube Success</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-to-samsung-galaxy-a15-4g-converter-convert-mov-files-for-samsung-galaxy-a15-4g-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV to Samsung Galaxy A15 4G converter-convert .mov files for Samsung Galaxy A15 4G</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-live-tech-the-most-popular-streaming-tools-reviewed-for-2024/"><u>Prime Live Tech  The Most Popular Streaming Tools Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rising-tides-of-streamers-a-guide-to-building-a-successful-chatter-for-2024/"><u>Rising Tides of Streamers  A Guide to Building a Successful Chatter for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secure-your-sound-3-safe-methods-of-audio-from-youtube-for-2024/"><u>Secure Your Sound  3 Safe Methods of Audio From YouTube for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/stepwise-journey-becoming-a-pro-with-audacity-for-recording/"><u>Stepwise Journey  Becoming a Pro with Audacity for Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-beginners-guide-to-creating-engaging-short-form-videos-for-2024/"><u>The Ultimate Beginner's Guide to Creating Engaging Short-Form Videos for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-c300-by-fonelab-android-recover-music/"><u>The way to get back lost music from C300</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/unlock-your-phone-camera-free-and-easy-for-2024/"><u>Unlock Your Phone Camera, Free & Easy for 2024</u></a></li>
+</ul></div>

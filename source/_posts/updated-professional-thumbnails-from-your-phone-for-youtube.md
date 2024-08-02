@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Professional Thumbnails From Your Phone for YouTube"
-date: 2024-06-05T16:23:03.775Z
-updated: 2024-06-06T16:23:03.775Z
+date: 2024-08-01T11:26:34.865Z
+updated: 2024-08-02T11:26:34.865Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,9 @@ To create a thumbnail using the Photos app on your iPhone, follow these steps:
 
 Step1 Open the Photos app and find the image you want to use as your thumbnail. **Tap** on the image to open it.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ios photo app](https://images.wondershare.com/filmora/article-images/ios-photo-app.jpg)
 
 Step2 Tap the **Edit** button in the top right corner of the screen. Use the **crop and rotate tools** to adjust the perspective and the aspect ratio of 16:9.
@@ -50,6 +53,9 @@ Step3 Tap the **Filters** button to access the filter effects. **Scroll** throug
 
 Step4 To write or draw on the image, **tap** the **Markup** button. This will open a toolbar with a variety of drawing and text tools. Use these tools to add your personal touch to the thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ios photo markup](https://images.wondershare.com/filmora/article-images/ios-photo-markup.JPG)
 
 Step5 When you're satisfied with your thumbnail, **tap Done** in the top right corner of the screen.
@@ -79,10 +85,16 @@ Here are the steps to create a thumbnail using PixelLab on your Android or iOS d
 
 Step1 Open the Play Store and **search** for PixelLab. **Install** the app.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![pixellab install](https://images.wondershare.com/filmora/article-images/pixellab-install.jpg)
 
 Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
@@ -130,6 +142,9 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
@@ -142,6 +157,9 @@ Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
 While it's convenient to create YouTube thumbnails on your mobile device, there may be times when you need to create a thumbnail on your Windows or Mac computer.
@@ -160,6 +178,9 @@ To create a thumbnail using Filmora on your Windows or Mac computer, follow thes
 
 Step1 Launch Filmora, add the picture to the timeline and **select** the AI Portrait option in the Effects panel to cut out the subject from the background.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
 Step2 Scale up and reposition the photo.
@@ -168,10 +189,16 @@ Step2 Scale up and reposition the photo.
 
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
 
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
 
 Step5 Locate the thumbnail in your local drive.
@@ -184,6 +211,10 @@ Add a video
 
 This video will show you how to use Filmora to create a custom thumbnail for your YouTube video, step by step.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## People Also Ask
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
@@ -228,14 +259,23 @@ Step1 Open the Play Store and **search** for PixelLab. **Install** the app.
 
 Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
 
 Step4 Add text to the image and **customize** it to your liking.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pixellab add text](https://images.wondershare.com/filmora/article-images/pixellab-add-text.jpg)
 
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
@@ -244,6 +284,9 @@ Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
 Step6 Save the image to your gallery by exporting it.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
 
  Pros
@@ -275,18 +318,32 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
 
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
 While it's convenient to create YouTube thumbnails on your mobile device, there may be times when you need to create a thumbnail on your Windows or Mac computer.
@@ -305,6 +362,9 @@ To create a thumbnail using Filmora on your Windows or Mac computer, follow thes
 
 Step1 Launch Filmora, add the picture to the timeline and **select** the AI Portrait option in the Effects panel to cut out the subject from the background.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
 Step2 Scale up and reposition the photo.
@@ -313,6 +373,9 @@ Step2 Scale up and reposition the photo.
 
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
 
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
@@ -321,6 +384,9 @@ Step4 When you are done editing the thumbnail, take a **snapshot** by clicking t
 
 Step5 Locate the thumbnail in your local drive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
 
 For more detailed instructions and a visual guide, you can watch the following video tutorial:
@@ -329,10 +395,16 @@ Add a video
 
 This video will show you how to use Filmora to create a custom thumbnail for your YouTube video, step by step.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## People Also Ask
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
 There are many different apps and tools that YouTubers use to create thumbnails for their videos. The best app for creating YouTube thumbnails will depend on your needs and skill level.
@@ -369,10 +441,16 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Exploring YouTube’s Functionality Following Uploaded Videos
 
 # How Does YouTube Work After a Video Is Uploaded
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -393,6 +471,104 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 #### 2\. Where is Your Video Stored?
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
+
+As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
+
+#### 3\. What Happens When Someone Watches Your Video?
+
+When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
+
+If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
+
+This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
+
+## How Does YouTube Work
+
+#### 1\. What Happens When You Upload?
+
+When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
+
+If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
+
+#### 2\. Where is Your Video Stored?
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
+
+As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
+
+![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
+
+#### 3\. What Happens When Someone Watches Your Video?
+
+When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
+
+If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
+
+This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
+
+## How Does YouTube Work
+
+#### 1\. What Happens When You Upload?
+
+When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
+
+If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
+
+#### 2\. Where is Your Video Stored?
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -423,6 +599,9 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -433,86 +612,9 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 #### 2\. Where is Your Video Stored?
 
-![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
-
-As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
-
-![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
-
-Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
-
-#### 3\. What Happens When Someone Watches Your Video?
-
-When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
-
-If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
-
-This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
-
-## How Does YouTube Work
-
-#### 1\. What Happens When You Upload?
-
-When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
-
-If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
-
-#### 2\. Where is Your Video Stored?
-
-![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
-
-As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
-
-![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
-
-Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
-
-#### 3\. What Happens When Someone Watches Your Video?
-
-When a viewer clicks on your video their computer sends an encoded request through the internet to YouTube's servers. After YouTube receives the play request it chooses which format to play the video in based on the viewer's browser. Your video is again turned into packets, which are again sent as radio signals over the internet to your viewer. Your viewer's computer or device reforms the packets into your video and their browser plays it.
-
-If videos take a long time to load for you then there are a few things you can do to speed them up. First, consider changing the channel of your wifi router. Most people stay on the channel their router was set to when they first got it and so there is a good chance you and your neighbors are all on the same channel. This causes your networks to interfere with each other. You can also delete the temporary files on your computer. Besides helping you stream video faster this will free up storage space. Another thing you can do is make sure there are as few devices connected to your network as possible while you are watching videos. Besides mobile phones and laptops you may have appliances, like coffee machines and refrigerators, which are wifi enabled. Disconnect them temporarily and it will help your videos to load faster.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-You use YouTube to watch videos, post your own content, and build up a following. That is how YouTube works for you. This article is about how YouTube works technically. There are a lot of steps which occur between you clicking 'upload' and a viewer clicking 'play'. Understanding this process can be useful to YouTubers because it can help shed light on where problems may be occurring when you have issues uploading or watching videos. Generally when there is a problem it is on your end and there are multiple simple things you can do to fix it.
-
-This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
-
-## How Does YouTube Work
-
-#### 1\. What Happens When You Upload?
-
-When you upload a video your computer or device packages it into IP packets. Packets are fragments of information containing both data from your video and the address you are sending it to, in this case YouTube. The packets are encoded into radio signals which are sent through a wifi or cellular network. Your video travels through switches and routers on the internet until they reach YouTube's servers. Your video is then reassembled and stored.
-
-If uploading takes a long time for you it probably has nothing to do with YouTube; there is a lot that needs to happen for your video to even get there. How long the upload process takes depends on a number of factors including how many devices share your internet connection, how strong your wifi signal is, and the age of your router. If your uploads are taking too long consider compressing your videos before you upload them. You can also try uploading from your college campus or public libraries as institutions like these tend to have fast internet speeds.
-
-#### 2\. Where is Your Video Stored?
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -549,3 +651,40 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-androids-best-youtube-video-downloaders-reviewed-for-2024/"><u>[New] Android's Best YouTube Video Downloaders Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-banner-bonanza-unlimited-50-free-youtube-designs/"><u>[New] Banner Bonanza  Unlimited 50 FREE YouTube Designs!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-charismatic-charm-of-moving-text-on-screen-for-2024/"><u>[New] Charismatic Charm of Moving Text on Screen for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-complete-how-to-embedding-srt-tracks-into-mp4-media-2024/"><u>[New] Complete How-To  Embedding SRT Tracks Into MP4 Media 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content/"><u>[New] In 2024, Become a Freelance Transcriber  Tips and Tricks for YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-monetization-how-much-creators-earn-per-ad-on-youtube/"><u>[New] In 2024, Decoding Monetization  How Much Creators Earn Per Ad on YouTube?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-extract-translate-and-save-youtube-subtitles-for-free/"><u>[New] In 2024, Extract, Translate & Save YouTube Subtitles for FREE</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-simple-guides-for-recording-vimeo-content-for-2024/"><u>[New] Simple Guides for Recording Vimeo Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-ten-dos-and-donts-in-the-youtube-world/"><u>[New] Top Ten Do's and Don'ts in the YouTube World</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-constructive-approaches-to-defeating-digital-trolls/"><u>[Updated] 2024 Approved  Constructive Approaches to Defeating Digital Trolls</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-action-filming-elevated-in-depth-review-of-sj-cam-s6/"><u>[Updated] Action Filming Elevated  In-Depth Review of SJ-CAM S6</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-can-a-brief-subscribe-boost-your-content-viewing-for-2024/"><u>[Updated] Can a Brief Subscribe Boost Your Content Viewing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-script-to-screen-crafting-your-unique-youtube-tale/"><u>[Updated] From Script to Screen  Crafting Your Unique YouTube Tale</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-comprehensive-guide-to-creating-viral-youtube-shorts-videos/"><u>[Updated] In 2024, A Comprehensive Guide to Creating Viral YouTube Shorts Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-online-audio-accessibility-ideal-tools-for-iphone-and-youtube/"><u>[Updated] In 2024, Effortless Online Audio Accessibility  Ideal Tools for iPhone & YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-journey-to-digital-reach-the-complete-process-of-starting-a-youtube-channel/"><u>[Updated] Journey to Digital Reach  The Complete Process of Starting a YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-your-thumbnails-with-these-20-top-fonts/"><u>[Updated] Master Your Thumbnails with These 20 Top Fonts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-solo-shots-showmanship-elevate-your-youtube-persona-for-2024/"><u>[Updated] Solo Shots Showmanship  Elevate Your YouTube Persona for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stepwise-strategies-for-unique-youtube-openers/"><u>[Updated] Stepwise Strategies for Unique YouTube Openers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-secrets-to-supervised-simultaneous-streams/"><u>[Updated] Unveiling the Secrets to Supervised Simultaneous Streams</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-turning-tails-into-heads-android-video-editing/"><u>2024 Approved  Turning Tails Into Heads  Android Video Editing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-the-futures-past-digital-conversion-for-timeless-images/"><u>Crafting the Future's Past  Digital Conversion for Timeless Images</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-tecno-phantom-v-fold-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Tecno Phantom V Fold Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-premium-online-streams-convert-youtube-to-mp3-instantly/"><u>In 2024, Premium Online Streams  Convert YouTube to MP3 Instantly!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-skating-moments-from-22/"><u>In 2024, Prime Skating Moments From '22</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-animation-made-easy-top-software-for-beginners-intermediate-and-advanced-users-for-2024/"><u>New Animation Made Easy Top Software for Beginners, Intermediate, and Advanced Users for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/personalize-your-channel-with-free-pics-for-2024/"><u>Personalize Your Channel With Free Pics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-guidelines-youtube-respect-and-usage-for-2024/"><u>Prime Guidelines  YouTube Respect & Usage for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/profile-pictures-download-for-free-in-2024/"><u>Profile Pictures - Download for FREE, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-video-growth-top-20-hacks-for-instant-impact-for-2024/"><u>Quick Video Growth  Top 20 Hacks for Instant Impact for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/secrets-to-stunning-nightscape-shots-for-2024/"><u>Secrets to Stunning Nightscape Shots for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-most-economical-tools-for-youtube-audio-conversion-for-2024/"><u>The Most Economical Tools for YouTube Audio Conversion for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unique-channel-branding-how-to-personalize-your-youtube-url-for-2024/"><u>Unique Channel Branding  How to Personalize Your YouTube Url for 2024</u></a></li>
+</ul></div>

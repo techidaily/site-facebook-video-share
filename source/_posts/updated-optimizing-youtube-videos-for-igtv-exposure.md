@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Optimizing YouTube Videos for IGTV Exposure"
-date: 2024-06-05T15:13:05.072Z
-updated: 2024-06-06T15:13:05.072Z
+date: 2024-08-01T09:26:57.372Z
+updated: 2024-08-02T09:26:57.372Z
 tags:
   - ai video
   - ai youtube
@@ -36,18 +36,27 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 ## Part 1: Convert YouTube Videos to IGTV Vertical Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
 
 Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
 
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
 Go to the **Effects tab** and click on the **Background Blur** submenu if you want to blur the empty areas of the frame. Add the **Basic Blur effect** to the timeline and drag one of its sides to position it over the entire video.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![Filmora  convert YouTube to IGTV](https://images.wondershare.com/filmora/article-images/filmora-convert-youtube-video-igtv.jpg)
 
 In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
@@ -62,6 +71,9 @@ Latest News: In Filmora V10.5 and later versions, there is a new feature called 
 
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
@@ -70,6 +82,10 @@ YouTubers who already have lots of videos on their channel can use online video 
 
 Click on the Resize tool and simply **copy and paste the URL** of a YouTube into the appropriate bar and the platform will **automatically import a video and display it on the screen** once the content is finally fetched.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
@@ -92,6 +108,9 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 
 **You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -108,3 +127,43 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-bridging-the-gap-integrating-spotify-and-youtube-music-playlists/"><u>[New] 2024 Approved  Bridging the Gap  Integrating Spotify and YouTube Music Playlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevated-viewership-status-symbolized-by-buttons/"><u>[New] 2024 Approved  Elevated Viewership Status Symbolized by Buttons</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-beef-to-brilliance-jake-pauls-youtube-transformation/"><u>[New] 2024 Approved  From Beef to Brilliance  Jake Paul’s Youtube Transformation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-obs-broadcasting-directly-on-instagram/"><u>[New] 2024 Approved  OBS Broadcasting Directly on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback-in-2024/"><u>[New] Average Earnings Per View  What's the Income for YouTubers per Ad Playback, In 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-gym-goer-to-broadcayer-set-up-a-sports-vlog-on-macos-for-2024/"><u>[New] From Gym Goer to Broadcayer  Set Up a Sports Vlog on macOS for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-crafting-professional-icons-with-pre-made-graphic-elements/"><u>[New] In 2024, Crafting Professional Icons with Pre-Made Graphic Elements</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-direct-conversion-convert-and-upload-mp3-songs-on-youtube/"><u>[New] In 2024, Direct Conversion  Convert & Upload MP3 Songs on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-brand-with-ai-enhanced-naming-solutions/"><u>[New] In 2024, Elevate Your Brand with AI-Enhanced Naming Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-brand-with-these-biz-channel-standouts/"><u>[New] In 2024, Elevate Your Brand with These Biz Channel Standouts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-income-with-mobile-video-monetization-techniques-for-youtubers/"><u>[New] In 2024, Elevating Income with Mobile Video Monetization Techniques for YouTubers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-perfecting-instagrams-audio-emoji-placement/"><u>[New] In 2024, Perfecting Instagram's Audio Emoji Placement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-making-waves-in-the-gaming-community-on-youtube/"><u>[New] Making Waves in the Gaming Community on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-words-in-motion-a-guide-to-lively-animation-methods/"><u>[New] Words in Motion  A Guide to Lively Animation Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-disruptive-beatscape-best-rhythm-altering-tools/"><u>[Updated] 2024 Approved  Disruptive Beatscape  Best Rhythm Altering Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevating-your-snapping-game-tips-for-uninterrupted-streaks/"><u>[Updated] 2024 Approved  Elevating Your Snapping Game  Tips for Uninterrupted Streaks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-novices-pathway-to-writing-youtube-video-plans-for-2024/"><u>[Updated] A Novice's Pathway to Writing YouTube Video Plans for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-accelerate-follower-count-key-strategies-unlocked-for-2024/"><u>[Updated] Accelerate Follower Count  Key Strategies Unlocked for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-artistic-additions-free-designs-for-youtube-crafting-for-2024/"><u>[Updated] Artistic Additions  Free Designs for YouTube Crafting for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-font-power-boosters-secrets-to-stellar-video-thumbnails/"><u>[Updated] Font Power Boosters  Secrets to Stellar Video Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-setup-a-mac-studio-for-sports-content/"><u>[Updated] How to Setup a Mac Studio for Sports Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ideal-titles-and-sizes-maximizing-click-through-rates/"><u>[Updated] Ideal Titles & Sizes  Maximizing Click Through Rates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-emotional-impact-in-personal-youtube-content/"><u>[Updated] In 2024, Crafting Emotional Impact in Personal YouTube Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-daily-digital-deluge-youtubes-prime-videos-ranked-1-10/"><u>[Updated] In 2024, Daily Digital Deluge  YouTube's Prime Videos Ranked #1-10</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-why-choose-av1-for-youtube-unlock-potential/"><u>[Updated] Why Choose AV1 for YouTube? – Unlock Potential</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-guide-to-gaining-from-google-a-stepwise-strategy-for-tracking-youtube-income/"><u>[Updated] Your Guide to Gaining From Google  A Stepwise Strategy for Tracking YouTube Income</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-pinnacle-nintendo-switch-fighting-game-index-max-156/"><u>2024 Approved  Pinnacle Nintendo Switch Fighting Game Index (Max 156)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-viral-video-venues-clash-youtube-shorts-vs-tiktoks-rapid-rise/"><u>2024 Approved  Viral Video Venues Clash  YouTube Shorts Vs. TikTok's Rapid Rise</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-footage-top-10-action-cams-with-stabilization/"><u>Best Footage  Top 10 Action Cams With Stabilization</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/data-disappears-in-excel-how-to-get-it-back-by-stellar-guide/"><u>Data Disappears in Excel - How to get it back</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-5-easy-ways-to-record-youtube-videos/"><u>In 2024, 5 Easy Ways to Record YouTube Videos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-iphone-xs-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From iPhone XS?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-no-charge-fb-visual-storyteller-pro-software/"><u>In 2024, No-Charge FB Visual Storyteller Pro Software</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seamless-video-and-photo-upload-from-pc-to-iphone/"><u>In 2024, Seamless Video & Photo Upload From PC to iPhone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-art-generator/"><u>New What Is an AI Art Generator?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secrets-to-standout-final-scenes-on-yt-platforms-for-2024/"><u>Secrets to Standout Final Scenes on YT Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-gear-list-for-any-aspiring-vlogger-top-12-cameras-for-2024/"><u>The Ultimate Gear List for Any Aspiring Vlogger - Top 12 Cameras for 2024</u></a></li>
+</ul></div>

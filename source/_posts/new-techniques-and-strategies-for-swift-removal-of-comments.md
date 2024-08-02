@@ -1,7 +1,7 @@
 ---
 title: "[New] Techniques and Strategies for Swift Removal of Comments"
-date: 2024-06-05T14:21:12.004Z
-updated: 2024-06-06T14:21:12.004Z
+date: 2024-08-01T08:00:19.978Z
+updated: 2024-08-02T08:00:19.978Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5
 
 # Deleting YouTube Comments
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -57,6 +60,9 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -69,6 +75,9 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -83,6 +92,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -103,6 +116,9 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -110,6 +126,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -142,3 +162,55 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-enhancing-gamers-experience-recording-console-titles-for-pc/"><u>[New] 2024 Approved  Enhancing Gamers' Experience  Recording Console Titles for PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boosting-your-channel-a-guide-to-gaining-viewers-for-2024/"><u>[New] Boosting Your Channel  A Guide to Gaining Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-allure-in-online-visuals-for-beauty-for-2024/"><u>[New] Crafting Allure in Online Visuals for Beauty for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-youtube-view-number-for-profitability-for-2024/"><u>[New] Decoding the YouTube View Number for Profitability for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-demystifying-the-process-of-writing-youtube-video-content-for-2024/"><u>[New] Demystifying the Process of Writing YouTube Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-video-appeal-crafting-unforgettable-thumbnail-images-for-2024/"><u>[New] Elevate Video Appeal  Crafting Unforgettable Thumbnail Images for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-evolution-of-engagement-key-post-vidcon-events-for-2024/"><u>[New] Evolution of Engagement  Key Post-VidCon Events for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-collaborative-listening-made-simple-on-youtube/"><u>[New] In 2024, Collaborative Listening Made Simple on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-mastering-pc-games-screenshots-top-6-methods/"><u>[New] In 2024, Mastering PC Games Screenshots  Top 6 Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mediamasher-suite/"><u>[New] MediaMasher Suite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-backward-button-chronicles-youtubes-video-reversal/"><u>[New] The Backward Button Chronicles  YouTube's Video Reversal</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-future-of-youtube-naming-trendsetting-tips-for-video-blogging-and-filmmaking-max-156-characters/"><u>[New] The Future of YouTube Naming  Trendsetting Tips for Video Blogging & Filmmaking (Max 156 Characters)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-premier-video-symposium-life-past-vidcon/"><u>[New] The Premier Video Symposium  Life Past VidCon</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-the-secrets-to-high-impact-youtube-branding/"><u>[New] Unlock the Secrets to High-Impact YouTube Branding</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discovering-the-timeline-for-youtube-earnings/"><u>[Updated] 2024 Approved  Discovering the Timeline for YouTube Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easily-erase-identity-blurring-techniques-in-videos/"><u>[Updated] 2024 Approved  Easily Erase Identity  Blurring Techniques in Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhancing-beauty-on-streams-via-color-grading/"><u>[Updated] 2024 Approved  Enhancing Beauty on Streams via Color Grading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-explore-popular-youtube-comment-sections-for-2024/"><u>[Updated] Explore Popular YouTube Comment Sections for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-hashtag-heroes-the-ultimate-list-for-popularizing-your-youtube-snippets/"><u>[Updated] Hashtag Heroes  The Ultimate List for Popularizing Your YouTube Snippets</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-achieving-virality-in-instagram-videos-practical-advice/"><u>[Updated] In 2024, Achieving Virality in Instagram Videos  Practical Advice</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-revamping-reality-the-premier-11-instagram-edits/"><u>[Updated] In 2024, Revamping Reality  The Premier 11 Instagram Edits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-professionals-playbook-mastering-live-video-sharing-on-fb/"><u>[Updated] In 2024, The Professional's Playbook  Mastering Live Video Sharing on FB</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-winning-tiktok-desktop-strategies-unveiled/"><u>[Updated] In 2024, Winning TikTok  Desktop Strategies Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-join-youtube-mcn-or-not-ultimate-guide/"><u>[Updated] Join YouTube MCN or Not  ULTIMATE Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-monetary-milestones-steps-to-unlock-your-true-youtube-income-value/"><u>[Updated] Monetary Milestones  Steps to Unlock Your True YouTube Income Value</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-secrets-to-an-effective-youtube-closure/"><u>[Updated] Secrets to an Effective YouTube Closure</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-to-efficient-and-effective-tag-usage-on-youtube/"><u>[Updated] Step-by-Step Guide to Efficient and Effective Tag Usage on YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-5-best-ps1-emulators-for-pc/"><u>[Updated] Top 5 Best Ps1 Emulators for PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-first-step-designing-attractive-videos-on-a-mac/"><u>[Updated] Your First Step  Designing Attractive Videos on a Mac</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-vivo-y100i-power-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhancing-creativity-with-filmoras-best-tools/"><u>2024 Approved  Enhancing Creativity with Filmora's Best Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-how-much-does-youtube-pay-for-1-million-views/"><u>2024 Approved  How Much Does YouTube Pay for 1 Million Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/conquer-youtube-with-creator-studio-a-comprehensive-guide-for-2024/"><u>Conquer YouTube with Creator Studio  A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-oppo-a58-4g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Oppo A58 4G Phones with/without a PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-xiaomi-13-ultra-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Xiaomi 13 Ultra Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-apple-iphone-6s-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From Apple iPhone 6s without Password?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-max-360-or-hero-11-unveiling-top-notch-gopro-cams/"><u>In 2024, Max 360 or Hero 11  Unveiling Top-Notch GoPro Cams</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-art-of-audio-mastery-with-iphones-voice-recording/"><u>In 2024, The Art of Audio Mastery with iPhone's Voice Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimizing-profits-on-youtube-studio-for-all-device-users-for-2024/"><u>Optimizing Profits on YouTube  Studio for All-Device Users for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pixart-video-editor-for-2024/"><u>Pixart Video Editor for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/summary-of-short-videos-simplicity-included-for-2024/"><u>Summary of Short Videos, Simplicity Included for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-final-step-delete-your-youtube-shorts-link-for-2024/"><u>The Final Step  Delete Your YouTube Shorts Link for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-tecno-camon-20-premier-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Tecno Camon 20 Premier 5G Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-s18e-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo S18e Location | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-youtube-spotlight-key-influences-on-your-viewership-position-for-2024/"><u>Top YouTube Spotlight  Key Influences on Your Viewership Position for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transform-your-shots-into-dynamic-works-of-art-with-motion-blur-techniques/"><u>Transform Your Shots Into Dynamic Works of Art with Motion Blur Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-v30-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo V30 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Where Custom Visuals for YouTube Live and Breathe"
-date: 2024-06-05T13:55:07.281Z
-updated: 2024-06-06T13:55:07.281Z
+date: 2024-08-01T07:16:02.684Z
+updated: 2024-08-02T07:16:02.684Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a887661
 
 # 6 Completely Different Places to Get Icons and Logos for YouTube Videos
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -56,6 +60,9 @@ _These aren’t all the birds on Flaticon, just a few._ _They had a huge selecti
 
 I clicked on the brown bird to open up the download screen, and then clicked into ‘Edit icon’. There may be a pop up that tells you editing tools are only available to registered users, but it’s wrong. Just close it and keep going, unless you want to register.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![  Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon-example-1.jpg)
 
 You can edit the colors in your icon just by clicking on the color you want to replace, and then clicking on the color in the color selector you want to replace it with. I made my birdie FLY.
@@ -68,12 +75,18 @@ Once you like the look of your icon, just click Download. You will be prompted t
 
 After clicking on a format you will also be prompted to choose a size for your image. It’s always best to go with the largest image you can – its way easier to shrink things and keep them looking good than it is to have to enlarge them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ download Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/download-icons-logos-on-flaticon.jpg)
 
 Flaticon has a great selection, it’s free, and they make it really easy to edit your creations. I would strongly recommend this site to anyone in the market for an icon or logo.
 
 Flaticon asks that you include an “Icon made by \[author link\] from <www.flaticon.com> ” somewhere (i.e. video description, channel ‘about’ section) when you use their icons for free.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## 2\. [Freepik.com](https://www.freepik.com/)
 
 **Key Points:**
@@ -105,10 +118,16 @@ In the ‘search’ on Seeklogo.net, you can type in the name of a brand or indu
 
 I searched for YouTube – you never know when you might need the YouTube logo.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Seeklogo](https://images.wondershare.com/filmora/article-images/youtube-icons-logos-on-seeklogo.jpg)
 
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## 4\. [IconArchive.com](http://www.iconarchive.com/)
 
 **Key Points:**
@@ -150,6 +169,10 @@ When you arrive on Logaster there’s a button right on their home page that say
 
 In Step 1 it’ll ask for your company name and an activity type. You just need to put in your channel name and choose something from the activity drop down that you focus on in your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
@@ -164,6 +187,9 @@ After you click ‘save’ in the last step you’ll be prompted to provide an e
 
 I personally wouldn’t recommend buying an image from here unless your channel is for your small business and you need things like branded business cards and letterhead. This site might be better for gathering inspiration than actually downloading a logo from.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. [Icons8.com](https://icons8.com/)
 
 **Key Points:**
@@ -178,20 +204,33 @@ You will also need to link to Icons8 if you use their icons for free (i.e. in th
 
 To get started on Icons8, type something into the search bar on the home page that you think might work as an icon or as part of whatever graphics you have planned. I typed in ‘game’ for this one, since gaming is the biggest genre on YouTube. Here are a few of the results that came up:
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ![ Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
 
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
 
 After you find an icon you like, click on it and it will appear on the right side of your screen where you’ll be able to make a few changes (an editing screen will pop up once you start clicking on things). You can edit your colors, overlay small decals, add text, and add a border, change your background and adjust your size. Here’s the editing screen:
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Edit Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/edit-gaming-icons-logos-on-icons8.jpg)
 
 You can give your icon a pretty different look from its default. Check this out:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
 
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![ Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
 
 You can change the size with that drop down menu, but you’ll be limited in your options if you don’t want to pay.
@@ -226,3 +265,53 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-accelerate-engagement-implementing-the-top-12-video-growth-strategies/"><u>[New] 2024 Approved  Accelerate Engagement - Implementing the Top 12 Video Growth Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-balancing-creativity-and-monetization-in-youtube-shorts/"><u>[New] 2024 Approved  Balancing Creativity and Monetization in YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-camera-and-recording-apps-for-smartphones-most-reliable-sources/"><u>[New] 2024 Approved  Cutting-Edge Camera & Recording Apps for Smartphones' Most Reliable Sources</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-mastering-gear-vr-a-comprehensive-phone-compatibility-list-2023/"><u>[New] 2024 Approved  Mastering Gear VR  A Comprehensive Phone Compatibility List 2023</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-picture-perfect-instagram-carousel/"><u>[New] 2024 Approved  Picture-Perfect Instagram Carousel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-7-creative-thumbnails-free-tools-for-youtube-for-2024/"><u>[New] 7 Creative Thumbnails  Free Tools for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-social-media-perspective-dissecting-igtv-versus-youtubes-features-for-2024/"><u>[New] A Social Media Perspective  Dissecting IGTV versus YouTube's Features for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-avoid-blandness-in-your-vids-top-recommended-youtube-thumbnail-heights-for-2024/"><u>[New] Avoid Blandness in Your Vids  Top Recommended YouTube Thumbnail Heights for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-3-efficient-methods-for-saving-youtubes-standardized-images/"><u>[New] In 2024, 3 Efficient Methods for Saving YouTube's Standardized Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-engaging-local-audiences-with-social-media-videos/"><u>[New] In 2024, Engaging Local Audiences with Social Media Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-comparative-review-smartphone-usage-of-the-leading-video-apps/"><u>[Updated] 2024 Approved  Comparative Review  Smartphone Usage of the Leading Video Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discover-the-best-no-cost-soundtracks-for-video-production/"><u>[Updated] 2024 Approved  Discover the Best No-Cost Soundtracks for Video Production</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-avoid-buffering-switch-av1-codec-on-youtube-for-2024/"><u>[Updated] Avoid Buffering  Switch AV1 Codec on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channeling-success-the-essential-elements-for-profitable-video-trailers-for-2024/"><u>[Updated] Channeling Success  The Essential Elements for Profitable Video Trailers for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-dive-deep-into-the-best-practices-for-video-download-success/"><u>[Updated] Dive Deep Into the Best Practices for Video Download Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-12-flipscreen-cam-titles-for-optimal-vlogging-for-2024/"><u>[Updated] Essential 12 Flipscreen Cam Titles for Optimal Vlogging for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-hps-simplified-guide-to-capturing-and-storing-pc-screen-content-for-2024/"><u>[Updated] HP's Simplified Guide to Capturing and Storing PC Screen Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-analyzing-youtube-shorts-economic-impact/"><u>[Updated] In 2024, Analyzing YouTube Shorts Economic Impact</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-champion-of-chiseled-cheeks-starting-your-youtube-aesthetic-venture/"><u>[Updated] In 2024, Champion of Chiseled Cheeks  Starting Your YouTube Aesthetic Venture</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-speed-up-instagrams-media-a-comparative-guide/"><u>[Updated] Speed Up Instagram's Media  A Comparative Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-strategic-steps-to-determine-a-unique-tiktok-hashtag-for-2024/"><u>[Updated] Strategic Steps to Determine a Unique TikTok Hashtag for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-analytic-assessment-in-the-youtube-sphere/"><u>[Updated] The Art of Analytic Assessment in the YouTube Sphere</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-thriving-in-the-economy-of-youtube-shorts-the-ultimate-guide/"><u>[Updated] Thriving in the Economy of YouTube Shorts – The Ultimate Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-best-youtube-channel-titles-a-must-have-guide-for-vloggers-limit-to-156-characters/"><u>[Updated] Unveiling the Best Youtube Channel Titles  A Must-Have Guide for Vloggers (Limit to 156 Characters)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-centralized-digital-media-command-center/"><u>[Updated] YouTube's Centralized Digital Media Command Center</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-basics-to-brilliance-the-ultimate-guide-to-hdr-portraits/"><u>2024 Approved  From Basics to Brilliance  The Ultimate Guide to HDR Portraits</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-monochrome-to-vivid-mastering-the-sdr-to-hdr-video-transition/"><u>2024 Approved  From Monochrome to Vivid  Mastering the SDR-to-HDR Video Transition</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-itel-a60-unlock-without-password-by-drfone-android/"><u>5 Solutions For Itel A60 Unlock Without Password</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-slow-motion-cameras/"><u>Best Slow-Motion Cameras</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/demystifying-recmeisters-advanced-screen-capture-technology-for-2024/"><u>Demystifying Recmeister's Advanced Screen Capture Technology for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/downloading-samfw-frp-tool-30-for-vivo-y78-5g-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Vivo Y78 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-the-new-year-with-an-epic-deal-save-96-on-mondly-premium-access/"><u>Embrace the New Year with an Epic Deal - Save 96%% on Mondly Premium Access!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-honor-x50-gt-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Honor X50 GT using Video Repair Utility on Windows? </u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/immersive-home-theater-choosing-the-best-3d-players-for-2024/"><u>Immersive Home Theater  Choosing the Best 3D Players for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-free-tools-make-screencapture-a-breeze-for-tv-lovers/"><u>In 2024, Free Tools Make ScreenCapture a Breeze for TV Lovers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-tecno-camon-20-pro-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Tecno Camon 20 Pro 5G Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-video-earning-excellence-mastering-youtube-monetization-anywhere/"><u>In 2024, Video Earning Excellence  Mastering YouTube Monetization Anywhere</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/overlaying-imagery-from-desktop-to-cloud-for-2024/"><u>Overlaying Imagery  From Desktop to Cloud for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-selections-securing-entry-level-channel-monetization-sites-for-2024/"><u>Prime Selections  Securing Entry-Level Channel Monetization Sites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/steps-towards-joining-filmoras-certified-creative-circle-for-2024/"><u>Steps Towards Joining Filmora's Certified Creative Circle for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/subscriber-growth-and-its-impact-on-youtube-success-for-2024/"><u>Subscriber Growth and Its Impact on YouTube Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/subtle-techniques-make-unwanted-backgrounds-disappear-in-videos-for-2024/"><u>Subtle Techniques  Make Unwanted Backgrounds Disappear in Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-playlist-rearrangement-made-simple-for-2024/"><u>YouTube Playlist Rearrangement Made Simple for 2024</u></a></li>
+</ul></div>

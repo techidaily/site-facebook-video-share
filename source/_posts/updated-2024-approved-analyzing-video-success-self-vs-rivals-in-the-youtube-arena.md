@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Analyzing Video Success  Self Vs. Rivals in the YouTube Arena\""
-date: 2024-06-05T15:18:46.855Z
-updated: 2024-06-06T15:18:46.855Z
+date: 2024-08-01T09:36:44.704Z
+updated: 2024-08-02T09:36:44.704Z
 tags:
   - ai video
   - ai youtube
@@ -44,18 +44,27 @@ thumbnail: https://thmb.techidaily.com/3a8d29dc752129bc6cecd890184a07ba60927370b
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
 #### 4\.  Traffic sources
 
  Understanding the source of your YouTube video's traffic would help you track the prominent keywords that viewers use for landing at your YouTube video. You can figure out their choice and their search patterns this way. The YouTube insights will show you whether the viewers found your video by searching YouTube, a channel on YouTube, through suggested videos, or an external link. The YouTube Analytics tool's panel would assist you in finalizing the most beneficial traffic source for your brand. You can optimize your video and keyword strategy with this.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
 #### 5\.  Audience Retention
@@ -68,6 +77,9 @@ thumbnail: https://thmb.techidaily.com/3a8d29dc752129bc6cecd890184a07ba60927370b
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
 #### 7\.  Likes and dislikes
@@ -90,30 +102,57 @@ thumbnail: https://thmb.techidaily.com/3a8d29dc752129bc6cecd890184a07ba60927370b
 
  While considering YouTube Analytics, it is essential to understand that there are annotations to guide viewers to your business site for more content. It is not necessary that the content is video only, it might include a blog post as well. This will let you understand the click through rate and 'close' rates for every annotation. This in turn will assist you in optimizing how to reach your audience and where to place the annotations.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
 
 #### 11\.  Cards
 
  Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 #### 12\.  Sharing
 
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
 #### 13\.  Videos in playlists
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 ## How to analyze your competitors
@@ -156,3 +195,40 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-20-best-free-platforms-for-youtube-channel-beginners/"><u>[New] 2024 Approved  20 Best Free Platforms for YouTube Channel Beginners</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-choosing-the-right-lights-and-cameras-for-youtube-videos-for-2024/"><u>[New] Choosing the Right Lights & Cameras for YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-chart-success-the-top-online-stock-portals/"><u>[New] In 2024, Chart Success  The Top Online Stock Portals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-compile-of-the-most-beautiful-wedding-videos-youtube-and-vimeo-edition/"><u>[New] In 2024, Compile of the Most Beautiful Wedding Videos - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-cutting-edge-android-imagery-tweaker/"><u>[New] In 2024, Cutting-Edge Android Imagery Tweaker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tailor-made-melodies-assembling-your-own-youtube-playlist/"><u>[New] Tailor-Made Melodies  Assembling Your Own YouTube Playlist</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-short-form-videos-10-tactics-for-dominance-in-views/"><u>[New] Youtube's Short-Form Videos - 10 Tactics for Dominance in Views</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-no1-quick-capture-time-lapsing-system/"><u>[Updated] 2024 Approved  No.1 Quick Capture Time-Lapsing System</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-download-and-relive-a-compreran-review-of-top-youtube-playlist-extractors-for-2024/"><u>[Updated] Download and Relive  A Compreran Review of Top YouTube Playlist Extractors for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-download-free-youtube-pics-and-templates-for-2024/"><u>[Updated] Download Free YouTube Pics & Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-earn-through-engagement-securing-youtube-partnership-membership/"><u>[Updated] In 2024, Earn Through Engagement  Securing YouTube Partnership Membership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-videos-with-complimentary-banners-here/"><u>[Updated] In 2024, Elevate Your Videos with Complimentary Banners, Here</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mac-users-guide-to-premium-mp4-slicer-apps/"><u>[Updated] Mac Users' Guide to Premium MP4 Slicer Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mix-mastery-choosing-top-dj-videos-for-events/"><u>[Updated] Mix Mastery  Choosing Top DJ Videos for Events</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-the-necessary-youtube-viewer-threshold/"><u>[Updated] Navigating the Necessary Youtube Viewer Threshold</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-optimizing-your-youtube-music-selection/"><u>[Updated] Optimizing Your YouTube Music Selection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prime-selections-securing-entry-level-channel-monetization-sites/"><u>[Updated] Prime Selections  Securing Entry-Level Channel Monetization Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-video-popularity-secrets-for-youtube-stardom/"><u>[Updated] The Art of Video Popularity  Secrets for YouTube Stardom</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-cameras-for-youtube-from-beginners-to-professionals-for-2024/"><u>[Updated] The Best Cameras for YouTube From Beginners to Professionals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-editors-guide-to-enhancing-longer-youtube-video-content-with-chapters/"><u>[Updated] The Editor's Guide to Enhancing Longer YouTube Video Content with Chapters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-understanding-online-video-platforms-vimeo-and-youtube/"><u>[Updated] Understanding Online Video Platforms  Vimeo & YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-top-10-youtube-makeup-maestros-to-follow/"><u>[Updated] Unveiling the Top 10 YouTube Makeup Maestros to Follow</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-vivo-y56-5g-frp-bypass-by-drfone-android/"><u>About Vivo Y56 5G FRP Bypass</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boosting-boot-efficiency-with-windows-11-programs/"><u>Boosting Boot Efficiency with Windows 11 Programs</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-nokia-g310-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/discover-the-ultimate-no-cost-iphone-image-arrangement-software/"><u>Discover the Ultimate, No-Cost iPhone Image Arrangement Software</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebook-fiasco-getting-back-to-social-networking/"><u>Facebook Fiasco? Getting Back to Social Networking</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-motorola-moto-g84-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Motorola Moto G84 5G Without PUK Codes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-iphone-12-mini-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your iPhone 12 mini</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/nvidia-rtx-3080-overcoming-game-crashes/"><u>NVIDIA RTX 3080: Overcoming Game Crashes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pinnacle-promotion-reels-for-2024/"><u>Pinnacle Promotion Reels for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/selecting-the-best-mac-sniping-solutions/"><u>Selecting the Best Mac Sniping Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-powerful-path-to-stellar-videos-top-free-intro-makers-for-2024/"><u>The Powerful Path to Stellar Videos  Top Free Intro Makers for 2024</u></a></li>
+</ul></div>

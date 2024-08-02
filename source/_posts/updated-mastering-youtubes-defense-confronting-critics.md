@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering YouTube's Defense  Confronting Critics\""
-date: 2024-06-05T13:34:50.274Z
-updated: 2024-06-06T13:34:50.274Z
+date: 2024-08-01T06:41:43.944Z
+updated: 2024-08-02T06:41:43.944Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/e763646df56241e163aeceaafcbcf01e71b694cfa
 
 # How To Deal with YouTube Trolls and Negative Comments
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -26,6 +30,9 @@ thumbnail: https://thmb.techidaily.com/e763646df56241e163aeceaafcbcf01e71b694cfa
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -52,6 +59,9 @@ thumbnail: https://thmb.techidaily.com/e763646df56241e163aeceaafcbcf01e71b694cfa
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -68,3 +78,47 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-bite-sized-broadcasting-maintaining-quality-in-quick-posts/"><u>[New] 2024 Approved  Bite-Sized Broadcasting  Maintaining Quality in Quick Posts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-cool-youtube-previews-in-imovie-easily/"><u>[New] 2024 Approved  Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dance-of-words-crafting-bouncing-text-effects/"><u>[New] 2024 Approved  Dance of Words  Crafting Bouncing Text Effects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-your-projects-with-free-green-screens-from-these-online-hubs/"><u>[New] 2024 Approved  Enhance Your Projects with Free Green Screens From These Online Hubs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-youtube-exchange-threads-for-2024/"><u>[New] Decoding YouTube Exchange Threads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-direct-conversion-of-spotify-music-5-tools-for-youtube-streaming-for-2024/"><u>[New] Direct Conversion of Spotify Music  5 Tools for YouTube Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-earning-insights-from-viewing-data-on-youtube-for-2024/"><u>[New] Earning Insights From Viewing Data on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-youtube-content-with-text-overlays-for-2024/"><u>[New] Enhancing YouTube Content with Text Overlays for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-complete-review-of-razer-video-streaming-device/"><u>[New] In 2024, Complete Review of Razer Video Streaming Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>[New] In 2024, Embrace Cold  Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-entry-level-landing-low-cost-profitable-youtube-platforms/"><u>[New] In 2024, Entry Level Landing  Low-Cost, Profitable YouTube Platforms</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-the-essential-checklist-for-syncing-obs-and-zoom/"><u>[New] In 2024, The Essential Checklist for Syncing OBS & Zoom</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-engagement-how-to-pick-perfect-youtube-collaborators/"><u>[New] Maximizing Engagement  How to Pick Perfect YouTube Collaborators</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-prolific-profits-from-youtube-universal-strategies-unveiled/"><u>[New] Prolific Profits From YouTube  Universal Strategies Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-comprehensive-guide-to-setting-up-proper-video-aspect-ratios-for-youtube/"><u>[New] The Comprehensive Guide to Setting Up Proper Video Aspect Ratios for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-shot-selection-best-stabilizers-reviewed/"><u>[New] Ultimate Shot Selection - Best Stabilizers Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtube-potential-editing-after-the-upload-process/"><u>[New] Unlocking YouTube Potential  Editing After the Upload Process</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-partner-program-explained-2024-edition/"><u>[New] Youtube's Partner Program Explained  2024 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-claim-cost-free-visuals-from-highest-rated-4-youtube-sources/"><u>[Updated] 2024 Approved  Claim Cost-Free Visuals From Highest-Rated 4 YouTube Sources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-download-unlimited-mcb-visual-elements/"><u>[Updated] 2024 Approved  Download Unlimited MCB Visual Elements</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-earning-strategies-with-youtubes-adsense-payout-per-k-viewers/"><u>[Updated] 2024 Approved  Earning Strategies with Youtube's AdSense  Payout per K Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-fast-fortnite-icons-in-minutes-for-2024/"><u>[Updated] Crafting Fast Fortnite Icons in Minutes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-video-clarity-with-expert-tips-for-youtube-editors-for-2024/"><u>[Updated] Elevate Video Clarity with Expert Tips for YouTube Editors for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-content-creators-dilemma-which-site-reigns-vimeo-youtube/"><u>[Updated] In 2024, Content Creators' Dilemma  Which Site Reigns - Vimeo, YouTube?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-direct-youtube-file-access-tips/"><u>[Updated] In 2024, Direct YouTube File Access Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-maximizing-video-impact-post-upload-edit-tips-for-youtube/"><u>[Updated] Maximizing Video Impact  Post-Upload Edit Tips for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfecting-your-playlists-adapting-spotify-to-the-youtube-music-ecosystem/"><u>[Updated] Perfecting Your Playlists  Adapting Spotify to the YouTube Music Ecosystem</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premier-10-decibel-boosters-macos-to-mobile-devices/"><u>[Updated] Premier 10 Decibel Boosters  MacOS to Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-seamless-conversion-excellence-with-these-top-8-tools/"><u>[Updated] Seamless Conversion Excellence with These Top 8 Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-steer-clear-of-obscurity-secure-a-top-spot-with-youtube-seo-tips/"><u>[Updated] Steer Clear of Obscurity  Secure a Top Spot with YouTube SEO Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-vocal-transformation-programs-for-video-makers/"><u>[Updated] The Best Vocal Transformation Programs for Video Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-for-smartphone-cinematography-enhancements/"><u>[Updated] The Ultimate Guide for Smartphone Cinematography Enhancements</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-audioscapes-weaving-music-into-imovie-narratives/"><u>2024 Approved  Audioscapes  Weaving Music Into iMovie Narratives</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-create-fantastic-youtube-description-with-templates-to-get-more-viewers/"><u>2024 Approved  Create Fantastic YouTube Description With Templates To Get More Viewers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-boost-your-youtube-revenue-from-mobile-a-comprehensive-guide/"><u>2024 Approved  How to Boost Your YouTube Revenue From Mobile - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-virtual-victory-channel-over-a-hundred-heroes-rise/"><u>2024 Approved  Virtual Victory Channel  Over a Hundred Heroes Rise</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-yt-thumbnails-downloading-via-browser-app-and-command-line/"><u>2024 Approved  YT Thumbnails  Downloading via Browser, App & Command Line</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comprehensive-overview-dji-inspire-2-for-2024/"><u>Comprehensive Overview - DJI Inspire 2 for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-facebooks-secrets-an-introductory-guide/"><u>In 2024, Unlocking Facebook's Secrets  An Introductory Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Pop 7 Pro? | Dr.fone</u></a></li>
+</ul></div>

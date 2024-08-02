@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Discovering Popular Video Threads"
-date: 2024-06-05T15:45:05.789Z
-updated: 2024-06-06T15:45:05.789Z
+date: 2024-08-01T10:21:51.792Z
+updated: 2024-08-02T10:21:51.792Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,9 @@ If you own a YouTube channel or are starting one, even you can do this. Without 
 * [Part 7: Tips for Writing a Comment](#part7)
 * [Part 8: Benefits of Highlighted Comments](#part8)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What Does The Highlighted Comment Mean On YouTube?
 
 Before you get on with highlighting your comments, you must understand what it means exactly. You may follow comments on the videos posted by several YouTubers, but the highlighted ones are always making it to the top of the list.
@@ -54,14 +57,23 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -82,6 +94,9 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -104,6 +119,9 @@ Alternatively, you can try out a few temporary solutions.
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
 Many frequently inquire on the internet about how they can improve the chances of getting their comment pinned, as highlighted on YouTube. The secret lies in how you write the statement. We've listed a few pro tips below that can help:
@@ -148,3 +166,58 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-9-easy-no-cost-editing-software-options/"><u>[New] 2024 Approved  Discover 9 Easy, No-Cost Editing Software Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-diy-guide-to-turning-youtube-screen-time-into-a-free-screencast/"><u>[New] 2024 Approved  DIY Guide to Turning YouTube Screen Time Into a FREE Screencast</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-quality-without-the-mic-a-practical-guide/"><u>[New] 2024 Approved  Enhancing Quality without the Mic  A Practical Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-aim-higher-boosting-views-and-reach-on-youtube-for-2024/"><u>[New] Aim Higher  Boosting Views and Reach on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elegant-aesthetics-mastering-youtubes-beauty-landscape-for-2024/"><u>[New] Elegant Aesthetics  Mastering YouTube's Beauty Landscape for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-engineering-captivating-video-teasers-for-online-presence-for-2024/"><u>[New] Engineering Captivating Video Teasers for Online Presence for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-content-with-youtube-tags-and-notes-for-2024/"><u>[New] Enhancing Content with YouTube Tags & Notes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-become-a-pro-in-calculating-youtube-ratio-measures/"><u>[New] In 2024, Become a Pro in Calculating YouTube Ratio Measures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-boost-engagement-through-anime-style-subscribe-buttons-filmora-tutorial/"><u>[New] In 2024, Boost Engagement Through Anime-Style Subscribe Buttons (Filmora Tutorial)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates/"><u>[New] In 2024, Boosting Channel Earnings  The Step-by-Step FameBit Guide to Affiliates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-broadcast-brilliance-with-cost-effective-templates/"><u>[New] In 2024, Broadcast Brilliance with Cost-Effective Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-key-video-beginnings-identifying-the-best-16-for-more-watches/"><u>[New] Key Video Beginnings  Identifying the Best 16 for More Watches</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-media-production-magix-video-pro-x-insights/"><u>[New] Mastering Media Production  Magix Video Pro X Insights</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-speak-loud-and-clear-on-tiktok-a-comprehensible-guide-for-2024/"><u>[New] Speak Loud and Clear on TikTok - A Comprehensible Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-editors-toolkit-elevating-your-youtube-videos-via-windows-pc/"><u>[New] The Editor's Toolkit  Elevating Your YouTube Videos via Windows PC</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unlocking-the-code-a-guide-to-your-own-special-tiktok-hash-for-2024/"><u>[New] Unlocking the Code  A Guide to Your Own Special TikTok Hash for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-shorts-profits-and-content-creator-payments/"><u>[New] YouTube Shorts Profits & Content Creator Payments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-building-a-brand-building-income-youtube-edition/"><u>[Updated] 2024 Approved  Building a Brand, Building Income  YouTube Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eye-catching-thumbnails-select-the-best-fonts/"><u>[Updated] 2024 Approved  Eye-Catching Thumbnails  Select the Best Fonts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-step-by-step-expedition-to-youtubes-unseen-layers-for-2024/"><u>[Updated] A Step-by-Step Expedition to YouTube's Unseen Layers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-amplify-your-creative-impact-youtube-studio-editing-essentials-for-2024/"><u>[Updated] Amplify Your Creative Impact  YouTube Studio Editing Essentials for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-gpus-for-ultra-hd-video-production/"><u>[Updated] Best GPUs for Ultra HD Video Production</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-cut-to-impact-in-depth-youtube-video-editing-mastery-for-2024/"><u>[Updated] Cut to Impact  In-Depth Youtube Video Editing Mastery for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-director-of-visuals-and-music/"><u>[Updated] Expert Director of Visuals and Music</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-trending-video-reactions/"><u>[Updated] Exploring Trending Video Reactions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-6-best-youtube-to-mp3-downloader-for-android/"><u>[Updated] FREE 6 Best YouTube to MP3 Downloader for Android</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-comprehensive-guide-to-the-best-makeup-tutorials-on-youtube/"><u>[Updated] In 2024, A Comprehensive Guide to the Best Makeup Tutorials on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-bypassing-youtubes-copyright-strike-legal-strategies-and-precautions/"><u>[Updated] In 2024, Bypassing YouTube's Copyright Strike  Legal Strategies and Precautions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-deconstructing-the-legal-framework-of-youtube-and-cc-licenses/"><u>[Updated] In 2024, Deconstructing the Legal Framework of Youtube & CC Licenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dive-deep-into-video-creation-with-these-top-12-vlogger-friendly-cameras/"><u>[Updated] In 2024, Dive Deep Into Video Creation with These Top 12 Vlogger-Friendly Cameras</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-sharpening-your-zoom-images-for-professional-conferencing/"><u>[Updated] In 2024, Sharpening Your Zoom Images for Professional Conferencing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-things-about-asmr-video-you-should-know/"><u>[Updated] In 2024, Things About ASMR Video You Should Know</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-ranked-steadicam-systems-for-drone-cinematography-aficionados/"><u>[Updated] Top-Ranked Steadicam Systems for Drone Cinematography Aficionados</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-shorts-fund-how-to-maximize-your-earnings/"><u>[Updated] YouTube Shorts Fund  How to Maximize Your Earnings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nokia-c300-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nokia C300</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-constructing-an-engaging-tiktok-aftermath/"><u>2024 Approved  Constructing an Engaging TikTok Aftermath</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-video-magic-comprehensive-editing-for-professionals/"><u>2024 Approved  YouTube Video Magic  Comprehensive Editing for Professionals</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channel-top-14-gaming-vids-for-youtube-success-for-2024/"><u>Boost Your Channel  Top 14 Gaming Vids for YouTube Success for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-nova-y71-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Nova Y71</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-zte-nubia-flip-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast ZTE Nubia Flip 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-motorola-moto-g-stylus-5g-2023-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Motorola Moto G Stylus 5G (2023) Phone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-xs-without-apple-id-by-drfone-ios/"><u>In 2024, How to Erase an iPhone XS without Apple ID?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sonic-shifts-for-strategic-victories-in-free-fire/"><u>In 2024, Sonic Shifts for Strategic Victories in Free Fire</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-apple-iphone-14-plus-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or Apple iPhone 14 Plus from iCloud</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimize-windows-87-via-me-installation/"><u>Optimize Windows 8/7 via ME Installation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pursuing-profits-the-path-to-fiscal-gains-through-videography-for-2024/"><u>Pursuing Profits  The Path to Fiscal Gains Through Videography for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/smooth-and-swift-designing-your-best-thumbnails-for-2024/"><u>Smooth & Swift  Designing Your Best Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/spotlight-on-the-top-8-authentic-video-promotion-methods-for-2024/"><u>Spotlight on the Top 8 Authentic Video Promotion Methods for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-for-finding-high-impact-keywords-for-youtube-content-for-2024/"><u>Strategies for Finding High-Impact Keywords for YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/swiftly-adapt-video-formats-for-mac-pixels-for-2024/"><u>Swiftly Adapt Video Formats for MAC Pixels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/time-allocation-mastery-work-and-youtube-synergy-for-2024/"><u>Time Allocation Mastery  Work & YouTube Synergy for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-asmr-content-creators-on-youtube-for-2024/"><u>Top ASMR Content Creators on YouTube for 2024</u></a></li>
+</ul></div>

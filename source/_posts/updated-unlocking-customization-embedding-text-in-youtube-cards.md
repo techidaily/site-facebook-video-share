@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Customization  Embedding Text in YouTube Cards\""
-date: 2024-06-05T16:05:13.712Z
-updated: 2024-06-06T16:05:13.712Z
+date: 2024-08-01T10:56:14.058Z
+updated: 2024-08-02T10:56:14.058Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -45,17 +48,27 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
 * Click on the "Video Manager" tab
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -63,6 +76,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
@@ -80,6 +96,9 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -134,3 +153,36 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boost-engagement-and-growth-unlocking-youtube-analytics-via-social-blade/"><u>[New] 2024 Approved  Boost Engagement and Growth - Unlocking YouTube Analytics via Social Blade</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-a-sports-highlight-step-by-step-tutorial/"><u>[New] 2024 Approved  Crafting a Sports Highlight  Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-how-to-edit-the-length-of-a-video-on-youtube/"><u>[New] 2024 Approved  How to Edit the Length of a Video on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-captivate-audiences-with-imaginative-thumbnails-for-2024/"><u>[New] Captivate Audiences with Imaginative Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-buy-top-10-gaming-gpus-for-high-quality-online-viewing/"><u>[New] In 2024, Best Buy  Top 10 Gaming GPUs for High-Quality Online Viewing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-fusion-of-youtube-videos-with-flv-format/"><u>[New] In 2024, Effortless Fusion of YouTube Videos with FlV Format</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-online-downloads-converting-youtube-to-mp3-made-simple/"><u>[New] In 2024, Explore Online Downloads  Converting YouTube to MP3 Made Simple</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-economic-escalade-of-ajey-and-carryminati-on-youtube/"><u>[New] The Economic Escalade of Ajey and CarryMinati on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-theme-that-stands-out-crafting-banners-for-gamers/"><u>[New] Theme That Stands Out  Crafting Banners for Gamers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-video-masterclass-crafting-youtube-trailers-using-filmora/"><u>[New] Video Masterclass  Crafting YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-deep-dive-into-srt-mechanics-and-performance/"><u>[Updated] Deep Dive Into SRT Mechanics and Performance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-discover-youtubes-frame-advantage-five-free-tools-for-2024/"><u>[Updated] Discover YouTube's Frame Advantage - Five Free Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-content-creator-acclaim-through-subscriber-recognition/"><u>[Updated] In 2024, Content Creator Acclaim Through Subscriber Recognition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-discovering-beyond-vidcon-key-youtube-occasions/"><u>[Updated] In 2024, Discovering Beyond VidCon  Key Youtube Occasions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfect-iphone-mp3-conversion-top-6-software-recommendations/"><u>[Updated] Perfect iPhone MP3 Conversion  Top 6 Software Recommendations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-tips-for-youtube-thumbnail-design/"><u>2024 Approved  Essential Tips for YouTube Thumbnail Design</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-definitive-guide-to-affordable-video-calls-online/"><u>2024 Approved  The Definitive Guide to Affordable Video Calls Online</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-unlocking-desktop-recording-the-ezvide-approach/"><u>2024 Approved  Unlocking Desktop Recording - The EZvide Approach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-virtual-battlegrounds-a-million-moments-in-gaming/"><u>2024 Approved  Virtual Battlegrounds  A Million Moments in Gaming</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/buy-bitraser-drive-eraser/"><u>Buy - BitRaser Drive Eraser</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-you-dont-have-permission-to-view-this-file-error-on-windows/"><u>How to Fix the “You Don’t Have Permission to View This File” Error on Windows</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-instantaneous-srt-to-txt-change-a-step-by-step-process/"><u>In 2024, Instantaneous SRT to TXT Change  A Step-by-Step Process</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-quick-fix-valorant-thumbnails-professionally-done-now/"><u>In 2024, Quick-Fix Valorant Thumbnails  Professionally Done Now!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-profit-distribution-to-content-makers/"><u>In 2024, YouTube's Profit Distribution to Content Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-and-free-ios-apps-to-convert-youtube-videos-to-mp3-files-for-2024/"><u>Quick and Free  IOS Apps to Convert YouTube Videos to MP3 Files for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/seamless-listening-the-ipodcast-guidebook/"><u>Seamless Listening  The iPodcast Guidebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/smart-money-making-on-youtube-shorts-for-2024/"><u>Smart Money-Making on Youtube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-youtubers-guide-to-picking-perfect-recording-tools/"><u>The YouTuber's Guide to Picking Perfect Recording Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-potential-creating-a-youtube-channel-that-shines-in-games-for-2024/"><u>Unleash Potential  Creating a YouTube Channel that Shines in Games for 2024</u></a></li>
+</ul></div>

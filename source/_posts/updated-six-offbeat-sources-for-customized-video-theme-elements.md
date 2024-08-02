@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Six Offbeat Sources for Customized Video Theme Elements"
-date: 2024-06-05T14:12:17.594Z
-updated: 2024-06-06T14:12:17.594Z
+date: 2024-08-01T07:45:03.238Z
+updated: 2024-08-02T07:45:03.238Z
 tags:
   - ai video
   - ai youtube
@@ -50,12 +50,19 @@ I’m putting Flaticon.com right at the top of this list because it has somethin
 
 You start out on Flaticon by searching for a theme like beauty, gaming, flowers, or emojis. I searched for ‘birds’ and found these cuties.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon Download Site Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon.jpg)
 
 _These aren’t all the birds on Flaticon, just a few._ _They had a huge selection in all the different searches I tried._
 
 I clicked on the brown bird to open up the download screen, and then clicked into ‘Edit icon’. There may be a pop up that tells you editing tools are only available to registered users, but it’s wrong. Just close it and keep going, unless you want to register.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![  Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon-example-1.jpg)
 
 You can edit the colors in your icon just by clicking on the color you want to replace, and then clicking on the color in the color selector you want to replace it with. I made my birdie FLY.
@@ -105,6 +112,9 @@ In the ‘search’ on Seeklogo.net, you can type in the name of a brand or indu
 
 I searched for YouTube – you never know when you might need the YouTube logo.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Seeklogo](https://images.wondershare.com/filmora/article-images/youtube-icons-logos-on-seeklogo.jpg)
 
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
@@ -150,10 +160,16 @@ When you arrive on Logaster there’s a button right on their home page that say
 
 In Step 1 it’ll ask for your company name and an activity type. You just need to put in your channel name and choose something from the activity drop down that you focus on in your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
 
 _There are 10 pages of suggestions!_
@@ -164,6 +180,9 @@ After you click ‘save’ in the last step you’ll be prompted to provide an e
 
 I personally wouldn’t recommend buying an image from here unless your channel is for your small business and you need things like branded business cards and letterhead. This site might be better for gathering inspiration than actually downloading a logo from.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. [Icons8.com](https://icons8.com/)
 
 **Key Points:**
@@ -178,12 +197,18 @@ You will also need to link to Icons8 if you use their icons for free (i.e. in th
 
 To get started on Icons8, type something into the search bar on the home page that you think might work as an icon or as part of whatever graphics you have planned. I typed in ‘game’ for this one, since gaming is the biggest genre on YouTube. Here are a few of the results that came up:
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
 
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
 
 After you find an icon you like, click on it and it will appear on the right side of your screen where you’ll be able to make a few changes (an editing screen will pop up once you start clicking on things). You can edit your colors, overlay small decals, add text, and add a border, change your background and adjust your size. Here’s the editing screen:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![ Edit Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/edit-gaming-icons-logos-on-icons8.jpg)
 
 You can give your icon a pretty different look from its default. Check this out:
@@ -192,16 +217,25 @@ You can give your icon a pretty different look from its default. Check this out:
 
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![ Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
 
 You can change the size with that drop down menu, but you’ll be limited in your options if you don’t want to pay.
 
 I downloaded my image and tried to see how it would look as an icon/profile picture. As you can see, it was pretty blurry in the preview:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Add Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/add-gaming-icons-logos-made-with-icons8.jpg)
 
 However, the preview is larger than the actual profile picture. Once I set it, it looked alright.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
 
 Looking for somewhere you can build your own icon/logo from scratch? Check out this [list of logo makers](https://www.filmora.io/community-blog/top-9-free-youtube-logo-makers-304.html).
@@ -210,6 +244,9 @@ After downloading the icons or logos, it is time to add them to your YouTube vid
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -226,3 +263,49 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-charm-with-cost-free-visual-aids/"><u>[New] 2024 Approved  Channel Charm with Cost-Free Visual Aids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-amplify-engagement-increase-youtube-viewers-for-2024/"><u>[New] Amplify Engagement  Increase YouTube Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-converting-in-meeting-google-meet-to-youtube-broadcasts-your-guide-for-2024/"><u>[New] Converting In-Meeting Google Meet to YouTube Broadcasts  Your Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app-for-2024/"><u>[New] Create Harmonious Hits  A Step-by-Step Guide to Making YouTube Playlists Online & App for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-the-7-most-wanted-apps-to-boost-your-youtube-live-quality-for-2024/"><u>[New] Discover the 7 Most Wanted Apps to Boost Your YouTube LIVE Quality for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-engaging-audience-from-anywhere-phone-based-filming-techniques-for-2024/"><u>[New] Engaging Audience From Anywhere  Phone-Based Filming Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-innovate-your-channels-closing-scenes-free-end-screens/"><u>[New] Innovate Your Channels' Closing Scenes  Free End Screens</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-jokejigsaw-compiler/"><u>[New] JokeJigsaw Compiler</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-complete-pacera-free-audio-liberation-handbook/"><u>[New] The Complete Pacera Free Audio Liberation Handbook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-youtubes-vision-for-a-thriving-ecosystem-of-short-form-video/"><u>[New] Unraveling YouTube's Vision for a Thriving Ecosystem of Short-Form Video</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-10-top-ranked-offline-ios-gaming-hacks-you-need/"><u>[Updated] 2024 Approved  10 Top-Ranked Offline iOS Gaming Hacks You Need</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-analyzing-channels-monetization-status-at-a-glance/"><u>[Updated] 2024 Approved  Analyzing Channels  Monetization Status at a Glance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-deep-dive-into-the-world-of-youtubes-minis-for-2024/"><u>[Updated] A Deep Dive Into the World of Youtube's Minis for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-camera-stabilizers-for-youtube-for-2024/"><u>[Updated] Best Camera Stabilizers for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comedic-craftsmanship-the-best-short-video-ideas-to-entertain-viewers-for-2024/"><u>[Updated] Comedic Craftsmanship  The Best Short Video Ideas to Entertain Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-content-creators-revenue-gain-from-each-click-for-2024/"><u>[Updated] Content Creators' Revenue  Gain From Each Click for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-maintain-youtube-session-in-the-background/"><u>[Updated] How to Maintain YouTube Session in the Background</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-8-unbeatable-zero-price-software-choices-for-online-media-makers/"><u>[Updated] In 2024, 8 Unbeatable Zero-Price Software Choices For Online Media Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-practices-in-digital-image-creation-for-youtube/"><u>[Updated] In 2024, Best Practices in Digital Image Creation for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-openings-at-no-cost-the-best-youtube-intro-makers/"><u>[Updated] In 2024, Cutting-Edge Openings at No Cost  The Best YouTube Intro Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effective-legal-strategies-for-content-visibility/"><u>[Updated] In 2024, Effective, Legal Strategies for Content Visibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfect-your-yt-thumbnails-with-these-mac-tips/"><u>[Updated] Perfect Your YT Thumbnails with These Mac Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tagging-magic-elevating-game-based-youtubes/"><u>[Updated] Tagging Magic  Elevating Game-Based YouTubes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-this-years-breakthrough-in-vr-gaming-technology/"><u>[Updated] This Year's Breakthrough in VR Gaming Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-ultimate-checklist-for-channel-buying-success/"><u>[Updated] Your Ultimate Checklist for Channel Buying Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-growth-hacking-for-new-videographers/"><u>[Updated] YouTube Growth Hacking for New Videographers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-podcast-vs-youtube-the-battle-of-audio-and-visual-media/"><u>2024 Approved  Podcast vs YouTube  The Battle of Audio and Visual Media</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-vivo-s18-pro-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Vivo S18 Pro Phone When You Forget the Password</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/acclaimed-ai-artistic-editor/"><u>Acclaimed AI Artistic Editor</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-oneplus-nord-ce-3-lite-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On OnePlus Nord CE 3 Lite 5G</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-infinix-zero-5g-2023-turbo-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Infinix Zero 5G 2023 Turbo Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-perfecting-tiktok-videos-efficient-techniques-for-numerical-edits/"><u>In 2024, Perfecting TikTok Videos  Efficient Techniques for Numerical Edits</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-selecting-premium-backgrounds-for-zoomgoogle-calls/"><u>In 2024, Selecting Premium Backgrounds for Zoom/Google Calls</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vimeo-and-youtube-a-compreayer-of-their-core-philosophies/"><u>In 2024, Vimeo and YouTube  A Compreayer of Their Core Philosophies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vloggers-ultimate-gear-list-17-100/"><u>In 2024, Vloggers' Ultimate Gear List #17-100</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-ultimate-guide-to-distinguishing-your-youtube-shorts/"><u>In 2024, Your Ultimate Guide to Distinguishing Your Youtube Shorts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/resolved-hd-sound-driver-error-in-latest-os-update/"><u>Resolved HD Sound Driver Error in Latest OS Update</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-complete-blueprint-to-tally-your-youtube-growth-and-income-for-2024/"><u>The Complete Blueprint to Tally Your YouTube Growth and Income for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-insights-into-2018-fifa-football-videos-on-youtube-infographic-for-2024/"><u>Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic] for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/understanding-and-complying-with-instagrams-audio-ownership-laws/"><u>Understanding and Complying with Instagram's Audio Ownership Laws</u></a></li>
+</ul></div>

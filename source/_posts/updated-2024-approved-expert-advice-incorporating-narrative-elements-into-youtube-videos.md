@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expert Advice  Incorporating Narrative Elements Into YouTube Videos\""
-date: 2024-06-05T13:57:18.244Z
-updated: 2024-06-06T13:57:18.244Z
+date: 2024-08-01T07:19:47.006Z
+updated: 2024-08-02T07:19:47.006Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/1b74b748e6b2e328a07a7b57a377bfde7d1cf6984
 
 # How to Add Text to YouTube Video Before or After Uploading
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -38,6 +41,9 @@ Before uploading the video to YouTube, it is recommended to add text to the vide
 
 There are plenty of Text effects built in Filmora, you can apply motions and animation to texts, titles, subtitles, end credits and openers as well. Each title preset will present different effects. You can add multiple text boxes and place the text to any position in need. Besides writing texts to video, you can select the target font, size and color and customize the text effect in detail as well. To add text to a video in Filmora is easy, just follow the steps below:
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
@@ -96,6 +102,9 @@ Of course, you can only add and edit texts and captions to the video under your 
 * Click the **Video Manager** tab and in Videos section you will see all your videos uploaded to YouTube. Select the video that you want to add captions to and then select **Subtitles/CC** after clicking Edit button.
 * Add Captions/Subtitles
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
@@ -120,6 +129,9 @@ When you make use of this editor, you cannot shorten the clips for music. Moreov
 
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Top 3 Tips for Adding Text to YouTube Videos
 
 #### 1\. Leave Room
@@ -140,8 +152,14 @@ Text is a great tool for making something stand out. However, if you try to use 
 
 Try to use text to emphasize only the most important things you say.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -158,3 +176,51 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-audio-quality-in-social-media-recordings/"><u>[New] 2024 Approved  Boosting Audio Quality in Social Media Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-embarking-on-a-youtube-venture-user-setup-essentials/"><u>[New] 2024 Approved  Embarking on a YouTube Venture  User Setup Essentials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-beginning-your-blog-journey-for-financial-gain-for-2024/"><u>[New] Beginning Your Blog Journey for Financial Gain for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-a-personalized-youtube-pathway-to-viewers-for-2024/"><u>[New] Crafting a Personalized YouTube Pathway to Viewers for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-youtube-free-conversion-hack-turn-hd-fb-videos-into-high-res-mp4-for-free/"><u>[New] In 2024, YouTube-Free Conversion Hack  Turn HD FB Videos Into High-Res MP4 For Free</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-inside-look-free2xs-camera-recording-capabilities/"><u>[New] Inside Look  Free2X's Camera Recording Capabilities</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-restored-full-screen-happy-obs-users/"><u>[New] Restored Full Screen, Happy OBS Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-syncing-tunes-with-video-cut-and-paste-youtube-editor-basics/"><u>[New] Syncing Tunes with Video Cut & Paste  YouTube Editor Basics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-creative-edge-filmmakers-blueprint-for-captivating-anime-subscribers-filmora/"><u>[New] The Creative Edge  Filmmaker's Blueprint for Captivating Anime Subscribers (Filmora)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-stepwise-route-to-discovering-elusive-youtube-footage/"><u>[New] The Stepwise Route to Discovering Elusive YouTube Footage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-student-focused-historical-yt-series/"><u>[Updated] 2024 Approved  Best Student-Focused Historical YT Series</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-make-your-youtube-animated-subscribe-button-easily-with-filmora/"><u>[Updated] 2024 Approved  How to Make Your YouTube Animated Subscribe Button Easily With Filmora</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-smooth-cinematography-best-stabilizers-listed/"><u>[Updated] 2024 Approved  Smooth Cinematography  Best Stabilizers Listed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-avoiding-common-errors-perfect-tripod-usage-in-video-production-for-2024/"><u>[Updated] Avoiding Common Errors  Perfect Tripod Usage in Video Production for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-freefire-youtube-hashtags-and-tips-for-youtube-gaming-videos-for-2024/"><u>[Updated] Best FreeFire YouTube Hashtags and Tips For YouTube Gaming Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-practices-for-secure-youtube-mp4-conversion-for-2024/"><u>[Updated] Best Practices for Secure YouTube MP4 Conversion for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-your-ultimate-youtube-music-list-step-by-step-guide-webmobile-for-2024/"><u>[Updated] Building Your Ultimate YouTube Music List  Step-by-Step Guide (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-collaborative-video-workflows-for-content-growth-for-2024/"><u>[Updated] Collaborative Video Workflows for Content Growth for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficient-ad-elimination-select-7-android-adblockers-for-2024/"><u>[Updated] Efficient Ad Elimination  Select 7 Android AdBlockers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-harmonize-your-listens-the-complete-path-to-youtube-playlist-making-webmobile/"><u>[Updated] Harmonize Your Listens  The Complete Path to YouTube Playlist Making (Web/Mobile)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-beginning-with-youtube-essential-steps-to-create-your-space/"><u>[Updated] In 2024, Beginning with YouTube  Essential Steps to Create Your Space</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-convert-for-free-from-twitter-videos-to-animated-gifs/"><u>[Updated] In 2024, Convert for Free  From Twitter Videos to Animated Gifs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[Updated] In 2024, Crafting GIFs Like a Pro  Industry Leaders' Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-integrating-luts-into-film-colorwork/"><u>[Updated] Integrating Luts Into Film Colorwork</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-key-strategies-utilizing-hashtags-in-youtube-gaming-content/"><u>[Updated] Key Strategies  Utilizing Hashtags in YouTube Gaming Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-free-video-translation-youtubes-extractors-and-downloader-list/"><u>[Updated] The Best-Free Video Translation  YouTube's Extractors & Downloader List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-quick-clip-quandary-youtube-shorts-advantage-over-tiktok/"><u>[Updated] The Quick-Clip Quandary  YouTube Shorts' Advantage Over TikTok?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-higher-view-counts-through-sustained-compliance-with-youtube-cc/"><u>[Updated] Unlocking Higher View Counts Through Sustained Compliance with YouTube CC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-twist-rearranging-queue-from-end-to-beginning/"><u>[Updated] YouTube's Twist  Rearranging Queue From End to Beginning</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-gain-recovery-of-personal-snapshots/"><u>2024 Approved  Gain Recovery of Personal Snapshots</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-golden-age-of-video-gamers/"><u>2024 Approved  YouTube's Golden Age of Video Gamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/captivate-with-time-lapse-artistry-on-samsung-phones/"><u>Captivate with Time-Lapse Artistry on Samsung Phones</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-oneplus-open-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-nord-ce-3-lite-5g-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock OnePlus Nord CE 3 Lite 5G Phone with Broken Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-itel-a70-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Itel A70 Without PUK Codes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-photography-with-advanced-software/"><u>In 2024, Pioneering Photography with Advanced Software</u></a></li>
+<li><a href="https://driver-install.techidaily.com/integrate-hp-envy-5530-drivers-with-win-11-systems/"><u>Integrate HP Envy 5530 Drivers with Win 11 Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-poco-c51-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Poco C51</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-facebook-privacy-against-hacking/"><u>Safeguard Facebook Privacy Against Hacking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-blueprint-for-successful-valorant-thumbnails-on-social-media-platforms-for-2024/"><u>The Blueprint for Successful Valorant Thumbnails on Social Media Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-video-dimensions-on-the-yt-platform-for-2024/"><u>The Ultimate Guide to Video Dimensions on the YT Platform for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-vivo-y100t-frp-by-drfone-android/"><u>The Updated Method to Bypass Vivo Y100t FRP</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secrets-of-youtube-video-dimensions-and-resolution-for-2024/"><u>Unveiling the Secrets of YouTube Video Dimensions & Resolution for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/virtual-artisans-haven-retreat/"><u>Virtual Artisans' Haven Retreat</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/vivavideo-uncovered-user-perspectives-and-features/"><u>VivaVideo Uncovered  User Perspectives and Features</u></a></li>
+</ul></div>

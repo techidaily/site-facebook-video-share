@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Behind the Scenes  YouTube's View Count Algorithm\""
-date: 2024-06-25T01:39:30.281Z
-updated: 2024-06-26T01:39:30.281Z
+date: 2024-08-01T11:48:55.947Z
+updated: 2024-08-02T11:48:55.947Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
 
 # How Does YouTube Count Views? It's Not as Simple as You Think
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,12 +45,18 @@ After you have created your YouTube channel, do you want to edit videos and uplo
 
 You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Not Everyone Who Clicks Adds to Your View Count
 
 YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
 
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. How Does YouTube Count Views?
 
 YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
@@ -83,10 +92,16 @@ One way that [YouTube might flag an account as a potential bot](https://support.
 
 Any bot-like action will result in an account’s views do not be added to your view count.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## 5\. The Skip & Skim
 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. Frozen YouTube View Counts
 
 Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
@@ -105,6 +120,9 @@ During the period when the view count is frozen every legitimate view is still c
 
 In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -123,3 +141,78 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-new-era-of-streaming-leading-voices-of-female-creators/"><u>[New] 2024 Approved  A New Era of Streaming  Leading Voices of Female Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-achieve-uninterrupted-youtube-experience-across-os-platforms/"><u>[New] 2024 Approved  Achieve Uninterrupted YouTube Experience Across OS Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-average-payout-for-a-million-view-youtube-video/"><u>[New] 2024 Approved  Average Payout for a Million-View YouTube Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cultivating-an-audience-naturally-youtubes-way/"><u>[New] 2024 Approved  Cultivating an Audience Naturally - YouTube's Way</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-essentials-unleashed-8-products-that-are-changing-the-business-landscape/"><u>[New] 2024 Approved  Essentials Unleashed  8 Products That Are Changing the Business Landscape</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapchats-hidden-content-finding-and-restoring-photos/"><u>[New] 2024 Approved  Snapchat's Hidden Content  Finding and Restoring Photos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-5-simple-yet-powerful-strategies-to-skyrocket-your-youtube-views-for-2024/"><u>[New] 5 Simple Yet Powerful Strategies to Skyrocket Your YouTube Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-breaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers-for-2024/"><u>[New] Breaking Into the Digital Realm  The WireCast Approach for YouTube Streamers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-audio-blending-into-youtube-clips-using-editors-for-2024/"><u>[New] Effortless Audio Blending Into YouTube Clips Using Editors for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhance-interaction-share-your-custom-youtube-playlist-for-2024/"><u>[New] Enhance Interaction  Share Your Custom YouTube Playlist for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-picks-best-7-video-streaming-apps-to-take-your-youtube-game-upward-iosandroid-for-2024/"><u>[New] Expert Picks  Best 7 Video Streaming Apps to Take Your YouTube Game Upward (iOS/Android) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-stepwise-approach-to-designing-powerful-edu-vids-on-social-media/"><u>[New] In 2024, A Stepwise Approach to Designing Powerful Edu-Vids on Social Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-cash-flow-harnessing-youtube-ad-revenue-anywhere/"><u>[New] In 2024, Channel Cash Flow  Harnessing YouTube Ad Revenue Anywhere</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-design-channels-get-free-visuals-now/"><u>[New] In 2024, Design Channels - Get Free Visuals Now</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-insight-into-highlighted-video-discussion-threads/"><u>[New] Insight Into Highlighted Video Discussion Threads</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-screen-to-file-solutions-with-apowersoft-for-2024/"><u>[New] Screen-to-File Solutions with Apowersoft for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlining-content-across-platforms-youtube-and-igtv/"><u>[New] Streamlining Content Across Platforms  YouTube & IGTV</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-taking-your-filmed-artistry-on-a-journey-with-imovie-and-youtube/"><u>[New] Taking Your Filmed Artistry on a Journey with iMovie & YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-future-of-android-time-lapses-innovations-in-video-capture/"><u>[New] The Future of Android Time-Lapses  Innovations in Video Capture</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-right-approach-to-partial-youtube-downloads/"><u>[New] The Right Approach to Partial YouTube Downloads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-trailblaze-your-way-to-success-insights-on-youtube-metrics-with-social-blade/"><u>[New] Trailblaze Your Way to Success  Insights on YouTube Metrics with Social Blade</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-blueprint-to-lost-youtube-video-accessibility-online/"><u>[New] Your Blueprint to Lost YouTube Video Accessibility Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-channel-harmony-matching-your-narrative-with-the-right-mic/"><u>[New] YouTube Channel Harmony  Matching Your Narrative With the Right Mic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-traffic-on-youtube-mastering-the-art-of-video-outros/"><u>[Updated] 2024 Approved  Boosting Traffic on YouTube  Mastering the Art of Video Outros</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-bring-your-imagination-to-life-using-cartoony-filters-in-snapchat/"><u>[Updated] 2024 Approved  Bring Your Imagination to Life  Using Cartoony Filters in Snapchat</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-breaking-the-barrier-uploading-and-live-broadcasting-vids-to-fb-for-2024/"><u>[Updated] Breaking the Barrier  Uploading and Live Broadcasting Vids to FB for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-bringing-heartwarmth-to-the-winter-5-snug-cinematographic-tips/"><u>[Updated] Bringing Heartwarmth to the Winter  5 Snug Cinematographic Tips</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-elite-adventurers-playground-top-10-games-revealed-for-2024/"><u>[Updated] Elite Adventurers' Playground – Top 10 Games Revealed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-gear-checklist-for-youtube-success-for-2024/"><u>[Updated] Essential Gear Checklist for YouTube Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-transcribe-a-youtube-video-for-free/"><u>[Updated] How to Transcribe a YouTube Video for FREE</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-8-pioneering-exercise-videos-to-keep-your-viewers-active/"><u>[Updated] In 2024, 8 Pioneering Exercise Videos To Keep Your Viewers Active</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-collaborate-for-success-video-strategies/"><u>[Updated] In 2024, Collaborate for Success  Video Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>[Updated] In 2024, Effortless Keyword Harvesting  Explore the Best 7 No-Fee Tag Extractors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-sound-transformation-from-youtube-to-wav-format/"><u>[Updated] In 2024, Effortless Sound Transformation From YouTube to WAV Format</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-unboundscreen-capturing-every-gaming-moment-for-free/"><u>[Updated] In 2024, UnboundScreen  Capturing Every Gaming Moment for FREE</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unveiling-30-proven-facebook-tricks-to-skyrocket-your-brand/"><u>[Updated] In 2024, Unveiling 30 Proven Facebook Tricks to Skyrocket Your Brand</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pivoting-to-passive-income-the-youtube-expedition-without-ads/"><u>[Updated] Pivoting to Passive Income  The YouTube Expedition Without Ads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-your-best-freefire-videos-with-key-insights/"><u>[Updated] Unlock Your Best FreeFire Videos with Key Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-video-platform-review-is-vimeo-best-over-youtubes-and-dailymotions/"><u>[Updated] Video Platform Review  Is Vimeo Best Over YouTubes and DailyMotions?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-effortless-creativity-premier-pro-free-2023-guide/"><u>2024 Approved  Effortless Creativity - Premier Pro FREE 2023 Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-free-range-humor-development-unleash-your-wit/"><u>2024 Approved  Free-Range Humor Development  Unleash Your Wit</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-visual-brand-integration-embedding-watermarks-and-logos-into-youtube-media/"><u>2024 Approved  Visual Brand Integration  Embedding Watermarks and Logos Into Youtube Media</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-failure-of-intels-wi-fi-6d-driver-in-os/"><u>Addressing Failure of Intel's Wi-Fi 6D Driver in OS</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/cinematic-capture-a-device-friendly-movie-guidebook/"><u>Cinematic Capture  A Device-Friendly Movie Guidebook</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-realme-11-proplus-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Realme 11 Pro+</u></a></li>
+<li><a href="https://windows11.techidaily.com/decoding-and-resolving-winirq-conflicts-for-clear-audio/"><u>Decoding and Resolving WinIRQ Conflicts for Clear Audio</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-tecno-spark-20-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-honor-70-lite-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Honor 70 Lite 5G without App | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-itel-p55plus-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Itel P55+ FRP Bypass Instantly</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-samsung-galaxy-s23-fe-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Samsung Galaxy S23 FE Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-dissecting-apowersofts-features-against-competitors/"><u>In 2024, Dissecting Apowersoft's Features Against Competitors</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-12-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi 12 5GFRP Lock</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-guide-to-50-creative-free-youtube-advertising-options/"><u>In 2024, Your Guide to 50 Creative, Free YouTube Advertising Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-guide-to-the-best-gaming-tech/"><u>In 2024, YouTube's Guide to the Best Gaming Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151882486-navigate-new-ways-transporting-fb-stories-and-notebooks-effortlessly/"><u>Navigate New Ways: Transporting FB Stories & Notebooks Effortlessly</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-video-editors-paradise-10-essential-software-solutions/"><u>New 2024 Approved Video Editors Paradise 10 Essential Software Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/remedy-for-hidden-shorts-video-thumbnails-for-2024/"><u>Remedy for Hidden Shorts Video Thumbnails for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-s17-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on S17 Pro</u></a></li>
+<li><a href="https://extra-support.techidaily.com/restoring-clarity-resolving-iphones-blurry-photos-for-2024/"><u>Restoring Clarity  Resolving iPhone's Blurry Photos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionize-your-videos-first-impression-with-these-makers-for-2024/"><u>Revolutionize Your Video's First Impression with These Makers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/skyrocketing-views-live-stream-techniques-for-gamers-for-2024/"><u>Skyrocketing Views  Live Stream Techniques for Gamers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/smart-sharing-the-leading-shortened-url-services-for-youtubers-for-2024/"><u>Smart Sharing  The Leading Shortened URL Services for Youtubers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-guide-to-crafting-engaging-valorant-thumbnails-for-2024/"><u>Step-by-Step Guide to Crafting Engaging Valorant Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stream-success-on-two-platforms-ytplustwitch-to-expand-audience-for-2024/"><u>Stream Success on Two Platforms (YT+Twitch) to Expand Audience for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-choices-excellent-youtubers-screen-recording-tools-for-2024/"><u>Top Choices  Excellent YouTubers' Screen Recording Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secrets-to-high-impact-live-streaming-with-wirecast-on-youtube-for-2024/"><u>Unveiling the Secrets to High-Impact Live Streaming with WireCast on YouTube for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-what-you-should-know-about-pexelscom/"><u>Updated 2024 Approved What You Should Know About Pexels.com</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-poco-x5-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Poco X5? Here is How | Dr.fone</u></a></li>
+</ul></div>

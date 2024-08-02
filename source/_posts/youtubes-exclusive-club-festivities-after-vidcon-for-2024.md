@@ -1,7 +1,7 @@
 ---
 title: "\"Youtube's Exclusive Club  Festivities After VidCon for 2024\""
-date: 2024-06-05T15:11:57.321Z
-updated: 2024-06-06T15:11:57.321Z
+date: 2024-08-01T09:25:00.297Z
+updated: 2024-08-02T09:25:00.297Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/D4uT5p29_lIC5FDQUnoil812gZY=/400x300/fi
 
 # Beyond VidCon - A Guide to the Most Important YouTube Events
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,6 +43,9 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 #### 1. **[VidCon](http://vidcon.com/)**
@@ -78,6 +84,9 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -112,6 +121,9 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -136,6 +148,9 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -148,6 +163,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 
 Sydney, Australia: February
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -226,3 +245,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-deep-dive-into-youtubes-latest-monetization-policy/"><u>[New] 2024 Approved  A Deep Dive Into YouTube's Latest Monetization Policy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-practical-guide-to-applying-creative-commons-rights/"><u>[New] 2024 Approved  A Practical Guide To Applying Creative Commons Rights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-low-cost-subtitles-and-downloader-companion/"><u>[New] 2024 Approved  Best Low-Cost Subtitles & Downloader Companion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crown-jewels-of-online-watching-youtubes-treasures/"><u>[New] 2024 Approved  Crown Jewels of Online Watching  YouTube's Treasures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-earn-on-youtube-beginners-path-to-profitability/"><u>[New] 2024 Approved  Earn on YouTube  Beginner's Path to Profitability</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-filmmakers-essential-guide-to-free-royalty-free-audiosites-for-2024/"><u>[New] A Filmmaker's Essential Guide to Free Royalty-Free Audiosites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-creating-a-prime-business-channel-top-picks-and-simple-steps-for-2024/"><u>[New] Creating a Prime Business Channel  Top Picks & Simple Steps for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cutting-edge-visual-techniques-selecting-premium-camera-lenses-for-2024/"><u>[New] Cutting-Edge Visual Techniques  Selecting Premium Camera Lenses for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-art-of-asmr-filmmaking-techniques-for-2024/"><u>[New] Decoding the Art of ASMR Filmmaking Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breakdown-of-youtubes-money-making-mechanisms-cpm/"><u>[New] In 2024, Breakdown of YouTube’s Money-Making Mechanisms (CPM)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-youtube-income-computations/"><u>[New] In 2024, Effortless YouTube Income Computations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-your-youtube-presence-with-effective-tags/"><u>[New] In 2024, Elevating Your YouTube Presence with Effective Tags</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-exploring-your-liked-movies-and-shows-on-facebook/"><u>[New] In 2024, Exploring Your Liked Movies and Shows on Facebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-iosplusandroid-guide-to-invisible-youtube-viewing/"><u>[New] IOS+Android Guide to Invisible YouTube Viewing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-6-unique-sources-for-premium-youtube-imagery/"><u>[New] Top 6 Unique Sources for Premium YouTube Imagery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-live-broadcast-guide-software-and-hardware-recommendations/"><u>[New] Ultimate Live Broadcast Guide  Software & Hardware Recommendations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-vlog-glow-achieving-professional-video-setup/"><u>[New] Vlog Glow  Achieving Professional Video Setup</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-angles-of-perspective-youtubes-path-to-dynamic-video-editing/"><u>[Updated] 2024 Approved  Angles of Perspective  YouTube's Path to Dynamic Video Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-converting-spotify-playlist-content-for-youtube-music-compatibility/"><u>[Updated] 2024 Approved  Converting Spotify Playlist Content for YouTube Music Compatibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-core-principles-youtubes-social-contract/"><u>[Updated] 2024 Approved  Core Principles  YouTube's Social Contract</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-windows-snapshot-simplified-2-methods/"><u>[Updated] 2024 Approved  Windows Snapshot Simplified (2 Methods)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-7-easy-steps-for-a-subscriber-surge-on-youtube-for-2024/"><u>[Updated] 7 Easy Steps for a Subscriber Surge on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-guide-to-free-you-from-youtubes-extra-bar-width-for-2024/"><u>[Updated] A Guide to Free You From YouTube's Extra Bar Width for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-advanced-techniques-flawless-insertion-of-vimeo-video-in-slides/"><u>[Updated] Advanced Techniques  Flawless Insertion of Vimeo Video in Slides</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-rearrangement-of-your-personalized-lists-for-2024/"><u>[Updated] Effortless Rearrangement of Your Personalized Lists for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-simple-yet-powerful-strategies-to-skyrocket-your-youtube-views/"><u>[Updated] In 2024, 5 Simple Yet Powerful Strategies to Skyrocket Your YouTube Views</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-best-captures-of-macs-visual-display-under-156-characters/"><u>[Updated] In 2024, Best Captures of Mac's Visual Display (Under 156 Characters)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-your-youtube-empire-kit-overview/"><u>[Updated] In 2024, Building Your YouTube Empire  Kit Overview</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-engaging-everyone-quickly-which-platform-triumphs-for-shorter-videos/"><u>[Updated] In 2024, Engaging Everyone Quickly  Which Platform Triumphs for Shorter Videos?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expert-tips-for-removing-persistent-youtube-channels-mobilepc/"><u>[Updated] In 2024, Expert Tips for Removing Persistent Youtube Channels (Mobile/PC)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-kickstarting-your-digital-voice-the-complete-process-of-starting-a-youtube-chanel/"><u>[Updated] Kickstarting Your Digital Voice  The Complete Process of Starting a YouTube Chanel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-up-your-visual-effects-game-with-free-lessons-from-4-innovative-youtube-channels/"><u>[Updated] Step Up Your Visual Effects Game with Free Lessons From 4 Innovative YouTube Channels</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-superior-approaches-to-record-phone-usage/"><u>[Updated] Superior Approaches to Record Phone Usage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-independent-creators-playbook-earning-big-without-ads-on-youtube/"><u>[Updated] The Independent Creator’s Playbook  Earning Big Without Ads on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-portable-tools-dominating-video-editing-landscape/"><u>[Updated] Top 10 Portable Tools Dominating Video Editing Landscape</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-ultimate-guide-to-profit-from-youtube-videos-2e-2024/"><u>[Updated] Your Ultimate Guide to Profit From Youtube Videos (2E 2024)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-oneplus-12-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor OnePlus 12 Activity | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-best-gopro-video-processing-apps/"><u>2024 Approved  Best GoPro Video Processing Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-playlist-rearrangement-made-simple/"><u>2024 Approved  YouTube Playlist Rearrangement Made Simple</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-samsung-galaxy-a15-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Samsung Galaxy A15 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-itel-p55plus-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Itel P55+</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/debating-digital-domains-obs-versus-twitch/"><u>Debating Digital Domains  OBS Versus Twitch</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-the-leading-microphones-in-podcasting-for-2024/"><u>Explore the Leading Microphones in Podcasting for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-xiaomi-13t-pro-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Xiaomi 13T Pro Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-itel-a70-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Itel A70</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-demystifying-igtv-for-a-comprehensive-social-media-experience/"><u>In 2024, Demystifying IGTV  For a Comprehensive Social Media Experience</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/revolutionize-your-snapchat-experience-a-compendium-of-over-120-innovative-story-titles-for-2024/"><u>Revolutionize Your Snapchat Experience  A Compendium of Over 120 Innovative Story Titles for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/stuck-at-android-system-recovery-of-itel-p55-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Itel P55 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-7-video-recording-devices-for-professional-streaming-artists-for-2024/"><u>Top 7 Video Recording Devices for Professional Streaming Artists for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/tp-link-wireless-adapter-driver-download-for-windows-easily/"><u>TP Link Wireless Adapter Driver Download for Windows EASILY</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/video-url-minification-the-best-tools-for-youtubers-convenience-for-2024/"><u>Video URL Minification  The Best Tools for Youtubers' Convenience for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-studio-review-profits-and-payments-for-2024/"><u>YouTube Studio Review  Profits and Payments for 2024</u></a></li>
+</ul></div>

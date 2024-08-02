@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Direct to YouTube  Stepwise Process of Mobile & Desktop Video Posting for 2024\""
-date: 2024-07-04T23:59:25.071Z
-updated: 2024-07-05T23:59:25.071Z
+date: 2024-08-01T05:48:43.297Z
+updated: 2024-08-02T05:48:43.297Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,9 @@ Quite recently, YouTube launched Shorts to compete with Tik Tok. At the time of 
 
 With that said, the following sections explain the step-by-step process on **how to upload a short video on YouTube** Shorts both from your smartphone and a PC.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
 The fact is, if you are using a computer to upload short videos to YouTube, the process is identical to publishing your other, regular footage. However, there are a few guidelines that your clips must comply with so that the streaming platform could specifically identify them as YouTube Shorts. These norms include:
@@ -42,6 +45,9 @@ Once you have a video recorded using the first two guidelines from the above lis
 
 #### Step 1: Select a Short Video to Upload
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
@@ -72,16 +78,25 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -94,6 +109,9 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 
 #### Step 2: Add Details
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
@@ -110,6 +128,9 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -126,12 +147,18 @@ On the next window, use the **Music** and **Text** buttons from the bottom-left 
 
 On the **Add details** window, enter a name for the video along with the **#Shorts** tag in the **Create a title** field, tap **Select audience** to select the target audience, and tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -150,3 +177,45 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-alchemy-turning-viewers-into-believers/"><u>[New] 2024 Approved  Channel Alchemy  Turning Viewers Into Believers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channeling-success-the-essential-elements-for-profitable-video-trailers/"><u>[New] 2024 Approved  Channeling Success  The Essential Elements for Profitable Video Trailers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-deciphering-the-wealth-of-mr-beast/"><u>[New] 2024 Approved  Deciphering the Wealth of Mr. Beast</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-digital-dollar-first-steps-in-youtubers-revenue/"><u>[New] 2024 Approved  Digital Dollar  First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-the-10-best-yoga-platforms-for-enhanced-fitness/"><u>[New] 2024 Approved  Discover The 10 Best Yoga Platforms For Enhanced Fitness</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-6-youtuber-quizzes-to-know-what-type-of-youtuber-you-are-for-2024/"><u>[New] 6 YouTuber Quizzes to Know What Type of YouTuber You Are for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-behind-the-mascara-youtubes-top-makeup-artists-unveiled-for-2024/"><u>[New] Behind the Mascara  YouTube's Top Makeup Artists Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-cultivating-connection-not-compulsion-in-subscriptions/"><u>[New] Cultivating Connection, Not Compulsion in Subscriptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cutting-edge-tools-free-youtube-intro-creators-for-2024/"><u>[New] Cutting-Edge Tools  Free YouTube Intro Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discovering-8-ultimate-mirrorless-vlogging-cameras-for-2024/"><u>[New] Discovering 8 Ultimate Mirrorless Vlogging Cameras for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-youtube-marketing-techniques-ranked-from-best-to-worst-for-2024/"><u>[New] Essential YouTube Marketing Techniques – Ranked From Best to Worst for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-event-ensemble-curating-best-dj-templates-for-2024/"><u>[New] Event Ensemble  Curating Best DJ Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-list-of-the-best-marriage-videos-celebrations-captured-online-8/"><u>[New] In 2024, A List of the Best Marriage Videos - Celebrations Captured Online (8)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-3d-entrance-makers-for-youtube-creators/"><u>[New] In 2024, Best 3D Entrance Makers for YouTube Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breaking-the-mold-high-fidelity-sound-without-a-microphone/"><u>[New] In 2024, Breaking the Mold  High-Fidelity Sound without a Microphone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dominate-the-digital-space-youtube-leadership/"><u>[New] In 2024, Dominate the Digital Space  YouTube Leadership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-youtubes-operations-after-video-upload/"><u>[New] In 2024, Exploring YouTube's Operations After Video Upload</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-insightful-discussion-on-youtube-keyword-mastery/"><u>[New] Insightful Discussion on YouTube Keyword Mastery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-free-youtube-gallery-downloads-now/"><u>[New] Unlock Free YouTube Gallery Downloads Now</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-subscriber-lists-a-youtube-guide/"><u>[New] Unveiling Subscriber Lists  A YouTube Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-activating-or-deactivating-user-feedback-on-videos/"><u>[Updated] 2024 Approved  Activating or Deactivating User Feedback on Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortless-video-streams-youtube-loops-for-television-viewers/"><u>[Updated] 2024 Approved  Effortless Video Streams  YouTube Loops for Television Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-conquer-zero-viewers-10-essential-tips-for-video-popularity-for-2024/"><u>[Updated] Conquer Zero Viewers  10 Essential Tips for Video Popularity for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ease-and-speed-effective-methods-for-comment-removal-for-2024/"><u>[Updated] Ease and Speed  Effective Methods for Comment Removal for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered/"><u>[Updated] In 2024, Climb the Popularity Ladder  Essential YouTube SEO Practices Uncovered</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-livestream-platforms-at-play-fb-vs-yt-live-and-twitspaces/"><u>[Updated] Livestream Platforms at Play  FB Vs. YT Live & TWITSpaces</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-making-your-twitter-media-a-gif-masterpiece/"><u>[Updated] Making Your Twitter Media A GIF Masterpiece</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simplicity-in-downloading-youtube-graphics/"><u>[Updated] Simplicity in Downloading YouTube Graphics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unrivaled-5-editors-perfect-for-non-youtube-vids/"><u>[Updated] Unrivaled 5 Editors Perfect for Non-YouTube Vids</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-unearthing-the-obscured-videotapes/"><u>[Updated] YouTube  Unearthing the Obscured Videotapes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ice-warriors-battle-the-spectacular-winter-olympics-snowboard-showdown/"><u>2024 Approved  Ice Warriors Battle - The Spectacular Winter Olympics Snowboard Showdown</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-vivo-s18e-device-sim-by-drfone-android/"><u>Easily Unlock Your Vivo S18e Device SIM</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-reno-11-pro-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo Reno 11 Pro 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-from-iphone-6-plus-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password From iPhone 6 Plus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-best-free-youtube-ending-creators-top-6-picks/"><u>In 2024, Best Free YouTube Ending Creators - Top 6 Picks!</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-6s-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone 6s In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-infinix-smart-8-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Infinix Smart 8</u></a></li>
+<li><a href="https://network-issues.techidaily.com/stabilize-your-win11-monitor-quicker/"><u>Stabilize Your Win11 Monitor Quicker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-producing-hysterical-youtube-video-reactions-3-key-techniques-for-2024/"><u>The Ultimate Guide to Producing Hysterical YouTube Video Reactions (3 Key Techniques) for 2024</u></a></li>
+</ul></div>

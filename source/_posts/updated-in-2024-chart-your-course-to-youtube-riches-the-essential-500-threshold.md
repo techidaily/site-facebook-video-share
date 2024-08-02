@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Chart Your Course to Youtube Riches  The Essential 500 Threshold\""
-date: 2024-06-05T14:53:25.137Z
-updated: 2024-06-06T14:53:25.137Z
+date: 2024-08-01T08:53:37.587Z
+updated: 2024-08-02T08:53:37.587Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,9 @@ For small creators on YouTube, getting monetized seemed like an uphill task. You
 
 The recent update in YouTube monetization requirements has made it easier than ever for small creators to make money on the platform. The YPP program changed and reduced the number of subscribers needed to be eligible. It has also reduced the amount of watch time needed. Let’s have a look at what the new eligibility criteria look like:
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![new eligibility criteria](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-1.JPG)
 
 The eligibility criteria for the YPP program are now easier and more achievable than before. To apply, you now need:
@@ -43,10 +46,16 @@ The new requirements are lower than the old ones. Previously, you were required 
 
 YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **Know If You are Eligible**
 
 As a creator, you will want to know if you are eligible for the YouTube monetization 500 subscribers’ plan. Make sure that the notify feature on your channel is active to receive a notification. Go to the Earn area of the YouTube channel, and select Get Notified. Once selected, YouTube will send you an email when reach above the eligibility threshold.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![notify me](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-2.JPG)
 
 ### **What You Need to Join Expanded YPP**
@@ -60,6 +69,9 @@ Joining the expanded YouTube Partner Program has the same requirements as the ea
 * No Community Guidelines strikes on your Channel
 * Have advanced features access on YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **Where to Apply for Monetization**
 
 After meeting the eligibility criteria, you will need to apply to be enrolled in the YPP. Remember that being eligible does not automatically translate to instant income. You need to apply for the program and wait for the approval. Here are the steps to follow:
@@ -68,6 +80,9 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ##### Step 1Sign in to YouTube Studio on your computer or desktop
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
 ##### Step 2Click Earn in the left menu
@@ -76,10 +91,16 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ##### Step 3Click Apply Now to review and Accept the base terms
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
 
 ##### Step 4Click Start to set up an AdSense account
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
 
 #### **On Android, iPhone and iPad**
@@ -127,10 +148,16 @@ The quality of your Shorts plays an essential role in determining whether your c
 
 Filmora offers creators fantastic editing features to create better Shorts. Let’s have a look at some of the features you may find helpful:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### **1\.** [**AI Copywriting**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 YouTube Shorts require quick content that covers everything within 60 seconds. With the Filmora AI Copywriting feature, you can get inspiration and add text to your videos. Express your thoughts more clearly and generate text that makes the video more engaging.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### 2\. [**Split Screen Video Editor**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
@@ -139,6 +166,9 @@ YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is qui
 
 With YouTube Shorts, you need to be more creative. Adding objects to your videos makes them fun and engaging. The motion tracking feature on Filmora allows you to track the movement of an object in the video. You can then pin graphics on the object, making the video more exciting. You can also add specific text and align it to an object, allowing your audience to follow through the story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ### 4\. [**Speed Ramping**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The way you present your video means a lot to the audience. No one wants a boring or a really slow-moving video. With the Speed Ramping feature on Filmora, you can adjust the speed of your Shorts with better control of your keyframes. This allows you to create unique cinematic effects that keep the audience wanting more of the content.
@@ -159,3 +189,43 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-4-top-choices-for-seamless-pcmac-video-capture/"><u>[New] 2024 Approved  4 Top Choices for Seamless PC/Mac Video Capture</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-8-pioneering-exercise-videos-to-keep-your-viewers-active/"><u>[New] 2024 Approved  8 Pioneering Exercise Videos To Keep Your Viewers Active</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-your-path-to-success-in-youtubes-earnings-system/"><u>[New] 2024 Approved  Charting Your Path to Success in YouTube's Earnings System</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-powerful-partnerships-a-guide-to-choosing-youtube-allies/"><u>[New] 2024 Approved  Crafting Powerful Partnerships  A Guide to Choosing YouTube Allies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortlessly-download-your-favorite-youtube-playlists-for-2024/"><u>[New] Effortlessly Download Your Favorite YouTube Playlists for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-add-timestamps-youtube-video/"><u>[New] How to Add Timestamps YouTube Video?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-affordable-mcb-theme-images-for-channels/"><u>[New] In 2024, Affordable MCB Theme Images for Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-engage-audiences-best-hashtags-for-going-viral-on-yt/"><u>[New] In 2024, Engage Audiences  Best Hashtags for Going Viral on YT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlining-monetization-strategies-on-youtube/"><u>[New] Streamlining Monetization Strategies on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-creators-guide-turn-viewers-into-paychecks/"><u>[New] The Creator’s Guide  Turn Viewers Into Paychecks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unbox-the-joy-of-9-premium-complete-christmas-movies-for-free/"><u>[New] Unbox the Joy of 9 Premium, Complete Christmas Movies for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtubes-potential-key-tactics-for-expanding-your-viewership/"><u>[New] Unlocking YouTube's Potential  Key Tactics for Expanding Your Viewership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtubes-potential-understanding-the-impact-of-tags/"><u>[New] Unlocking YouTube's Potential  Understanding the Impact of Tags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-what-is-a-parody-and-how-to-make-a-parody-video/"><u>[New] What Is a Parody and How to Make a Parody Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eradicating-grayscale-issues-with-youtube-video/"><u>[Updated] 2024 Approved  Eradicating Grayscale Issues with YouTube Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-humble-beginnings-to-prodigy-carryminatis-earnings-ajey/"><u>[Updated] From Humble Beginnings to Prodigy  CarryMinati's Earnings (Ajey)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-illuminated-insights-visualizing-youtubes-17-data-story/"><u>[Updated] Illuminated Insights! Visualizing YouTube's '17 Data Story</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-elevation-strategy-quickly-reach-your-10k-view-quota/"><u>[Updated] In 2024, Channel Elevation Strategy – Quickly Reach Your 10K View Quota</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-how-to-download-youtube-videos-without-any-software/"><u>[Updated] In 2024, How to Download YouTube Videos without Any Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-make-a-mark-with-your-first-cool-mac-video-post-on-youtube/"><u>[Updated] Make a Mark with Your First Cool Mac Video Post on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-masterful-video-analytics-unlocking-potential-with-social-blade-and-youtube/"><u>[Updated] Masterful Video Analytics  Unlocking Potential with Social Blade & YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-podcast-sharing-instagram-stories-and-posts-tutorial/"><u>[Updated] Podcast Sharing  Instagram Stories & Posts Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-5-noise-canceling-gaming-mics/"><u>[Updated] Premium 5 Noise-Canceling Gaming Mics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-start-to-clear-background-filming/"><u>[Updated] Quick Start to Clear Background Filming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-beginners-guide-to-earning-success/"><u>[Updated] YouTube Beginners' Guide to Earning Success</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ultimate-lens-selection-tips-for-vloggers-and-editors/"><u>2024 Approved  Ultimate Lens Selection Tips for Vloggers & Editors</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Vivo Y27 4G? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-realme-10t-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Realme 10T 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aging-youtubes-community-how-to-find-and-create-collab-videos/"><u>Leveraging YouTube's Community  How to Find & Create Collab Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mp3-mastery-guide-top-10-video-to-audio-picks/"><u>MP3 Mastery Guide  Top 10 Video-to-Audio Picks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/quick-steps-to-find-youtube-comment-feed/"><u>Quick Steps to Find YouTube Comment Feed</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolving-netflix-and-youtube-pauses-in-new-windows-version/"><u>Resolving Netflix & YouTube Pauses in New Windows Version</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamlining-inshot-cuts-for-professional-edge/"><u>Streamlining Inshot Cuts for Professional Edge</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/surge-to-subscriber-success-with-strategic-tactics-for-2024/"><u>Surge to Subscriber Success with Strategic Tactics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ultimate-guide-to-effective-video-marketing-tools-8-for-2024/"><u>Ultimate Guide to Effective Video Marketing Tools (8) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-higher-rankings-essential-tips-to-elevate-your-yt-content-for-2024/"><u>Unlock Higher Rankings  Essential Tips to Elevate Your YT Content for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-oneplus-nord-ce-3-lite-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your OnePlus Nord CE 3 Lite 5G Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>

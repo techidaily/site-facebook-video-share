@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Achieving High Clickthrough Rates with YT Thumbnails"
-date: 2024-06-05T15:37:04.662Z
-updated: 2024-06-06T15:37:04.662Z
+date: 2024-08-01T10:08:09.837Z
+updated: 2024-08-02T10:08:09.837Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
 
 # Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
@@ -47,10 +50,18 @@ Being a content creator, you never know which device is being used by the viewer
 * Try not to cross the 2MB limit
 * Make sure to use a 16:9 aspect ratio for perfect results throughout the devices
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## How Important is a Custom Thumbnail?
 
 Custom Thumbnail is a tool through which the viewers can understand everything about a video. It tells the viewers what to expect from a video, what not to expect, and what the video is all about. no matter if you create amazing content, if the thumbnail is not good enough to covey that to the viewers, all your hard work will be of no use and will not bring any good to your channel and its growth. According to [Google](https://support.google.com/youtube/answer/72431),90% of best-performing videos have custom thumbnails. It shows the importance of custom thumbnails.
@@ -81,6 +92,9 @@ With your face, it is necessary to put some text on your Youtube thumbnail to le
 
 If you have ever noticed, Youtube thumbnails are very small in size, making it hard for viewers to notice any small elements. According to [YouTube](https://www.youtube.com/intl/en-GB/howyoutubeworks/), more than 70% of Youtube watch time comes from mobile devices. While adding text in a thumbnail, instead of using sentences, make sure to use only words and make them large in size that can easily be noticed on small screens. Summurise your video in no more than 5 words.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![piechart-youtube-watchtime-percentage](https://images.wondershare.com/filmora/article-images/piechart-youtube-watchtime-percentage.png)
 
 ![use-phrases-not-sentences](https://images.wondershare.com/filmora/article-images/use-phrases-not-sentences.jpg)
@@ -101,6 +115,9 @@ Try to make all your thumbnails follow the same style. Following the same style 
 
 To make your Youtube thumbnail more appealing to the viewers, add circles and arrows to grab viewers' attention to something very important in the video. It will increase the curiosity in the viewers and make them click your videos to learn more.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use-elements-to-grab-attention](https://images.wondershare.com/filmora/article-images/use-elements-to-grab-attention.jpg)
 
 1. #### Choose the right tool
@@ -125,6 +142,9 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Before we start making Fortnite Thumbnails, we have to take a screenshot of the gameplay. Open Fortnite and go to the Career tab. Here you will find Replays.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
@@ -137,6 +157,9 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 1. Place it into the timeline to start working on it.
@@ -149,10 +172,16 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 1. This effect will remove the background of your screenshot.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
@@ -161,6 +190,9 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
@@ -169,6 +201,9 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
@@ -187,18 +222,34 @@ Once you have successfully created a custom thumbnail, you can use it in your vi
 
 1. Select the thumbnail that you have made. Just like the one Fortnite thumbnail that we have created using Filmora X.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how-to-add-custom-youtube-thumbnail-to-video-step2](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step2.jpg)
 
 1. The thumbnail will be uploaded and attached to the video. Now you can process all the settings and publish the video.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how-to-add-custom-youtube-thumbnail-to-video-step3](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Thumbnail is the first thing that helps the viewer decide whether to click on a video or ignore it. Which increases the importance of having a well-structured and attractive thumbnail. By following the above guide, you can make an astonishing and clickable thumbnail in no time. For better and quick results, we recommend you using Filmora X. It allows you to perform all the tasks from video editing to thumbnail creation on a single platform.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 Benjamin Arango
@@ -215,3 +266,38 @@ Follow @Benjamin Arango
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-comedy-canvas-painting-laughter-with-top-10-video-concepts-for-2024/"><u>[New] Comedy Canvas  Painting Laughter with Top 10 Video Concepts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube/"><u>[New] In 2024, Assessing the Value of 4-Second Rapid Subscriptions on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-digital-presence-mastering-the-art-of-video-reacts/"><u>[New] In 2024, Elevate Your Digital Presence  Mastering the Art of Video Reacts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-integrating-youtube-media-into-instagram-experience/"><u>[New] Integrating YouTube Media Into Instagram Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetizing-mastery-harness-the-power-of-your-youtube-content-on-mobile/"><u>[New] Monetizing Mastery  Harness the Power of Your YouTube Content on Mobile</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-professionals-path-expert-strategies-for-360-youtube-live-broadcasting/"><u>[New] The Professional's Path  Expert Strategies for 360° Youtube Live Broadcasting</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-turning-your-instagram-movies-inside-out/"><u>[New] Turning Your Instagram Movies Inside Out</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eliminate-camera-sway-no-tripods-allowed/"><u>[Updated] 2024 Approved  Eliminate Camera Sway  No Tripods, Allowed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essentials-for-youtube-music-playlists/"><u>[Updated] 2024 Approved  Essentials for YouTube Music Playlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-comprehensive-guide-to-maximizing-channels-earnings-through-trailers-for-2024/"><u>[Updated] A Comprehensive Guide to Maximizing Channels' Earnings Through Trailers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-becoming-a-lyric-video-pro-a-lyric-video-makers-journey-for-2024/"><u>[Updated] Becoming a Lyric Video Pro  A Lyric Video Maker's Journey for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-learning-the-top-10-educational-historians-yt-for-2024/"><u>[Updated] Elevate Your Learning  The Top 10 Educational Historians YT for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exclusive-insight-into-low-cost-footage-websites-for-2024/"><u>[Updated] Exclusive Insight Into Low-Cost Footage Websites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-amazing-free-youtube-intro-makers-ranked/"><u>[Updated] In 2024, 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-become-a-youtube-earning-expert-universal-device-strategies/"><u>[Updated] In 2024, Become a YouTube Earning Expert  Universal Device Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capture-the-essence-of-your-favorite-series-with-these-extractors/"><u>[Updated] In 2024, Capture the Essence of Your Favorite Series with These Extractors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-through-the-clutter-youtubes-copyright-evolution/"><u>[Updated] In 2024, Cutting Through the Clutter  YouTube's Copyright Evolution</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ultimate-hue-harmonizer-tool/"><u>[Updated] In 2024, Ultimate Hue Harmonizer Tool</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-understanding-youtube-shorts-revenue-strategy/"><u>[Updated] In 2024, Understanding YouTube Shorts Revenue Strategy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-inspiration-boost-with-leading-hr-tapes/"><u>[Updated] Inspiration Boost with Leading HR Tapes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-optimizing-youtube-performance-crafting-perfect-titles-and-tags/"><u>[Updated] Optimizing YouTube Performance  Crafting Perfect Titles and Tags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-seamlessly-incorporating-yt-clips-in-slideshows-via-ppt/"><u>[Updated] Seamlessly Incorporating YT Clips in Slideshows via PPT</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-strategies-to-quicken-vimeo-videos/"><u>[Updated] Strategies to Quicken Vimeo Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-upload-with-ease-instagram-and-vimeo-harmony/"><u>[Updated] Upload with Ease  Instagram and Vimeo Harmony</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-samsung-galaxy-s23-fe-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Samsung Galaxy S23 FE Phones? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-asus-rog-phone-8-pro-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Asus ROG Phone 8 Pro Pictures  An Easy Method Explained.</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-xs-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone XS to Android? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Tecno Spark 10C? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-how-to-remove-audio-from-videos-with-ffmpeg/"><u>New In 2024, How to Remove Audio From Videos with FFmpeg?</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-vivo-s17e-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/solve-video-issues-in-facebook-chat-on-iosandroid-devices-for-2024/"><u>Solve  Video Issues in Facebook Chat on iOS/Android Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-infographic-cache-of-2017s-yt-facts-and-figures-for-2024/"><u>The Infographic Cache of 2017’S YT Facts and Figures for 2024</u></a></li>
+</ul></div>

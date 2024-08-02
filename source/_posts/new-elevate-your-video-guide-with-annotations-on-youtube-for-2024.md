@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevate Your Video Guide with Annotations on YouTube for 2024"
-date: 2024-06-05T13:31:54.864Z
-updated: 2024-06-06T13:31:54.864Z
+date: 2024-08-01T06:36:47.108Z
+updated: 2024-08-02T06:36:47.108Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -56,6 +59,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -63,10 +70,16 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -75,11 +88,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -134,3 +153,54 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-tips-for-professional-youtube-content-creation/"><u>[New] 2024 Approved  Cutting-Edge Tips for Professional YouTube Content Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elite-tech-for-saving-your-on-camera-video-memories/"><u>[New] 2024 Approved  Elite Tech for Saving Your On-Camera Video Memories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-deep-dive-into-rank-tracker-software-optimize-your-channels-success-for-2024/"><u>[New] Deep Dive Into Rank Tracker Software - Optimize Your Channel's Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exclusive-guide-choosing-among-top-9-free-logo-creators-for-2024/"><u>[New] Exclusive Guide  Choosing Among Top 9 Free Logo Creators for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-full-featured-insight-mac-meets-screenflow-v4/"><u>[New] Full-Featured Insight  Mac Meets ScreenFlow V4</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-titling-101-the-quest-for-an-original-label/"><u>[New] In 2024, Channel Titling 101  The Quest for an Original Label</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-vlogs-optimizing-title-description-and-tags/"><u>[New] In 2024, Elevate Your Vlogs  Optimizing Title, Description & Tags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-infographic-8-ways-to-make-money-on-youtube-for-beginners-for-2024/"><u>[New] Infographic - 8 Ways to Make Money on YouTube for Beginners for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-insightful-analysis-the-impact-and-mechanics-of-youtubes-shorts-fund/"><u>[New] Insightful Analysis  The Impact and Mechanics of YouTube's Shorts Fund</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-youtubers-blueprint-building-a-powerhouse-channel/"><u>[New] The YouTuber’s Blueprint  Building a Powerhouse Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-30-tag-strategies-for-boosting-views-in-freefire-gaming/"><u>[New] Top 30 Tag Strategies for Boosting Views in FreeFire Gaming</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-compilation-best-gopro-cases-for-action-seekers/"><u>[New] Ultimate Compilation  Best GoPro Cases for Action Seekers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-broadcast-perfection-recommended-tech-and-apps-for-youtubers/"><u>[Updated] 2024 Approved  Broadcast Perfection  Recommended Tech and Apps for YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-earning-insights-from-viewing-data-on-youtube/"><u>[Updated] 2024 Approved  Earning Insights From Viewing Data on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-streams-using-youtubes-av1-settings/"><u>[Updated] 2024 Approved  Elevate Streams  Using YouTube's AV1 Settings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-aspects-of-sound-and-sight-in-asmr-recording-for-2024/"><u>[Updated] Elevate Your Aspects of Sound and Sight in ASMR Recording for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-channels-image-for-boosted-youtube-subscriptions-for-2024/"><u>[Updated] Elevate Your Channels' Image for Boosted YouTube Subscriptions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-channels-identity-with-titles-for-2024/"><u>[Updated] Elevating Your Channel's Identity with Titles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audiovisual-standards-for-success-on-youtube-top-format-choices/"><u>[Updated] In 2024, Audiovisual Standards for Success on YouTube – Top Format Choices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-captivating-yt-cover-art-for-maximum-traffic/"><u>[Updated] In 2024, Captivating YT Cover Art for Maximum Traffic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-discover-ultimate-asmr-microphones-for-clear-sounds/"><u>[Updated] In 2024, Discover Ultimate ASMR Microphones for Clear Sounds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-your-youtube-experience-tips-on-channel-art-and-sizes/"><u>[Updated] In 2024, Elevating Your YouTube Experience  Tips on Channel Art and Sizes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhancing-youtube-beauty-mastering-video-color-dynamics/"><u>[Updated] In 2024, Enhancing YouTube Beauty  Mastering Video Color Dynamics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-maximize-video-potential-a-complete-guide-to-youtube-thumbnail-dimensions/"><u>[Updated] Maximize Video Potential  A Complete Guide to YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-maximizing-your-firefox-multitasking-with-ffxp/"><u>[Updated] Maximizing Your Firefox Multitasking with FFXP</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocket-your-channel-mastery-of-youtube-data-analysis/"><u>[Updated] Skyrocket Your Channel  Mastery of YouTube Data Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocketing-youtube-traffic-11-seo-insights-unveiled/"><u>[Updated] Skyrocketing YouTube Traffic  11 SEO Insights Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-differences-between-youtube-and-dailymention/"><u>[Updated] The Essential Differences Between YouTube and DailyMention</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-hash-tag-guide-for-gamers-youtube-channels/"><u>[Updated] The Ultimate Hash Tag Guide for Gamers' YouTube Channels</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-audio-engagement-exploration-delving-into-the-world-of-podcasts-vs-youtube/"><u>2024 Approved  Audio Engagement Exploration  Delving Into the World of Podcasts Vs. YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-audio-visual-fidelity-use-av1-on-youtube/"><u>2024 Approved  Enhance Audio-Visual Fidelity  Use AV1 on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-ar-characters-into-your-social-chat-room/"><u>Bringing AR Characters Into Your Social Chat Room</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-add-and-custom-slack-emoji-wondershare-filmora-for-2024/"><u>How to Add and Custom Slack Emoji-Wondershare Filmora for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-itel-p55t-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Itel P55T without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-set-up-and-use-your-facebook-portal-tv-for-video-chats/"><u>How to Set Up and Use Your Facebook Portal TV for Video Chats</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-nokia-c02-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Nokia C02 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-meme-madness-twitters-funniest-video-threads/"><u>In 2024, Meme Madness  Twitter's Funniest Video Threads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-elite-annual-showcases-post-vidcon/"><u>In 2024, YouTube's Elite Annual Showcases (Post-VidCon)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/learn-how-to-change-your-in-game-characters-vocal-presence-with-ease-for-free/"><u>Learn How to Change Your In-Game Character's Vocal Presence with Ease - For FREE</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-cross-service-playlist-migration-step-by-step-guide-for-2024/"><u>Mastering Cross-Service Playlist Migration  Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-the-d3d11-gpu-error-landscape-for-windows-1110/"><u>Navigating the D3D11 GPU Error Landscape for Windows 11/10</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/personalize-with-free-youtube-profile-designs-for-2024/"><u>Personalize With FREE YouTube Profile Designs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/save-money-and-time-creating-engaging-youtube-intros-without-paying-for-2024/"><u>Save Money & Time  Creating Engaging YouTube Intros Without Paying for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/sound-savvy-your-guide-to-the-top-6-free-android-downloader-apps-for-youtube-for-2024/"><u>Sound Savvy  Your Guide to the Top 6 Free Android Downloader Apps for Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-guide-to-crafting-youtube-splitscreen-content-for-2024/"><u>Step-by-Step Guide to Crafting YouTube Splitscreen Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-10-trending-backgound-music-for-youtube-shorts-for-2024/"><u>Top 10 Trending Backgound Music for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transforming-your-channel-url-step-by-step-instructions-for-2024/"><u>Transforming Your Channel URL  Step-by-Step Instructions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubers-unleashed-a-guide-to-creating-memorable-music-reaction-vids-for-2024/"><u>Youtubers Unleashed  A Guide to Creating Memorable Music Reaction Vids for 2024</u></a></li>
+</ul></div>

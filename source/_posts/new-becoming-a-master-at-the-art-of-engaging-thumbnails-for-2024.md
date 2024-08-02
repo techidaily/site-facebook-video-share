@@ -1,7 +1,7 @@
 ---
 title: "[New] Becoming a Master at the Art of Engaging Thumbnails for 2024"
-date: 2024-06-05T14:13:05.432Z
-updated: 2024-06-06T14:13:05.432Z
+date: 2024-08-01T07:46:22.682Z
+updated: 2024-08-02T07:46:22.682Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,9 @@ Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -70,12 +73,18 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
 
 The three main elements of the Emotional Laser thumbnail are a background (usually bright), your face on the right wearing an over-pronounced expression, and either the thing your expression is in reaction to (i.e. food, a product, the topic of your video in text) or reinforcement of your emotion (i.e an emoji or question marks) on the left.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### #1. Ham It Up (Take Your Reaction Photo)
@@ -131,6 +140,9 @@ You can make changes to the colors in your Spark thumbnail easily by selecting a
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
 Here are the top 10 best practices for creating effective YouTube thumbnails:
@@ -177,10 +189,16 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -199,3 +217,49 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-become-a-trending-sensation-with-these-effective-youtube-seo-strategies/"><u>[New] 2024 Approved  Become a Trending Sensation with These Effective YouTube SEO Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-avoid-unwanted-interrucier-top-7-selective-android-adblockers-reviewed-for-2024/"><u>[New] Avoid Unwanted Interrucier  Top 7 Selective Android AdBlockers Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-building-your-ultimate-youtube-music-list-step-by-step-guide-webmobile-for-2024/"><u>[New] Building Your Ultimate YouTube Music List  Step-by-Step Guide (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-youtube-video-reverser-online/"><u>[New] In 2024, Best YouTube Video Reverser Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-combat-common-youtube-short-obstacles/"><u>[New] In 2024, Combat Common YouTube Short Obstacles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-defending-your-youtube-profile/"><u>[New] In 2024, Defending Your YouTube Profile</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>[New] In 2024, Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-guide-on-populating-emojis-in-discord-user-status-field/"><u>[New] In 2024, Guide on Populating Emojis in Discord User Status Field</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-adsense-earnings-insights-into-payments-from-youtube-viewers/"><u>[New] Mastering AdSense Earnings  Insights Into Payments From YouTube Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[New] Top Choices  Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-time-loop-video-recovery-explained/"><u>[New] YouTube's Time Loop  Video Recovery Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-your-channels-income-the-optimal-view-count-quotient/"><u>[Updated] 2024 Approved  Boosting Your Channel's Income  The Optimal View Count Quotient</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-elevate-instagram-clips-incorporating-borders-effectively/"><u>[Updated] 2024 Approved  Elevate Instagram Clips  Incorporating Borders Effectively</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eliminate-cacophony-perfecting-sound-quality-for-youtube/"><u>[Updated] 2024 Approved  Eliminate Cacophony  Perfecting Sound Quality for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-breaking-down-youtube-short-barriers-for-2024/"><u>[Updated] Breaking Down YouTube Short Barriers for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-creating-a-channel-focused-on-reviewing-marketplace-items/"><u>[Updated] Creating a Channel Focused on Reviewing Marketplace Items</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-eradicating-screen-clutter-for-seamless-zoom-and-meet-sessions-for-2024/"><u>[Updated] Eradicating Screen Clutter for Seamless Zoom & Meet Sessions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-bend-the-light-homegrown-animated-innovations/"><u>[Updated] In 2024, Bend the Light  Homegrown Animated Innovations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-busting-the-top-10-vloggers-fears-strategies-for-success/"><u>[Updated] In 2024, Busting the Top 10 Vloggers' Fears  Strategies for Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elite-equipment-showcasing-gameplay-innovations/"><u>[Updated] In 2024, Elite Equipment  Showcasing Gameplay Innovations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-instant-techniques-chaotic-ordering-of-youtube-tracks/"><u>[Updated] Instant Techniques  Chaotic Ordering of YouTube Tracks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-video-creation-understanding-the-role-of-camera-lenses-in-vlogging/"><u>[Updated] Master Video Creation  Understanding the Role of Camera Lenses in Vlogging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-seamless-search-for-your-youtube-comments-across-platforms/"><u>[Updated] Seamless Search for Your YouTube Comments Across Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-smart-strategies-to-enhance-your-video-with-customized-end-screen-cards/"><u>[Updated] Smart Strategies to Enhance Your Video with Customized End Screen Cards</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stay-controlled-online-guide-to-blocking-distracting-youtube-channels/"><u>[Updated] Stay Controlled Online  Guide to Blocking Distracting YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-setting-up-unique-youtube-shorts-thumbnails/"><u>[Updated] Step-by-Step  Setting Up Unique YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-substitute-filmmaking-gems-at-7-spot/"><u>[Updated] Substitute Filmmaking Gems at #7 Spot</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-content-creators-blueprint-for-profitable-youtube-videos/"><u>[Updated] The Content Creator's Blueprint for Profitable YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-earners-on-youtube/"><u>[Updated] Top Earners on YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-navigating-full-hd-display-on-twitter-videos/"><u>2024 Approved  Navigating Full HD Display on Twitter Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-sharing-showdown-comparing-streamers-strengths-vimeo-youtube-and-dailymotion/"><u>2024 Approved  Video Sharing Showdown  Comparing Streamers' Strengths  Vimeo, YouTube & Dailymotion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-issues-with-youtube-shorts-thumbnails-for-2024/"><u>Common Issues with YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/finding-your-perfect-match-premium-videographer-recruitment-for-2024/"><u>Finding Your Perfect Match  Premium Videographer Recruitment for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-transform-your-gopro-footage-mac-video-editing-essentials/"><u>In 2024, Transform Your GoPro Footage Mac Video Editing Essentials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-monetization-policy-updated-requirements-and-guidelines/"><u>In 2024, YouTube Monetization Policy  Updated Requirements and Guidelines</u></a></li>
+<li><a href="https://driver-error.techidaily.com/smooth-windows-11-and-10-overcoming-disk-issues/"><u>Smooth Windows 11 & 10: Overcoming Disk Issues</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/social-media-savvy-unlock-the-secrets-of-crafting-winning-bios-on-facebook-for-2024/"><u>Social Media Savvy  Unlock the Secrets of Crafting Winning Bios on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-8-youtube-fitness-ideas-for-viewers-active-participation-for-2024/"><u>Unlock 8 YouTube Fitness Ideas for Viewers' Active Participation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-clarity-fix-black-screens-on-youtube-for-2024/"><u>Unlocking Clarity  Fix Black Screens on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unraveling-the-mystery-of-ad-driven-content-creation-cpm-for-2024/"><u>Unraveling the Mystery of Ad-Driven Content Creation (CPM) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/veil-of-secrecy-hiding-objects-from-digital-eyes-for-2024/"><u>Veil of Secrecy  Hiding Objects From Digital Eyes for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
+</ul></div>

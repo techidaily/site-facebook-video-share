@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Viewability  Creating Custom YouTube Thumbnails\""
-date: 2024-06-05T13:59:11.633Z
-updated: 2024-06-06T13:59:11.633Z
+date: 2024-08-01T07:23:01.580Z
+updated: 2024-08-02T07:23:01.580Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ YouTube custom thumbnails are a great way to get people's attention to your YouT
 
 We have just made a video tutorial about how to make a YouTube video thumbnail, check it below to find out the tips and tricks of making customized YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
@@ -49,6 +53,9 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 
 1\. **Preview the video and choose the target video still.** You can click the Playback button and check the video and pause it at the desired frame. Or, you can step through each frame by clicking the Preview Frame button and Next Frame icon. Click Next to continue.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-video-still.jpg)
 
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
@@ -59,6 +66,9 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 
 In this way, you can add a custom thumbnail to the new videos and change the video thumbnail of the previously uploaded videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### Part 2: Thumbnail Makers to Create Custom YouTube Thumbnails
 
 Of course, you can use some of the best tools to make a YouTube video thumbnail. In this part, we will show you some of the best tools to create custom YouTube thumbnails.
@@ -79,6 +89,9 @@ Check this video tutorial to see how to Make a Youtube Thumbnail using Canva.
 
 Check this video tutorial to see how to make professional Thumbnails for YouTube Videos with Gimp:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Part 3: How to Change A Thumbnail On YouTube
 
 Note: YouTube allows verified YouTube accounts (accounts that provided YouTube with a working phone number) to upload custom thumbnail images and change them accordingly.
@@ -91,11 +104,17 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
 
 * Find the Thumbnail section in the basic video details tab, and then click the **Upload thumbnail** to select the image that you want to upload.
 * Finally, click on the **Save** button on the right upper corner. And just like that, in seven easy steps, we’re done changing the thumbnail of a YouTube video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
 
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -113,6 +132,9 @@ You may also like: [How to Make YouTube Channel Art](https://tools.techidaily.co
 
 To make a creative YouTube video, you may also need a powerful video editing software. Check how to edit a YouTube video in Filmora video editor and download it to try.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -127,6 +149,9 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
@@ -141,6 +166,9 @@ Often, they will be looking for the answer to a specific question and will compl
 
 Sometimes big channels can get away with stuff like this, because large portions of their audiences are interested in them as people and will already be curious about anything they post. This technique will not bring in new viewers, though.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
@@ -171,6 +199,9 @@ You want to use colors that will help you stand out from the other search result
 
 Beyond simply using colors that are different from other people’s colors, you should consider the emotions different colors trigger.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
@@ -215,3 +246,43 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[New] 2024 Approved  Acquire No-Cost Sounds for Videos & Podcasts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-dynamic-public-speaker-review-v8/"><u>[New] 2024 Approved  Dynamic Public Speaker Review V8</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-easy-steps-to-save-youtube-videos/"><u>[New] 2024 Approved  Easy Steps to Save YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elevate-engagement-escalate-ranks-on-fb-pages/"><u>[New] 2024 Approved  Elevate Engagement, Escalate Ranks on FB Pages</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-your-youtube-presence-with-strategic-post-publish-video-updates/"><u>[New] 2024 Approved  Elevating Your YouTube Presence with Strategic Post-Publish Video Updates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-banner-design-rules-for-top-youtube-channels/"><u>[New] 2024 Approved  Essential Banner Design Rules for Top YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-youtubes-best-video-editing-practices-for-2024/"><u>[New] Decoding YouTube's Best Video Editing Practices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-erase-the-obvious-techniques-for-masked-youtube-content-for-2024/"><u>[New] Erase the Obvious  Techniques for Masked YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exploring-the-past-top-10-educational-history-yt-channels-for-2024/"><u>[New] Exploring the Past  Top 10 Educational History YT Channels for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-best-5-chrome-os-clipping-utilities-ranked/"><u>[New] In 2024, Best 5 Chrome OS Clipping Utilities, Ranked</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>[New] In 2024, Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earnings-on-youtube-a-monthly-perspective/"><u>[New] In 2024, Earnings on YouTube  A Monthly Perspective?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-key-principles-to-uphold-youtube-civility/"><u>[New] Key Principles to Uphold YouTube Civility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-understanding-the-dynamics-behind-youtubes-investment-in-shorts/"><u>[New] Understanding the Dynamics Behind YouTube's Investment in Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-7-best-zero-cost-web-based-film-makers/"><u>[Updated] 2024 Approved  7 Best Zero-Cost Web-Based Film Makers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-comprehensive-suite-of-business-plugins-and-slide-show-ideas/"><u>[Updated] 2024 Approved  Comprehensive Suite of Business Plugins and Slide Show Ideas</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-a-comprehensive-review-of-the-latest-picsart-updates/"><u>[Updated] A Comprehensive Review of the Latest PicsArt Updates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-designing-direct-access-to-your-channels-subscribe-page-for-2024/"><u>[Updated] Designing Direct Access to Your Channel's Subscribe Page for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-comprerant-and-reviewed-the-ultimate-list-of-ios-video-edits/"><u>[Updated] In 2024, Compreran't & Reviewed  The Ultimate List of iOS Video Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-integrate-free-audio-in-your-videos-effortlessly/"><u>[Updated] Integrate FREE Audio in Your Videos Effortlessly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prodigious-platform-professionals/"><u>[Updated] Prodigious Platform Professionals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-secrets-revealed-the-best-youtube-thumbnails-for-virality/"><u>[Updated] Secrets Revealed  The Best YouTube Thumbnails for Virality</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-youtube-downloads-for-ios-devices/"><u>[Updated] Step-by-Step Guide  YouTube Downloads for iOS Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategies-to-rectify-non-displayed-thumbnails-on-shorts-videos/"><u>[Updated] Strategies to Rectify Non-Displayed Thumbnails on Shorts Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-components-that-lift-you-in-youtube-viewership/"><u>[Updated] The Components That Lift You in YouTube Viewership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-youtubes-secrets-for-profound-visibility-gains/"><u>[Updated] Unlocking YouTube's Secrets for Profound Visibility Gains</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-time-rewind-mastery-in-media-refreshes/"><u>[Updated] YouTube Time Rewind  Mastery in Media Refreshes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-advanced-hue-adjustment-strategies-for-professionals/"><u>2024 Approved  Advanced Hue Adjustment Strategies for Professionals</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-synthesize-film-selections-on-platform-playlist/"><u>2024 Approved  Synthesize Film Selections on Platform Playlist</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/best-facebook-video-downloader-and-addons-for-firefox/"><u>Best Facebook Video Downloader And Addons for Firefox</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-oneplus-ace-2v-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset OnePlus Ace 2V phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-multiple-group-platforms-for-increased-impact/"><u>Leveraging Multiple Group Platforms for Increased Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconnaitre-en-francais-la-delivrance-dun-merci/"><u>Reconnaître en Français La Délivrance D'Un 'Merci'</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-for-success-in-work-and-online-creation-for-2024/"><u>Strategies for Success in Work and Online Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transforming-viewers-experience-best-youtube-end-screens-for-2024/"><u>Transforming Viewers' Experience  Best Youtube End Screens for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unearth-pristine-stock-media-from-selective-4-youtube-hubs-for-2024/"><u>Unearth Pristine Stock Media From Selective 4 YouTube Hubs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-instant-offline-playlist-how-to-pull-youtube-videos-onto-idevices-for-2024/"><u>Your Instant Offline Playlist  How to Pull YouTube Videos Onto iDevices for 2024</u></a></li>
+</ul></div>

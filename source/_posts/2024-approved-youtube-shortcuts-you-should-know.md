@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YouTube Shortcuts You Should Know\""
-date: 2024-06-05T13:35:34.477Z
-updated: 2024-06-06T13:35:34.477Z
+date: 2024-08-01T06:42:57.550Z
+updated: 2024-08-02T06:42:57.550Z
 tags:
   - ai video
   - ai youtube
@@ -28,10 +28,16 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -81,6 +87,9 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -91,6 +100,9 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -127,6 +139,9 @@ In this section, you will learn how to pull up the list of important YouTube sho
 
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 **Conclusion**
@@ -137,6 +152,9 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -153,3 +171,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-constructing-attention-grabbing-trailers-for-youtube/"><u>[New] 2024 Approved  Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[New] 2024 Approved  Directing Content Destination  From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-youtube-traffic-best-hash-tactics-explained/"><u>[New] 2024 Approved  Elevate Your YouTube Traffic  Best Hash Tactics Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-tips-for-harnessing-the-power-of-top-9-free-youtube-makers/"><u>[New] 2024 Approved  Expert Tips for Harnessing the Power of Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-diving-deep-into-the-income-of-ajey-carryminati-for-2024/"><u>[New] Diving Deep Into the Income of Ajey (CarryMinati) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-double-delight-endless-looping-of-youtube-videos-for-tvs-for-2024/"><u>[New] Double Delight  Endless Looping of YouTube Videos for TVs for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-free-3d-text-psd-goldmine-top-selections/"><u>[New] Free 3D Text PSD Goldmine - Top Selections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beginning-the-video-odyssey-how-to-create-an-engaging-youtube-channel/"><u>[New] In 2024, Beginning the Video Odyssey  How to Create an Engaging YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-craft-and-share-360-videos-to-youtube-an-essential-guide-for-creators/"><u>[New] In 2024, Craft and Share 360 Videos to YouTube  An Essential Guide for Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-delving-into-how-t-series-earnings-work-on-youtube/"><u>[New] In 2024, Delving Into How T-Series Earnings Work on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-inside-look-what-makes-asmr-special/"><u>[New] Inside Look  What Makes ASMR Special</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-master-the-visuals-top-tips-for-dynamic-and-appealing-live-videos/"><u>[New] Master the Visuals  Top Tips for Dynamic and Appealing Live Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tailoring-audio-rate-on-mobile-and-desktops-for-youtube/"><u>[New] Tailoring Audio Rate on Mobile and Desktops for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-toolkit-for-youtube-video-editors-everywhere/"><u>[New] The Essential Toolkit for YouTube Video Editors Everywhere</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-smartest-approach-to-launching-your-youtube-businesspersonal-brand-from-phone/"><u>[New] The Smartest Approach to Launching Your YouTube Business/Personal Brand From Phone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transforming-your-youtube-profile-descriptions/"><u>[New] Transforming Your YouTube Profile Descriptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-new-take-on-favorite-movies-7-alternatives/"><u>[Updated] 2024 Approved  A New Take on Favorite Movies - #7 Alternatives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>[Updated] 2024 Approved  Dailymotion vs YouTube Monetization  Which Is More Profitable?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-decoding-unlisted-videos-a-deep-dive-into-youtube-secrecy/"><u>[Updated] 2024 Approved  Decoding Unlisted Videos  A Deep Dive Into YouTube Secrecy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dissecting-youtubes-selection-of-trending-video-responses/"><u>[Updated] 2024 Approved  Dissecting YouTube's Selection of Trending Video Responses</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-scrutinizing-selfies-on-instagram-validation-necessary/"><u>[Updated] 2024 Approved  Scrutinizing Selfies on Instagram  Validation Necessary?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-adding-clear-timestamps-to-your-youtube-channels-live-streams-for-2024/"><u>[Updated] Adding Clear Timestamps to Your YouTube Channel's Live Streams for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boost-your-search-rankings-expert-reviews-on-7-cost-effective-video-tags-extractors-for-2024/"><u>[Updated] Boost Your Search Rankings  Expert Reviews on 7 Cost-Effective Video Tags Extractors for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-captivate-audiences-with-effective-and-appealing-video-previews-for-2024/"><u>[Updated] Captivate Audiences with Effective and Appealing Video Previews for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-film-assembly-station/"><u>[Updated] Film Assembly Station</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-frame-by-frame-building-a-filmmaking-foundation-on-youtube/"><u>[Updated] Frame by Frame  Building a Filmmaking Foundation on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-the-shadows-to-spotlight-rise-in-popularity-with-these-steps-on-youtube/"><u>[Updated] From the Shadows to Spotlight  Rise in Popularity with These Steps on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-essential-tips-for-monetizing-your-content-finding-the-right-viewer-count/"><u>[Updated] In 2024, 5 Essential Tips for Monetizing Your Content  Finding the Right Viewer Count</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-affordable-online-education-hosting-on-youtube/"><u>[Updated] In 2024, Affordable Online Education  Hosting on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-efficacy-of-social-media-authenticity-validation/"><u>[Updated] In 2024, The Efficacy of Social Media Authenticity Validation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-real-time-videoimage-editing-easy-3dlut-use/"><u>[Updated] Real-Time Video/Image Editing  Easy 3DLUT Use</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-significant-details-in-asmr-recording-art/"><u>[Updated] Significant Details in ASMR Recording Art</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-self-sustained-youtube-moguls-handbook-no-ads-only-gains/"><u>[Updated] The Self-Sustained YouTube Mogul’s Handbook  No Ads, Only Gains</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-strategy-guide-to-boosting-view-count-on-youtube-shorts/"><u>[Updated] The Ultimate Strategy Guide to Boosting View Count on YouTube Shorts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-transforming-silent-videos-to-audible-magic-on-tiktok-for-2024/"><u>[Updated] Transforming Silent Videos to Audible Magic on TikTok for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-creativity-writing-scripts-for-youtube-content-excellence/"><u>[Updated] Unleashing Creativity  Writing Scripts for YouTube Content Excellence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-has-your-back-shorts-now-showing-up/"><u>[Updated] YouTube Has Your Back - Shorts Now Showing Up</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-raising-awareness-with-youtubes-cc-membership-tips-for-view-growth/"><u>2024 Approved  Raising Awareness with YouTube's CC Membership  Tips for View Growth</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-ultimate-guide-to-transforming-views-into-revenue/"><u>2024 Approved  The Ultimate Guide to Transforming Views Into Revenue</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-tie-the-two-together-instagram-and-facebook-unite/"><u>2024 Approved  Tie the Two Together  Instagram and Facebook Unite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-shorts-mastery-quick-thumbnail-updates-made-simple/"><u>2024 Approved  YouTube Shorts Mastery  Quick Thumbnail Updates Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-through-turkish-and-korean-tongues/"><u>Bridging Cultures Through Turkish & Korean Tongues</u></a></li>
+<li><a href="https://windows11.techidaily.com/bypassing-windows-login-blockers-with-these-8-steps/"><u>Bypassing Windows Login Blockers with These 8 Steps</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oneplus-open-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-navigate-effortlessly-to-your-favorite-facebook-videos-with-these-top-addons/"><u>In 2024, Navigate Effortlessly to Your Favorite Facebook Videos With These Top Addons</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vimeo-vs-youtube-which-is-better/"><u>In 2024, Vimeo vs YouTube  Which Is Better?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-virtual-artisans-haven-retreat/"><u>In 2024, Virtual Artisans' Haven Retreat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/steps-to-bypass-youtube-prohibitions-for-2024/"><u>Steps to Bypass YouTube Prohibitions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tips-for-constructing-inspirational-day-to-day-visual-narratives-for-2024/"><u>Tips for Constructing Inspirational Day-to-Day Visual Narratives for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unique-conversation-starters-for-streaming-for-2024/"><u>Unique Conversation Starters for Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubing-101-the-right-devices-for-2024/"><u>Youtubing 101  The Right Devices for 2024</u></a></li>
+</ul></div>

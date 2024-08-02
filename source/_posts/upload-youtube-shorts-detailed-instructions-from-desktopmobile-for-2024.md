@@ -1,7 +1,7 @@
 ---
 title: "\"Upload YouTube Shorts  Detailed Instructions From Desktop/Mobile for 2024\""
-date: 2024-06-05T12:34:58.005Z
-updated: 2024-06-06T12:34:58.005Z
+date: 2024-08-01T05:00:48.862Z
+updated: 2024-08-02T05:00:48.862Z
 tags:
   - ai video
   - ai youtube
@@ -24,12 +24,19 @@ thumbnail: https://thmb.techidaily.com/56e9a63f6cd0da6aa662fe6ddfb8ba418b2232ba0
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Quite recently, YouTube launched Shorts to compete with Tik Tok. At the time of this writing, the users in India have access to the fully functional version of the app. Although YouTube Shorts is available for both Android and iOS platforms, its functions are limited as the application is still in its Beta phase for the remaining part of the globe.
 
 With that said, the following sections explain the step-by-step process on **how to upload a short video on YouTube** Shorts both from your smartphone and a PC.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
 The fact is, if you are using a computer to upload short videos to YouTube, the process is identical to publishing your other, regular footage. However, there are a few guidelines that your clips must comply with so that the streaming platform could specifically identify them as YouTube Shorts. These norms include:
@@ -58,6 +65,9 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
@@ -76,18 +86,29 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
 #### Step 1: Select a Video to Upload
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
@@ -126,14 +147,24 @@ On the next window, use the **Music** and **Text** buttons from the bottom-left 
 
 On the **Add details** window, enter a name for the video along with the **#Shorts** tag in the **Create a title** field, tap **Select audience** to select the target audience, and tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -150,3 +181,64 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-social-media-perspective-dissecting-igtv-versus-youtubes-features/"><u>[New] 2024 Approved  A Social Media Perspective  Dissecting IGTV versus YouTube's Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-achieving-video-popularity-mastering-youtube-thumbnail-selection/"><u>[New] 2024 Approved  Achieving Video Popularity  Mastering YouTube Thumbnail Selection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-convert-with-confidence-best-apps-to-turn-spotify-into-youtube-channels/"><u>[New] 2024 Approved  Convert with Confidence  Best Apps to Turn Spotify Into YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-visibility-11-must-know-youtube-video-seo-tactics/"><u>[New] 2024 Approved  Enhance Visibility  11 Must-Know YouTube Video SEO Tactics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-comprehensive-guide-to-the-best-makeup-tutorials-on-youtube-for-2024/"><u>[New] A Comprehensive Guide to the Best Makeup Tutorials on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cashing-in-on-content-the-carminati-effect-ajay-for-2024/"><u>[New] Cashing In on Content  The Carminati Effect (AJay) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-create-captivating-yt-thumbnails-fast/"><u>[New] Create Captivating YT Thumbnails Fast!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-danger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube-for-2024/"><u>[New] Danger Lurking Online  Spotting the Falsehood of Fake Viewers on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-digital-riches-unleashed-measuring-your-success-on-youtubes-platform-for-2024/"><u>[New] Digital Riches Unleashed  Measuring Your Success on YouTube's Platform for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-dslr-or-mirrorless-the-ultimate-question-for-videographers-for-2024/"><u>[New] DSLR or Mirrorless? The Ultimate Question for Videographers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-earnings-channel-size-no-longer-a-challenge-for-2024/"><u>[New] Effortless Earnings  Channel Size No Longer a Challenge for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-valorant-videos-with-impressive-thumbnails-for-2024/"><u>[New] Elevating Your Valorant Videos with Impressive Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beware-the-risk-in-fake-followers-on-youtube/"><u>[New] In 2024, Beware  The Risk in Fake Followers on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-broadcasting-strategies-for-youtube-facebook-twitch-and-others/"><u>[New] In 2024, Broadcasting Strategies for YouTube, Facebook, Twitch, and Others</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-a-unique-online-presence-youtube-edition/"><u>[New] In 2024, Crafting a Unique Online Presence  YouTube Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-8-leading-youtube-growth-strategies/"><u>[New] In 2024, Explore 8 Leading Youtube Growth Strategies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-masterful-use-of-luts-in-obs-studio-for-professional-results/"><u>[New] In 2024, Masterful Use of LUTs in OBS Studio for Professional Results</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-optimize-your-watch-habits-the-ultimate-guide-for-constructing-youtube-saved-lists/"><u>[New] Optimize Your Watch Habits  The Ultimate Guide for Constructing YouTube Saved Lists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-the-power-of-your-youtube-channel-with-expert-editing-techniques/"><u>[New] Unleash the Power of Your YouTube Channel with Expert Editing Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-vimeo-vs-youtube-the-differentiators-analysis/"><u>[New] Vimeo V/S YouTube  The Differentiator's Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-accessing-your-curated-music-lists-on-youtube/"><u>[Updated] 2024 Approved  Accessing Your Curated Music Lists on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-asmr-audio-excellence-high-quality-mic-recommendations/"><u>[Updated] 2024 Approved  ASMR Audio Excellence  High-Quality Mic Recommendations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cooking-crusaders-youtube-stars-serving-up-deliciousness/"><u>[Updated] 2024 Approved  Cooking Crusaders  YouTube Stars Serving Up Deliciousness</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-the-financial-framework-of-youtubes-burgeoning-shorts-fund/"><u>[Updated] 2024 Approved  Exploring the Financial Framework of YouTube's Burgeoning Shorts Fund</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-behind-the-scenes-unveiling-the-best-9-camera-additions-for-mobile-films-for-2024/"><u>[Updated] Behind the Scenes  Unveiling the Best 9 Camera Additions for Mobile Films for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-brightening-up-your-youtube-pixels-for-2024/"><u>[Updated] Brightening Up Your YouTube Pixels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-first-steps-in-digital-content-top-10-easy-to-make-youtube-projects/"><u>[Updated] First Steps in Digital Content  Top 10 Easy-to-Make YouTube Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capturing-life-on-camera-mastering-the-art-of-vlogging/"><u>[Updated] In 2024, Capturing Life on Camera  Mastering the Art of Vlogging</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-the-art-of-visual-branding-with-professional-grade-fb-covers/"><u>[Updated] In 2024, The Art of Visual Branding with Professional-Grade FB Covers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-jest-jamboree-the-most-entertaining-youtubers-to-watch/"><u>[Updated] Jest Jamboree  The Most Entertaining YouTubers to Watch</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-make-a-lasting-impression-youtubes-anime-style-subscribe-buttons-in-filmora/"><u>[Updated] Make a Lasting Impression - YouTube's Anime-Style Subscribe Buttons in Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-your-youtube-live-video-thumbnail-game/"><u>[Updated] Mastering Your YouTube Live Video Thumbnail Game</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-must-know-facts-for-asmr-enthusiasts/"><u>[Updated] Must-Know Facts for ASMR Enthusiasts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-sharing-tactics-igtv-for-a-larger-fb-audience/"><u>[Updated] Sharing Tactics  IGTV for a Larger FB Audience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-tug-of-war-youtube-licensing-versus-cc-principles/"><u>[Updated] The Tug-of-War  Youtube Licensing Versus CC Principles</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-updated-windows-11-interface/"><u>2024 Approved  Exploring the Updated Windows 11 Interface</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-vlc-software-basics-for-macos/"><u>2024 Approved  Navigating VLC Software Basics for MacOS</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/2024-approved-top-4-hatsune-miku-voice-ai-generators-for-all-times/"><u>2024 Approved Top 4 Hatsune Miku Voice AI Generators for All Times</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-vivo-v29-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Vivo V29 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/beginners-guide-to-perfecting-gopro-footage/"><u>Beginner's Guide to Perfecting GoPro Footage</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-vivo-y78plus-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Vivo Y78+ Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cutting-edge-platforms-for-exceptional-broadcast/"><u>Cutting-Edge Platforms for Exceptional Broadcast</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-iphone-14-pro-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from iPhone 14 Pro Safe and Legal</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-elevate-your-videography-with-top-instagram-techniques/"><u>In 2024, Elevate Your Videography with Top Instagram Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-extract-translate-and-save-youtube-subtitles-for-free/"><u>In 2024, Extract, Translate & Save YouTube Subtitles for FREE!</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-free-online-webinar-conduct-with-youtube/"><u>In 2024, Free Online Webinar Conduct with YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-samsung-galaxy-m14-4g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Samsung Galaxy M14 4G Phone?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-clear-cut-strategy-for-image-border-management-on-canva/"><u>In 2024, The Clear-Cut Strategy for Image Border Management on Canva</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/innovative-fading-approaches-with-ableton/"><u>Innovative Fading Approaches with Ableton</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-virtualdub-alternatives-which-one-is-right-for-you-in-2024/"><u>New Virtualdub Alternatives Which One Is Right for You , In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/reliable-methods-to-elevate-your-youtube-presence-without-breaking-trust-for-2024/"><u>Reliable Methods to Elevate Your YouTube Presence Without Breaking Trust for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/seamless-transformation-from-youtube-to-engaging-personalized-gifs-for-2024/"><u>Seamless Transformation From YouTube to Engaging, Personalized GIFs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/seeking-consistent-income-through-youtube-for-2024/"><u>Seeking Consistent Income Through YouTube for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-vivo-v27e-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo V27e</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-srt-potential-mac-edition-tutorial-for-2024/"><u>Unlocking SRT Potential  Mac Edition Tutorial for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-the-ultimate-guide-to-preventing-phasing-issues-in-studio-monitoring/"><u>Updated In 2024, The Ultimate Guide to Preventing Phasing Issues in Studio Monitoring</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/your-portal-into-creation-easy-metaverse-personas/"><u>Your Portal Into Creation  Easy Metaverse Personas</u></a></li>
+</ul></div>

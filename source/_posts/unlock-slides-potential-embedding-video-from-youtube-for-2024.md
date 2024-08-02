@@ -1,7 +1,7 @@
 ---
 title: "\"Unlock Slides' Potential  Embedding Video From YouTube for 2024\""
-date: 2024-06-05T12:46:09.786Z
-updated: 2024-06-06T12:46:09.786Z
+date: 2024-08-01T05:19:45.678Z
+updated: 2024-08-02T05:19:45.678Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,9 @@ Google Slide presentation is a powerful tool for creators to keep their audience
 
 More so, it is the best way to provide a break for both the audience and the creator. You can break Google Slide presentations with videos to offer some break. Viewers and the presenter get a breather in the process. The presenter can take a short break from speaking while the video plays. Let's now dive into **how to embed a YouTube video in Google Slides**.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
 
 #### In this article
@@ -56,6 +59,9 @@ A picture is worth a thousand words. There is a way that an added video will hel
 
 With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add a YouTube video to Google Slide
 
 Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
@@ -68,6 +74,9 @@ Step 1\. First, go to the slide where you want to embed your video.
 
 Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" option.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
 
 Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
@@ -84,6 +93,9 @@ You can engage this method if you want to include the entire video.
 
 Step 1\. Get the URL of the specific YouTube video that you want to use.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
 
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
@@ -98,6 +110,9 @@ Step 6\. A new window will open automatically. Choose the "By URL" tab.
 
 Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
 
 Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
@@ -181,6 +196,9 @@ More so, it is the best way to provide a break for both the audience and the cre
 
 03 [How to choose the right video for your Slides?](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Why should we add a video to Google Slides?
 
 There is a great impact of adding video to Google Slides.
@@ -215,6 +233,9 @@ Step 3\. It would be best if you now viewed the "YouTube" search bar to type in 
 
 Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
 
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
@@ -225,6 +246,9 @@ You can engage this method if you want to include the entire video.
 
 Step 1\. Get the URL of the specific YouTube video that you want to use.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
 
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
@@ -245,6 +269,13 @@ Step 8\. Wait for the video file to load and press the "Select" option. The vide
 
 Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## How to choose the right video for your Slides?
 
 Not all videos will make an impact on your Google Slide. You need to use the best shot that adds value to your presentation. These guidelines will help you to settle on the best video.
@@ -322,6 +353,9 @@ More so, it is the best way to provide a break for both the audience and the cre
 
 03 [How to choose the right video for your Slides?](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## Why should we add a video to Google Slides?
 
 There is a great impact of adding video to Google Slides.
@@ -338,6 +372,9 @@ A picture is worth a thousand words. There is a way that an added video will hel
 
 With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add a YouTube video to Google Slide
 
 Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
@@ -350,12 +387,18 @@ Step 1\. First, go to the slide where you want to embed your video.
 
 Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
 
 Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
 
 Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
 
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
@@ -366,6 +409,9 @@ You can engage this method if you want to include the entire video.
 
 Step 1\. Get the URL of the specific YouTube video that you want to use.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
 
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
@@ -380,6 +426,10 @@ Step 6\. A new window will open automatically. Choose the "By URL" tab.
 
 Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
 
 Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
@@ -441,6 +491,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 ● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
@@ -463,6 +516,10 @@ More so, it is the best way to provide a break for both the audience and the cre
 
 03 [How to choose the right video for your Slides?](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Why should we add a video to Google Slides?
 
 There is a great impact of adding video to Google Slides.
@@ -479,6 +536,9 @@ A picture is worth a thousand words. There is a way that an added video will hel
 
 With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add a YouTube video to Google Slide
 
 Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
@@ -521,6 +581,9 @@ Step 6\. A new window will open automatically. Choose the "By URL" tab.
 
 Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
 
 Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
@@ -582,6 +645,14 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 ● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
@@ -608,6 +679,10 @@ That said, it is a problem you want to solve. Here are 7 FAQs about YouTube Shor
 
 ![youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/youtube-shorts-thumbnail-not-showing.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Q1\. Can I Customize YouTube Shorts Thumbnails?
 
 Yes, you can. YouTube did allow short-form video creators to upload custom thumbnails for their Shorts. However, they aren't that optimized. For instance, some people may not see them on the Shorts shelf. Also, if you share a link to the video somewhere else, the old video thumbnail may show instead of the new one.
@@ -641,6 +716,11 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -655,6 +735,9 @@ Attracting viewers on Shorts is the same as attracting viewers on the main YouTu
 
 Here are some pointers. Your title should be at most 40 characters. Also, it should be concise and irresistible. And forget about SEO since no one is searching for YouTube Shorts anyway. People consume what they see in their feeds. So instead, the title should be "snappy." It should intrigue, entertain, or enlighten the viewers. That will net you some views for your Shorts content.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Q5\. How To Get More Views on YouTube Shorts?
 
 Forgoing the intro is the way to go. An intro will just prolong the video when people are in Shorts to find bite-sized videos. So jump right into the video content. You can also start the video with a still frame instead. Using hashtags, captions, and text effects are also recommended. And interacting with your audience through comments and pinned comments will keep them coming back to your Shorts channel.
@@ -665,6 +748,9 @@ Of course, ensuring that the video quality is high is key to getting more views.
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
@@ -679,6 +765,9 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
@@ -687,6 +776,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Open a Shorts video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
 * Pause the video.
@@ -695,16 +787,27 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Click "Library" on the left panel.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
@@ -721,8 +824,14 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -745,10 +854,16 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
@@ -767,6 +882,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -775,6 +893,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Like the Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
 * Tap "Library"
@@ -783,12 +904,18 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Scroll down to find "Liked Videos." Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -809,3 +936,63 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-barefoot-tape-observation-and-supplementary-selections/"><u>[New] 2024 Approved  Barefoot Tape Observation and Supplementary Selections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-behind-the-scenes-top-tactics-for-consistent-vlogging/"><u>[New] 2024 Approved  Behind the Scenes  Top Tactics for Consistent Vlogging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enjoy-uninterrupted-viewing-top-20-youtube-download-apps/"><u>[New] 2024 Approved  Enjoy Uninterrupted Viewing  Top 20 YouTube Download Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-excellence-in-editing-selecting-the-right-software/"><u>[New] 2024 Approved  Excellence in Editing  Selecting the Right Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-amplify-content-reach-essential-strategies-to-skyrocket-views-for-2024/"><u>[New] Amplify Content Reach  Essential Strategies to Skyrocket Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boost-length-on-youtube-entry-filming-for-2024/"><u>[New] Boost Length on YouTube Entry Filming for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-easy-tutorial-uploading-youtube-shorts-video-via-computer-and-phone-for-2024/"><u>[New] Easy Tutorial  Uploading YouTube Shorts Video via Computer & Phone for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elite-women-gaming-leaders-top-10-on-yt-for-2024/"><u>[New] Elite Women Gaming Leaders  Top 10 On YT for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-steps-for-starting-a-youtube-channel-for-2024/"><u>[New] Essential Steps for Starting a YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-tips-for-incorporating-dynamic-cards-in-youtube-videos-for-2024/"><u>[New] Essential Tips for Incorporating Dynamic Cards in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-duality-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos/"><u>[New] In 2024, Duality of Delivery  Engaging Audiences Through Alternative Perspectives for Reaction Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-efficiently-edit-your-youtube-videos-using-sony-vegas/"><u>[New] In 2024, Efficiently Edit Your YouTube Videos Using Sony Vegas</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-voice-editing-software-for-video-content-makers/"><u>[New] In 2024, Expert Voice Editing Software for Video Content Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-make-content-stand-out-the-ultimate-guide-to-youtube-responses/"><u>[New] Make Content Stand Out  The Ultimate Guide to YouTube Responses</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-next-gen-ai-picture-perfection-software/"><u>[New] Next-Gen AI Picture Perfection Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-creativity-mastering-the-art-of-360-degree-videography-for-youtube/"><u>[New] Unleashing Creativity  Mastering the Art of 360-Degree Videography for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-video-affiliates-a-roadmap-to-financial-growth/"><u>[New] Video Affiliates  A Roadmap to Financial Growth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-voyage-to-greatness-youtubes-best-travel-vids/"><u>[New] Voyage to Greatness  YouTube's Best Travel Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10-free-youtube-playlist-downloaders-onlinepcandroidios2-for-2024/"><u>[Updated] 10 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]2 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-enhancing-your-youtube-content-post-uploading/"><u>[Updated] 2024 Approved  A Step-by-Step Guide to Enhancing Your YouTube Content Post-Uploading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-12-youtube-gaming-intro-makers-free-and-paid/"><u>[Updated] 2024 Approved  Best 12 YouTube Gaming Intro Makers - Free and Paid</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-5-gaming-earbuds-for-video-creators/"><u>[Updated] 2024 Approved  Essential 5 Gaming Earbuds for Video Creators</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-25-essential-hashtags-for-increased-instagram-engagement/"><u>[Updated] 25 Essential Hashtags for Increased Instagram Engagement</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-advanced-strategies-for-quiet-capturing/"><u>[Updated] Advanced Strategies for Quiet Capturing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-motivational-life-vlogs-for-fan-engagement-for-2024/"><u>[Updated] Crafting Motivational Life Vlogs for Fan Engagement for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-easy-youtube-introduction-design-tips-and-tricks-for-2024/"><u>[Updated] Easy YouTube Introduction Design  Tips and Tricks for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-essential-guide-to-8-premium-free-software-apps-windowsmac-for-2024/"><u>[Updated] Essential Guide to 8 Premium Free Software Apps (Windows/Mac) for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-make-every-snap-count-top-15-tips-and-tricks-for-2024/"><u>[Updated] How to Make Every Snap Count  Top 15 Tips & Tricks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-comprehensive-guide-to-using-youtubes-cc-licensing/"><u>[Updated] In 2024, A Comprehensive Guide to Using YouTube's CC Licensing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-success-on-youtube-standard-studio-or-beta/"><u>[Updated] In 2024, Crafting Success on YouTube  Standard Studio or Beta</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-freefire-presence-with-top-tips-and-tricks/"><u>[Updated] In 2024, Elevate Your FreeFire Presence with Top Tips and Tricks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-end-game-for-youtube-content-pros-secrets-and-templates/"><u>[Updated] In 2024, End Game for YouTube Content  Pros' Secrets & Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-invaluable-list-of-costless-photographic-and-moving-images/"><u>[Updated] Invaluable List of Costless Photographic and Moving Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-minute-by-minute-fortnite-tile-methods/"><u>[Updated] Minute-by-Minute Fortnite Tile Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mirrorless-vs-dslr-video-mastery-in-focus/"><u>[Updated] Mirrorless vs DSLR  Video Mastery in Focus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pioneering-resources-leading-free-video-openers-guide/"><u>[Updated] Pioneering Resources  Leading Free Video Openers Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ranking-top-10-budget-friendly-video-editing-apps/"><u>[Updated] Ranking Top 10 Budget-Friendly Video Editing Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-securing-top-viewership-unveiling-the-hidden-power-of-youtubes-featured-channels/"><u>[Updated] Securing Top Viewership  Unveiling the Hidden Power of YouTube’s Featured Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-solutions-for-missing-shorts-thumbnails-on-youtube/"><u>[Updated] Solutions for Missing Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-strategies-for-effective-youtube-short-creation/"><u>[Updated] Top Strategies for Effective YouTube Short Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-iphones-loop-functionality/"><u>[Updated] Unlocking iPhone's Loop Functionality</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-splits-a-filmmakers-creative-playbook/"><u>[Updated] YouTube Splits  A Filmmaker’s Creative Playbook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-apple-iphone-14-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone 14 When Its Locked Within Seconds</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-oneplus-open-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-mass-download-tiktok-videos-in-2024/"><u>How To Mass Download TikTok Videos, In 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-ranking-the-top-5-video-frame-capturers/"><u>In 2024, Ranking the Top 5 Video Frame Capturers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-thumbnail-crafting-simplified-macos-edition/"><u>In 2024, YouTube Thumbnail Crafting Simplified (macOS Edition)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/iphone-se-2020-activation-lock-primer-by-drfone-ios-unlock-ios-unlock/"><u>iPhone SE (2020) activation lock primer</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/maximize-video-clarity-expert-recommended-enhancement-tools-for-2024/"><u>Maximize Video Clarity Expert-Recommended Enhancement Tools for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-transforming-videos-into-immersive-experiences-top-vr-converters/"><u>New 2024 Approved Transforming Videos Into Immersive Experiences Top VR Converters</u></a></li>
+<li><a href="https://driver-install.techidaily.com/nvidia-delivers-high-definition-sound-to-win7-users/"><u>NVIDIA Delivers High-Definition Sound to Win7 Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/refine-your-beauty-videos-with-youtubes-palette-tweaking-for-2024/"><u>Refine Your Beauty Videos with Youtube's Palette Tweaking for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/top-30-anime-inspired-videos-reshaping-online-culture/"><u>Top 30 Anime-Inspired Videos Reshaping Online Culture</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/what-is-haul-video-and-how-to-create-a-catchy-try-on-haul-video-for-2024/"><u>What Is Haul Video and How to Create a Catchy Try on Haul Video for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme GT Neo 5? | Dr.fone</u></a></li>
+</ul></div>

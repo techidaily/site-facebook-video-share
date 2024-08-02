@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Deleting YouTube Comments for 2024"
-date: 2024-06-05T13:47:35.833Z
-updated: 2024-06-06T13:47:35.833Z
+date: 2024-08-01T07:03:14.508Z
+updated: 2024-08-02T07:03:14.508Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,9 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -69,6 +72,9 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -110,6 +116,9 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -118,14 +127,37 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -142,3 +174,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-block-spontaneous-youtube-video-triggers/"><u>[New] 2024 Approved  Block Spontaneous YouTube Video Triggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-5-gaming-earbuds-for-video-creators-for-2024/"><u>[New] Essential 5 Gaming Earbuds for Video Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>[New] In 2024, Channel Milestone Hurdle – Cross the 10K View Threshold Fast</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-proven-iphone-tips-effortless-video-length-and-size-control/"><u>[New] In 2024, Proven iPhone Tips  Effortless Video Length & Size Control</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-insights-into-the-algorithm-choosing-noteworthy-video-comments/"><u>[New] Insights Into the Algorithm Choosing Noteworthy Video Comments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-live-stream-audience-analysis-solutions/"><u>[New] Live Stream Audience Analysis Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-turning-your-youtube-shorts-into-earnings-what-you-need-and-how-much/"><u>[New] Turning Your YouTube Shorts Into Earnings  What You Need & How Much?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-bite-sized-video-specialist/"><u>[Updated] 2024 Approved  Bite-Sized Video Specialist</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-expert-video-grabbing-extras-fb-and-firefox-edition/"><u>[Updated] 2024 Approved  Expert Video Grabbing Extras  FB & Firefox Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-accolades-across-platforms-for-video-creators-for-2024/"><u>[Updated] Accolades Across Platforms for Video Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-balancing-content-creation-and-employment-for-2024/"><u>[Updated] Balancing Content Creation and Employment for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-classic-cinema-revisited-step-by-step-video-guide-for-2024/"><u>[Updated] Classic Cinema Revisited  Step-by-Step Video Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-diversify-referrals-tactics-for-effective-youtube-backlinks-for-2024/"><u>[Updated] Diversify Referrals  Tactics for Effective YouTube Backlinks for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-apex-1-written-by-assistant/"><u>[Updated] In 2024, Apex 1 Written by Assistant</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-arcade-avenue-a-million-paths-in-play/"><u>[Updated] In 2024, Arcade Avenue  A Million Paths in Play</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-creating-hilarious-reactions-mastering-youtube-tricks-3-methods/"><u>[Updated] In 2024, Creating Hilarious Reactions  Mastering YouTube Tricks (3 Methods)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-vlogs-optimizing-title-description-and-tags/"><u>[Updated] In 2024, Elevate Your Vlogs  Optimizing Title, Description & Tags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-notebooks-select-the-best-for-professional-edits/"><u>[Updated] Premium Notebooks  Select the Best for Professional Edits</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-pro-free-mac-screen-logger-for-2024/"><u>[Updated] Pro-Free Mac Screen Logger for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionary-tools-for-next-gen-streaming-experience/"><u>[Updated] Revolutionary Tools for Next-Gen Streaming Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-superior-streaming-technologies-for-youtube-starters/"><u>[Updated] Superior Streaming Technologies for YouTube Starters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-quintessential-guide-to-secret-story-viewing/"><u>[Updated] The Quintessential Guide to Secret Story Viewing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-meizu-21-pro-device-sim-by-drfone-android/"><u>Easily Unlock Your Meizu 21 Pro Device SIM</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enhance-your-movie-magic-speed-modifications-on-netflix/"><u>Enhance Your Movie Magic - Speed Modifications on Netflix</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-oppo-reno-10-pro-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Oppo Reno 10 Pro 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-samsung-galaxy-a15-4g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Samsung Galaxy A15 4G Phone that is Locked?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-vivo-g2-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Vivo G2 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-nokia-c32-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Nokia C32 Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/personalized-melodies-made-easy-building-a-youtube-music-collection-on-webmobile-for-2024/"><u>Personalized Melodies Made Easy  Building a YouTube Music Collection on Web/Mobile for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-vivo-x100-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Vivo X100 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prowess-in-phrasing-best-tags-for-gamer-videos-for-2024/"><u>Prowess in Phrasing  Best Tags for Gamer Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/richest-rewards-for-creators-for-2024/"><u>Richest Rewards for Creators for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/saving-screen-shots-in-windows-systems-for-2024/"><u>Saving Screen Shots in Windows Systems for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-art-of-filmmaking-demystified-on-youtube-for-2024/"><u>The Art of Filmmaking Demystified on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/thumbnail-enhancement-strategies-for-higher-clickthrough-rates-on-youtube-for-2024/"><u>Thumbnail Enhancement Strategies for Higher Clickthrough Rates on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleashing-video-potential-the-imovie-blueprint-for-youtube-editors-for-2024/"><u>Unleashing Video Potential  The iMovie Blueprint for YouTube Editors for 2024</u></a></li>
+</ul></div>

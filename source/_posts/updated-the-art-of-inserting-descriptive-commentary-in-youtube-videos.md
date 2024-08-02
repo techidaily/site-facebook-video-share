@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Inserting Descriptive Commentary in YouTube Videos"
-date: 2024-06-05T12:49:50.210Z
-updated: 2024-06-06T12:49:50.210Z
+date: 2024-08-01T05:26:00.865Z
+updated: 2024-08-02T05:26:00.865Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/a362218194355c666b0860326aa79761dfe27d251
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -45,6 +48,9 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -63,10 +69,16 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -80,6 +92,9 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -118,6 +133,9 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -134,3 +152,50 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/3dr-a-compreran-users-journey-through-tech-aloneness/"><u>'3DR'  A Compreran User's Journey Through Tech Aloneness</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-adding-visual-time-indicators-to-your-youtube-links/"><u>[New] 2024 Approved  Adding Visual Time Indicators to Your YouTube Links</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engage-entertain-enlighten-crafting-compelling-live-thumbnails/"><u>[New] 2024 Approved  Engage, Entertain, Enlighten  Crafting Compelling Live Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-visibility-top-9-thumbnail-design-tools-for-creators/"><u>[New] 2024 Approved  Enhance Visibility  Top 9 Thumbnail Design Tools for Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-vloggers-guide-to-camera-lenses-wondershare-filmora-for-2024/"><u>[New] A Vlogger's Guide To Camera Lenses | Wondershare Filmora for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-best-practices-selecting-among-top-9-free-logo-designers-for-2024/"><u>[New] Best Practices  Selecting Among Top 9 Free Logo Designers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-breakdown-of-steps-perfecting-idevice-video-features-on-youtube-for-2024/"><u>[New] Breakdown of Steps  Perfecting iDevice Video Features on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-9-affordable-online-editors-for-youtube-for-2024/"><u>[New] Discover 9 Affordable Online Editors for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-top-10-flv-to-youtube-conversion-tools-for-2024/"><u>[New] Discover Top 10 Flv-to-YouTube Conversion Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effective-team-videos-boosting-channelnode-growth-rate-for-2024/"><u>[New] Effective Team Videos  Boosting Channelnode Growth Rate for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-android-and-ios-the-best-sound-distortion-tools/"><u>[New] In 2024, Android & iOS  The Best Sound Distortion Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-10-amazing-world-wanderlust-channels/"><u>[New] In 2024, Discover 10 Amazing World Wanderlust Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-diversify-earnings-multiplying-revenue-with-mobile-video-content/"><u>[New] In 2024, Diversify Earnings  Multiplying Revenue with Mobile Video Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-video-presentation-with-these-7-free-makers/"><u>[New] In 2024, Elevate Your Video Presentation with These 7 Free Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetary-gains-mr-beast-in-focus/"><u>[New] Monetary Gains  Mr. Beast in Focus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-beginners-roadmap-to-free-youtube-intro-videos/"><u>[New] The Beginner's Roadmap to Free YouTube Intro Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-creative-potential-access-free-sfx/"><u>[New] Unlock Creative Potential, Access Free SFX</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-basic-to-breakthrough-content-crafting-the-top-10-simplest-youtube-projects/"><u>[Updated] 2024 Approved  Basic to Breakthrough Content  Crafting the Top 10 Simplest YouTube Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-choosing-an-original-channel-moniker-a-guide-for-filmmakers-with-filmora/"><u>[Updated] 2024 Approved  Choosing an Original Channel Moniker  A Guide for Filmmakers with Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-daily-vlogging-ideas-what-to-talk-about-while-vlogging/"><u>[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-edu-topic-10-selective-learning-channels-online/"><u>[Updated] 2024 Approved  Edu-Topic 10  Selective Learning Channels Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-content-game-studio-aptitude-essentials/"><u>[Updated] 2024 Approved  Elevate Your Content Game  Studio Aptitude Essentials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-mobile-media-creation-tools-iphone-vs-android-review/"><u>[Updated] 2024 Approved  Essential Mobile Media Creation Tools  IPhone vs Android Review</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-break-bot-patterns-enhance-organic-video-reach-for-2024/"><u>[Updated] Break Bot Patterns, Enhance Organic Video Reach for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficiently-edit-your-youtube-videos-using-sony-vegas-for-2024/"><u>[Updated] Efficiently Edit Your YouTube Videos Using Sony Vegas for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-evaluating-dailymotion-vs-youtube-profitability-for-2024/"><u>[Updated] Evaluating Dailymotion vs YouTube Profitability for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-brand-your-youtube-channel-to-get-more-subscribers/"><u>[Updated] How to Brand Your YouTube Channel to Get More Subscribers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-video-quality-utilizing-youtube-studios-features/"><u>[Updated] In 2024, Boosting Video Quality  Utilizing YouTube Studio's Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-discover-efficient-methods-for-compiling-songs-on-youtube/"><u>[Updated] In 2024, Discover Efficient Methods for Compiling Songs on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-video-excellence-text-integration-basics/"><u>[Updated] In 2024, Instagram Video Excellence  Text Integration Basics</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-one-frame-at-a-time-how-to-extract-images-from-windows-10-movie-files/"><u>[Updated] One Frame at a Time  How To Extract Images From Windows 10 Movie Files</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-unveiling-virtual-excellence-top-5-upcoming-playstation-vr-titles/"><u>[Updated] Unveiling Virtual Excellence  Top 5 Upcoming PlayStation VR Titles</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-f15-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy F15 5G</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-ultimate-2023-tweet-video-roundup/"><u>2024 Approved  Ultimate 2023 Tweet Video Roundup</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unpacking-the-essentials-mastering-adobes-storage-solutions-and-their-rival-alternatives/"><u>2024 Approved  Unpacking The Essentials  Mastering Adobe's Storage Solutions & Their Rival Alternatives</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-nubia-red-magic-9-pro-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Nubia Red Magic 9 Pro Phone Screen?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-gionee-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Gionee Through Google Earth?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-anonymous-live-on-instagram-the-sneaky-techniques/"><u>In 2024, Anonymous Live on Instagram  The Sneaky Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-audio-customization-on-sony-playstation-devices/"><u>In 2024, Explore Audio Customization on Sony PlayStation Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor 70 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-mastering-ipad-for-time-lapse-cinematography/"><u>In 2024, Mastering iPad for Time-Lapse Cinematography</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-surviving-splashes-top-7-action-cam-selection/"><u>In 2024, Surviving Splashes  Top 7 Action Cam Selection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-eco-film-hub-dive-into-green-screen-creativity/"><u>In 2024, Youtube’s Eco-Film Hub  Dive Into Green Screen Creativity</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Nokia C02? | Dr.fone</u></a></li>
+</ul></div>

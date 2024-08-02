@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Leveraging Videos with Text  A Cost-Free Approach\""
-date: 2024-06-05T16:06:03.579Z
-updated: 2024-06-06T16:06:03.579Z
+date: 2024-08-01T10:57:38.531Z
+updated: 2024-08-02T10:57:38.531Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/c2522eefb8fbc96fa570f56849cfdf92d72e221bd
 
 # How to Add Video to Text
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -28,6 +31,9 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -44,6 +50,11 @@ The next step you will have to take is to create the cut-out of the text within 
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
@@ -54,10 +65,16 @@ You can then fine-tune the video playback settings from the Playback tab. Previe
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
@@ -80,6 +97,9 @@ There are so many different ways to create visually striking content, and adding
 
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -96,3 +116,51 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-high-quality-audio-collections-a-youtube-creators-guidebook/"><u>[New] 2024 Approved  High-Quality Audio Collections  A YouTube Creator's Guidebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mastering-googles-audio-to-text-translations-a-comprehensible-guide/"><u>[New] 2024 Approved  Mastering Google's Audio to Text Translations  A Comprehensible Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-unlocking-the-full-power-of-tiktok-with-apples-voice-commands-integration/"><u>[New] 2024 Approved  Unlocking the Full Power of TikTok with Apple's Voice Commands Integration</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-bridging-the-budget-barrier-channel-size-doesnt-matter-for-2024/"><u>[New] Bridging the Budget Barrier  Channel Size Doesn't Matter for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-budding-buyers-guide-monetization-platforms-for-novice-channels-for-2024/"><u>[New] Budding Buyers Guide  Monetization Platforms for Novice Channels for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-soft-endings-on-soundscapes-with-audacity/"><u>[New] Crafting Soft Endings on Soundscapes with Audacity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-emoji-tips-for-yt-comments-a-quick-guide-for-2024/"><u>[New] Emoji Tips for YT Comments  A Quick Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-explore-8-leading-free-srt-translators-online-for-2024/"><u>[New] Explore 8 Leading Free SRT Translators Online for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-alternative-top-10-flv-to-youtube-converter-apps/"><u>[New] In 2024, Best Alternative  Top 10 FLV to YouTube Converter Apps</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-step-by-step-on-hosting-webinars-a-beginners-guide-to-zoom/"><u>[New] In 2024, Step-by-Step on Hosting Webinars  A Beginner's Guide to Zoom</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-learn-the-process-of-capturing-your-watched-youtube-content-without-spending/"><u>[New] Learn the Process of Capturing Your Watched YouTube Content Without Spending</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-thorough-investigation-hero4-black-features-for-2024/"><u>[New] Thorough Investigation  Hero4 Black Features for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tracing-view-count-to-cash-flow-on-youtube-platform/"><u>[New] Tracing View Count to Cash Flow on YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-visual-narratives-at-your-fingertips-explore-the-10-best-banner-designers/"><u>[New] Visual Narratives at Your Fingertips  Explore the 10 Best Banner Designers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-converting-in-meeting-google-meet-to-youtube-broadcasts-your-guide/"><u>[Updated] 2024 Approved  Converting In-Meeting Google Meet to YouTube Broadcasts  Your Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-strategies-for-flawless-custom-shorts-coverage/"><u>[Updated] 2024 Approved  Cutting-Edge Strategies for Flawless Custom Shorts Coverage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-access-your-favorites-anytime-the-leading-6-free-video-downloaders-for-2024/"><u>[Updated] Access Your Favorites Anytime  The Leading 6 Free Video Downloaders for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-artful-alterations-crafting-distorted-images-to-dazzle/"><u>[Updated] Artful Alterations  Crafting Distorted Images to Dazzle</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-blitz-broadcasting-channel-your-playlist-swiftly-for-2024/"><u>[Updated] Blitz Broadcasting  Channel Your Playlist Swiftly for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-captivating-thumbnails-a-comprehensive-guide-for-youtube-creators-for-2024/"><u>[Updated] Crafting Captivating Thumbnails  A Comprehensive Guide for YouTube Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-how-youtube-picks-most-engaging-comments-for-2024/"><u>[Updated] Exploring How YouTube Picks Most Engaging Comments for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-fortune-awaits-in-marketing-unveil-the-full-set-of-our-50-free-youtube-ads/"><u>[Updated] Fortune Awaits in Marketing! Unveil the Full Set of Our 50 Free YouTube Ads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-framecraft-videocutter/"><u>[Updated] FrameCraft VideoCutter</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ignite-your-creativity-making-dynamic-splitscreen-videos/"><u>[Updated] Ignite Your Creativity  Making Dynamic Splitscreen Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-chuckle-filled-chapters-best-comedy-video-plans-in-a-nutshell/"><u>[Updated] In 2024, Chuckle-Filled Chapters  Best Comedy Video Plans in a Nutshell</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-content-creators-den/"><u>[Updated] In 2024, Content Creator's Den</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-youtubes-regular-income-mechanism/"><u>[Updated] In 2024, Exploring YouTube's Regular Income Mechanism</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pinnacle-story-planning-website/"><u>[Updated] Pinnacle Story Planning Website</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-three-trustworthy-ways-to-extract-audio-from-youtube-videos/"><u>[Updated] Three Trustworthy Ways to Extract Audio From YouTube Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-zippyzoom-echoframe-capture-for-2024/"><u>[Updated] ZippyZoom EchoFrame Capture for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-boosting-or-slowing-down-the-netflix-playback-rate-guide/"><u>2024 Approved  Boosting or Slowing Down  The Netflix Playback Rate Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-constructing-an-inviting-subscribe-link-for-youtube-enthusiasts/"><u>2024 Approved  Constructing an Inviting Subscribe Link for YouTube Enthusiasts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-htc-u23-pro-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On HTC U23 Pro</u></a></li>
+<li><a href="https://extra-information.techidaily.com/blending-bits-volume-manipulation-mastery-with-reaper-for-2024/"><u>Blending Bits  Volume Manipulation Mastery with Reaper for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oppo-a2-device-sim-by-drfone-android/"><u>Easily Unlock Your Oppo A2 Device SIM</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/elevate-your-channel-hit-the-10000-view-mark-fast-in-2024/"><u>Elevate Your Channel  Hit the 10,000 View Mark Fast, In 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-6-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 6 Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-new-design-dimensions-integrating-typesetting-into-ae/"><u>In 2024, Exploring New Design Dimensions  Integrating Typesetting Into AE</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-xiaomi-civi-3-disney-100th-anniversary-edition-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Xiaomi Civi 3 Disney 100th Anniversary Edition Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-moviemaster-for-macos/"><u>New 2024 Approved MovieMaster for macOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-your-youtube-videos-after-publishing-for-2024/"><u>Perfect Your YouTube Videos After Publishing for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-14-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from 14.</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-art-and-science-of-writing-smart-slug-lines-for-2024/"><u>The Art and Science of Writing Smart Slug Lines for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-for-filmmakers-revolutionizing-visual-storytelling-for-2024/"><u>Youtube for Filmmakers  Revolutionizing Visual Storytelling for 2024</u></a></li>
+</ul></div>
