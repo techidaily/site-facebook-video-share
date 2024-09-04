@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Viewers' Staying Power  Top 6 Strategies for YouTube Success\""
-date: 2024-08-01T11:48:27.829Z
-updated: 2024-08-02T11:48:27.829Z
+date: 2024-09-03T20:12:01.396Z
+updated: 2024-09-04T20:12:01.396Z
 tags:
   - ai video
   - ai youtube
@@ -34,25 +34,16 @@ Audience retention is one of your most important stats on YouTube. It is even mo
 * [Part 3: What is a Good Audience Retention Rate on YouTube?](#part3)
 * [Part 4: 6 Ways to Increase YouTube Audience Retention](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What is Audience Retention?
 
 To put it in simple terms, YouTube audience retention is about how much of each video your viewers watch. It's usually expressed as a percentage, so if your viewer gets half way through, they will have a retention of 50 per cent.
 
 For YouTube analytics, audience retention is taken as a mean of the retention figures for each of your viewers. For example, if you post a ten-minute video and half your viewers get to the five-minute mark, that's a retention of 50 per cent. If the other half watch it right to the end, that's a retention of 100 per cent. The mean of these two figures is 75 per cent, and that's what YouTube will use as your audience retention figure.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
 This retention rate affects how highly your video is ranked on YouTube, with videos boasting higher audience retention rates appearing higher in the search results than those which do not. This is because both YouTube and Google are highly focussed on customer satisfaction, and a long watch time means a very happy customer was watching that video. For this reason, it's well worth considering how to increase YouTube audience retention as it demonstrates that you're making great content as well as helping you get more viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 2: How to See Your Audience Retention Report in YouTube?
 
 YouTube will produce reports to help you keep track of your audience retention. There are two types of audience retention reports; absolute and relative. Absolute allows you to view a graph of your video's retention and see when people might be clicking away, or if they are skipping to later parts of your video. If you lose a lot of viewers in the first 15 seconds of your videos then that is a clear indication that your content is not what the viewers who find your videos really want. The relative report is where your video is compared to the average retention of similar videos.
@@ -64,7 +55,16 @@ To see an audience retention report log into your YouTube account and go to your
 ![](https://images.wondershare.com/filmora/article-images/audience-retention.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3: What is a Good Audience Retention Rate on YouTube?
 
@@ -73,7 +73,10 @@ When you're considering how to increase YouTube audience retention, it can be go
 According to the YouTube community, a good goal to aim for is around 50 per cent, but as there is a lot which can affect your retention rate, that number may be different for you. Low view numbers sometimes get higher retention rates because it's mainly subscribers watching, whereas channels with millions of views may suffer due to more people abandoning. Rather than setting yourself a golden number, focus instead on increasing your retention rate from wherever it is now, and celebrate your own success instead of measuring yourself against others.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: 6 Ways to Increase YouTube Audience Retention
 
@@ -110,10 +113,19 @@ Content is the king. It is necessary to use a powerful video editor to help you 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

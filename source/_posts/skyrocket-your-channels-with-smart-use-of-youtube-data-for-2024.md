@@ -1,7 +1,7 @@
 ---
 title: "Skyrocket Your Channels with Smart Use of YouTube Data for 2024"
-date: 2024-08-01T11:45:39.522Z
-updated: 2024-08-02T11:45:39.522Z
+date: 2024-09-03T20:12:04.559Z
+updated: 2024-09-04T20:12:04.559Z
 tags:
   - ai video
   - ai youtube
@@ -18,13 +18,6 @@ thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a
 
 # How to Use YouTube Analytics to Grow Your Channel?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,9 +32,6 @@ YouTube data is valuable because it can show you why you aren’t getting more s
 
 In this article, I’m going to show you how to use YouTube Analytics to gain knowledge, take action, and grow your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## **YouTube Analytics:**
 
 1. [Overview](#overview)
@@ -94,9 +84,6 @@ By default, the dashboard will show you the stats from the last 28 days, but you
 
  If you only want to focus on the performance of your channel on a specific region, you can customize that as well:
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![data-of-specific-region](https://images.wondershare.com/filmora/data-of-specific-region.jpg)  
   
 Note: You will be able to change the time frame and region for all the data within YouTube Analytics.
@@ -105,18 +92,12 @@ Note: You will be able to change the time frame and region for all the data with
 
 The Overview dashboard highlights your Top 10 videos. Right away you can see the Watch Time, Views, and Estimated Revenue of those high performing videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![top-performing-videos-in-overview](https://images.wondershare.com/filmora/top-performing-videos-in-overview.jpg)  
   
 #### **Get Insights On Your Audience In Overview**
 
 In Overview you can see where the majority of your audience is from, what gender they are, how they are discovering your videos in Traffic Source, and where they are watching your video in Playback Locations:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![your-audience-in-overview](https://images.wondershare.com/filmora/your-audience-in-overview.jpg)  
   
 #### **How to Use the Overview Dashboard**
@@ -153,9 +134,6 @@ If you want to find out how many people have viewed your videos from a mobile de
 
  If you notice that you are getting a lot of views from the US, but also notice that people are about to go to sleep and the trend shows that it drops at that point in the past 24 hours, you can decide whether to schedule the post for the next morning or you can see if a boost at this point can keep the audience awake.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![real-time-data](https://images.wondershare.com/filmora/real-time-data.jpg)  
   
 #### **How to Use the Realtime Dashboard**
@@ -176,16 +154,10 @@ There are 3 ways to change the timeline:
 
 1. Dropdown menu
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![revenue-drop-down-menu](https://images.wondershare.com/filmora/revenue-drop-down-menu.jpg)  
   
 1. Calendar
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![revenue-calendar](https://images.wondershare.com/filmora/revenue-calendar.jpg)  
   
 1. Slide Bar
@@ -194,9 +166,6 @@ There are 3 ways to change the timeline:
   
 You can also change how you view your data, whether Daily, Weekly, Monthly, etc. This way you can see exactly how much you made each day, week, or month, and determine if you can correlate a particular dip or spike to an event that occurred.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![slide-bar-daily-view](https://images.wondershare.com/filmora/slide-bar-daily-view.jpg)  
   
 #### **Identify Your Highest Earning Videos**
@@ -223,9 +192,6 @@ Different countries have different rates for how much creators can make off Adse
 
 Know more about how your data are related by comparing to see if Revenue is affected by the performance of metrics in other categories such as Views. Does a rise in view change your revenue?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![revenue-earning-to-other-metrics](https://images.wondershare.com/filmora/revenue-earning-to-other-metrics.jpg)  
   
 #### **How to Use the Revenue Dashboard**
@@ -240,9 +206,6 @@ This tells you that while Views may be an important metric, it won’t affect yo
 
  **Understanding the Ad Rates Report**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![the-ad-rates-report](https://images.wondershare.com/filmora/the-ad-rates-report.jpg)  
   
 **YouTube Ad Revenue:** This is the estimated gross total of all the money you made from ads sold via Google and Google partners.
@@ -259,9 +222,6 @@ Unlike the Revenue dashboard, the Ad Rates report dives deeper into the performa
 
 This allows you to not only see the estimated earnings but also how many times the ad was shown. On top of that, the CPM gives you an idea of what YouTube deems to be more valuable content for advertisers, which gives you a better idea about the capabilities of the video and offers insight into the type of videos you make in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![monetized-videos](https://images.wondershare.com/filmora/monetized-videos.jpg)  
   
 #### **See How Each Ad Type Is Performing Within Individual Video**
@@ -329,9 +289,6 @@ In this example, we see that the average length of a video watched is 1:14 and t
 
 While you should aim to have 100% audience retention, if you can get an average above 50%, you are doing something right. Anything under, you may want to consider changing up your strategy (content, structure, pacing, etc.).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![average-view-duration](https://images.wondershare.com/filmora/average-view-duration.jpg)  
   
 #### **See Audience Retention of Individual Videos**
@@ -344,9 +301,6 @@ While you should aim to have 100% audience retention, if you can get an average 
 
 If the line indicates that you are above average at a certain point, that is where your video is doing a better job holding the viewer’s attention at that point compared to most other videos.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![relative-audience-retention](https://images.wondershare.com/filmora/relative-audience-retention.jpg)  
   
 #### **How to Use Audience Retention**
@@ -387,9 +341,6 @@ Data Split by Gender:
 
 Not only will you be able to see which region the majority of your viewerships are from, but you can also segment and compare by demographics. This will give you a more insightful view of how your channel is performing across the world for different people.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![geographic-distribution](https://images.wondershare.com/filmora/geographic-distribution.jpg)  
   
 Additionally, you can click into specific videos on your channel and see how it is performing in different regions.
@@ -416,18 +367,12 @@ There are a number of ways people can watch your YouTube video:
 
 If your video is only promoted organically your views will likely be coming from the YouTube Watch Page, but if other media publications embedded your video, and it’s getting a lot of views, you can see it here.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![playback-locations](https://images.wondershare.com/filmora/playback-locations.jpg)  
   
 #### **Which External Source Are Your Videos Being Watched**
 
 By clicking into the Embedded in External Websites and Apps report, you’ll be able to see all the different websites and apps that your video is featured on. This will give you a good indication of which sites and apps are driving the most views.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![external-source](https://images.wondershare.com/filmora/external-source.jpg)  
   
 #### **How to Use Playback Locations Report**
@@ -444,9 +389,6 @@ In the Traffic Sources report, you can see what is the most popular way your vid
 
 This can include advertisements that you pay for, external referrals such as links from other websites, suggested videos, and searches on YouTube to name a few.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![traffic-sources](https://images.wondershare.com/filmora/traffic-sources.jpg)  
   
 #### **See Which Videos Are Suggesting Yours To Viewers**
@@ -473,9 +415,6 @@ If you have a new video coming out and you want to promote it, understanding whe
 
  **Know What Devices Your Viewers Are Watching From**
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![what-devices-your-viewers-are-watching-from](https://images.wondershare.com/filmora/what-devices-your-viewers-are-watching-from.jpg)  
   
 The way viewers watch content on their mobile phones is very different from the way they watch on television. By understanding how the majority of your viewers are watching your content, you can better design and structure your video.
@@ -504,27 +443,18 @@ In the Subscribers report, you can see where most of your subscribers came from 
   
 If you see that you are getting a lot of conversions from the YouTube Watch Page, you can dig in and see which video specifically you should give credit to for earning your subscribers — and which ones are causing people to unsubscribe.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![analyzing-conversion](https://images.wondershare.com/filmora/analyzing-conversion.jpg)  
   
 #### **Find Out Which YouTube Keywords Are Leading to Subscriptions**
 
 Click into YouTube search to see the most popular search terms that have lead to people subscribing to your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![keywords-leading-to-subscription](https://images.wondershare.com/filmora/keywords-leading-to-subscription.jpg)  
   
 #### **See Which Date You Got The Most Subscribers**
 
 Click into Date and find out if there was something significant that happened that day that made people subscribe to your channel more than others?
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![date-you-got-the-most-subscribers](https://images.wondershare.com/filmora/date-you-got-the-most-subscribers.jpg)  
   
 #### **How to Use the Subscriber Report**
@@ -539,9 +469,6 @@ If you see a video is earning you a lot of subscribers, it might be a good idea 
 
 In addition to seeing the total Likes and Dislikes your channel received, in this report, you can see the Likes and Dislikes of individual videos. This gives you a quick glance at how your viewers are enjoying your channel and videos.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![likes-and-dislikes](https://images.wondershare.com/filmora/likes-and-dislikes.jpg)  
   
 #### **Compare Likes and Dislikes with Other Metrics**
@@ -562,10 +489,6 @@ Identify the days you got a lot of Likes or Dislikes, and ask, was there somethi
 
 Knowing how your subscribers and non-subscribers are responding to your content will give you a good idea at how effective your video is at delighting those that know your content well, and those that are newer to your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![likes-and-dislikes-between-subscribers-and-non-subscribers](https://images.wondershare.com/filmora/likes-and-dislikes-between-subscribers-and-non-subscribers.jpg)  
   
 #### **How to Use the Likes and Dislikes Report**
@@ -580,18 +503,12 @@ When a video is added to a playlist, it means someone thought it was relevant or
 
 Having videos added to playlists is a good thing because it increases the chances of being discovered as people looking for a bunch of content within a category can watch it all linearly.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![videos-in-playlists](https://images.wondershare.com/filmora/videos-in-playlists.jpg)  
   
 #### **See Which Video Is In The Most Playlists**
 
 By having a report to see which videos have been added to the playlist, you can see that there is an interest in this type of content. With this knowledge, you can decide that perhaps the audience may be interested in a series around this topic.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![video-in-the-most-playlists](https://images.wondershare.com/filmora/video-in-the-most-playlists.jpg)  
   
 #### **See If There Is a Correlation Between Videos in Playlists and Watch Time**
@@ -618,23 +535,6 @@ Select a time period and see how many comments your channel and videos got at th
 
 Evaluate how your videos are performing by comparing them, and identifying what makes a more engaging video for your audience.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![how-your-videos-are-engaging-audience](https://images.wondershare.com/filmora/how-your-videos-are-engaging-audience.jpg)  
   
 #### **How to Use Comments Report**
@@ -651,9 +551,6 @@ However, there are also benefits of using an external analytics tool like [Sotre
 
 This report shows you how frequently your audience is sharing your videos to their networks. In addition to Views and Watch Time, knowing the shareability of your content helps guide your videos in achieving viral status.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![how-many-times-your-videos-have-been-shared](https://images.wondershare.com/filmora/how-many-times-your-videos-have-been-shared.jpg)  
   
 #### **See Which Sharing Service Is Most Popular For Your Channel**
@@ -688,9 +585,6 @@ When you add annotations to your videos, you would want to know if your audience
 
 This report also shows you how often viewers choose to close your Annotation completely, giving you an indication that they have no interest in the link.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![annotations-clicked-within-a-period](https://images.wondershare.com/filmora/annotations-clicked-within-a-period.jpg)  
   
 #### **Compare Performance of Different Annotations**
@@ -715,9 +609,6 @@ By finding out when in the video your audience engages with annotations and what
 
 Find out which videos are driving the most Card clicks and which type of Cards your audience is most interested in.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![card-teasers-get-clicked](https://images.wondershare.com/filmora/card-teasers-get-clicked.jpg)  
   
 Are viewers more interested in watching more videos or are they wanting to read a post from your blog (associated website)? This report is where you can find out by clicking into Card Type.
@@ -772,9 +663,6 @@ By clicking into the Best for Viewer section you can see the top-performing vide
 
 The End Screens report is great for letting you know which of your existing content the audience is interested in seeing after they finished watching one of your videos. As you learn more about your viewers and accumulate more videos, with the help of the End Screens report, you can determine which videos to use to increase Views and Watch Time.
   
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 Television producers pay hundreds of thousands of dollars to data companies to get the same set of analytics that YouTube offers its creators for free.
@@ -880,3 +768,16 @@ Follow @Richard Bennett
 <li><a href="https://on-screen-recording.techidaily.com/ultimate-screen-capture-review-obs-vs-fraps/"><u>Ultimate Screen Capture Review  OBS vs Fraps</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/youtube-on-your-iphoneipad-the-ultimate-downloading-guide-for-2024/"><u>Youtube on Your iPhone/iPad  The Ultimate Downloading Guide for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="540" height="960" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

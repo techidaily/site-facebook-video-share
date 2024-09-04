@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Shine On  Top 17 Studio Lights for YouTube\""
-date: 2024-08-09T01:08:47.291Z
-updated: 2024-08-10T01:08:47.291Z
+date: 2024-09-03T20:11:54.966Z
+updated: 2024-09-04T20:11:54.966Z
 tags:
   - ai video
   - ai youtube
@@ -32,9 +32,6 @@ Unfortunately, it is unlikely you will be able to get good quality light from th
 * [Part 2: What Should Good Lighting Equipment Feature?](#part2)
 * [Part 3: Best Lights and Lighting Equipment for YouTube Video Shooting](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Best Types of Lightning Equipment for YouTube Videos
 
 Every video no matter how long or short depends on light, more than anything else. The natural light sources are often not powerful enough to light a scene you're trying to capture, so to avoid having to deal with underexposed footage, the best solution is to use artificial lighting. Even if you want the light in your video to be completely natural, you still have to figure out a way to get rid of shadows, which brings us back to different types of lighting equipment that can be used to increase the quality of the footage you're producing.
@@ -57,9 +54,6 @@ Although they are most frequently used for fashion and beauty videos, ring light
 
 Ring lights are powerful enough to provide light for an entire scene, and they also work nicely as a catch or fill light. Some of the most popular YouTubers like Casy Neistat or PewDiePie use ring lights in their videos.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: What Should Good Lighting Equipment Feature?
 
 Now that you know which types of lights are commonly used on YouTube video sets, you can start looking at models that best fit your demands. There are thousands of different studio lights on the market, but only the best offer features that make the light setup process easier and faster. So before buying your lighting equipment, you should make sure that it has the following features.
@@ -86,9 +80,6 @@ White reflectors are used to simply bounce light. Silver reflectors make light a
 
 Reflectors are used to bounce light towards your subject. They are great for filling shadows created by your main light. This reflector is five reflectors in one: silver, gold, black, white, and translucent.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Best Lights and Lighting Equipment for YouTube Videos
 
 Consumer-level camera sensors are nowhere close to being as sensitive to light as our eyes. So a scene that may look sufficiently lit to our eyes may be too dark for the camera. When you're shooting video indoors, you'll need additional lighting equipment. Here are some of the top seventeen best lighting equipment for YouTubers.
@@ -103,30 +94,48 @@ On-Camera LED lights are LED lights that can be mounted directly onto your camer
 
 ![Julius Studio Lighting](https://images.wondershare.com/filmora/article-images/lighting-equipment-julius-studio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The Julius Studio 160 LED light not only can be mounted on any digital camera that has a hot/cold shoe but it can also be mounted on light stands so you can keep the same light setting even if you are moving the camera around. This lighting equipment also comes with four color filters so that you can control the color temperature of your light.
 
 #### 2\. Viltrox L116B highest RA CRI95 LED Light Panel
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Viltrox lighting](https://images.wondershare.com/filmora/article-images/lighting-equipment-viltrox.jpg)
 
 The VILTROX L116B LED light panel is a powerful piece of on-camera lighting equipment. As you can see from the back view of this light panel, you can see how much battery you have left as well as digitally set the color temperature of your light. It also features PWM light adjustment technology that reduces power consumption. As this equipment comes with an AC adapter, you can choose to use this outdoors or indoors.
 
 #### 3\. Chromo Inc CI55000230 Macro Ring 48 LED Power Light
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Chromo Inc](https://images.wondershare.com/filmora/article-images/lighting-equipment-chromo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you're looking for an on-camera ring light, Chromo Inc's macro ring light is a great option. This ring light mounts onto the lens of your SLR camera and its power source (two AA batteries) attaches to your camera's hot/cold shoe. Get that nice-looking ring light reflection in your eyes as you film with this portable ring light!
 
 #### 4\. Neewer CN-216 216PCS LED Dimmable Ultra High Power Panel
 
 ![Neewer CN-216 216PCS ](https://images.wondershare.com/filmora/article-images/lighting-equipment-neewer.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The Neewer 216 PCS LED dimmable light panel is powerful lighting equipment at a cheap price. You can adjust the color temperature of this light from 3200K up 5400K. This piece of equipment is only battery-powered, but you do have the option to either use six AA batteries or specific Sony NP series batteries, or Panasonic CGR-D16S rechargeable batteries.
 
 #### 5\. [Neewer 160 LED CN-160 Dimmable Ultra High Power Panel](https://www.amazon.com/Dimmable-Digital-Camcorder-Panasonic-Samsung/dp/B004TJ6JH6/)
@@ -135,48 +144,80 @@ The Neewer 216 PCS LED dimmable light panel is powerful lighting equipment at a 
 
 This light is Neewer's cheaper version of the CN-216\. Instead of having 216 LED light bulbs, this light has 160 LED light bulbs. Other than the number of light bulbs, the two light panels are pretty much the same.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### List of the Top 5 Best LED Ring Lights
 
 LED ring lights are called ring lights because of their ring-like shape. The opening in the ring allows you to position your camera right in the center of this lighting equipment. These lights are great if you don't have a lot of space.
 
 #### 1\. [Diva Ring Light Super Nova](https://www.amazon.com/Diva-Ring-Light-Dimmable-Stand/dp/B0149N4PD6/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Diva Ring Light Super Nova ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-diva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The Diva ring light is a great ring light for divas, make-up artists, and anyone else wanting to look good right in front of the camera! This LED ring light has a dimming knob so that you can adjust the brightness of your light. It also comes with a cloth for you to diffuse your light (so that your light will be softer) and a gooseneck and z-bracket attachment if you want to use your camera and ring light with just one tripod.
 
 #### 2\. [Prismatic Halo Ring Light](https://www.amazon.com/Prismatic-18-Halo-Ring-Light/dp/B011CO4HPG/)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Prismatic Halo Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-prismatic.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The Prismatic Halo ring light is another great ring light option. It comes with a canvas travel bag, making it easier to store away or take around with you. The 110-120 VAC, 5400K light bulb produces light that can be dimmed as well. The Prismatic Halo Ring kit doesn't include a light stand.
 
 #### 3\. [Neewer Dimmable 18" Ring Light](https://www.amazon.com/Neewer-10086031-Dimmable-Diameter-Fluorescent/dp/B018G039IU/)
 
 ![Neewer Dimmable  Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-neewer-dimmable.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The 18-inch light ring uses fluorescent light. In addition, this kit includes a 59-inch light stand as well as white and orange filters and a hot shoe adapter that extends the capabilities of this affordable LED ring light kit.
 
 #### 4\. [FalconEyes DVR-300](https://www.amazon.com/FalconEyes%C2%AE-DVR-300-3000K-7000K-Adjustable-Photography/dp/B00XBQNN8G/)
 
 ![FalconEyes DVR-300](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-falconeyes.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="234" height="30" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 With 300 pcs LED and 150 yellow color and 150 white-color lights, FalconEyes DVR-300 is one of the best ring lights currently available on the market. It also features two control dials that enable you to adjust the color of the light the device produces and a white diffuser that makes the light softer.
 
 #### 5\. [Neewer 14″ Ring Light](https://www.amazon.com/Neewer-centimeters-Fluorescent-Photography-Equivalent/dp/B00V33KSCI/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![Neewer 14  Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-neewer-ring-light.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The 10-inch inner rim diameter may seem small when compared with larger ring lights that offer more room to operate. The Neewer Camera Ring Light is undimmable and has 50W power. The ring light uses an AC adapter, which makes it difficult to use when filming outside of a studio.
 
 ### List of the Top 2 Best Softbox Video Lights
@@ -185,9 +226,6 @@ A softbox is commonly used by photographers and videographers to simulate natura
 
 #### 1\. [StudioFX 2400 Watt Softbox](https://www.amazon.com/StudioFX-H9004SB2-Photography-Continuous-Hairlight/dp/B00MBVOIJU/)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Neewer 14  Ring Light ](https://images.wondershare.com/filmora/article-images/softbox-lighting-equipment-StudioFX.jpg)
 
 This lighting system contains two 16x24-inch softboxes and an overhead hair light boom softbox. The stands for all three softboxes are included in the kit. Each light head is capable of holding up to four bulbs.
@@ -214,9 +252,6 @@ Besides featuring two umbrellas and two softboxes, this kit also includes a 6x9 
 
 #### 3\. [Emart 600W Studio Photography Photo/Video Portrait Kit](https://www.amazon.com/gp/product/B018KE5XUO/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![ Emart 600W Studio Photography Photo/Video Portrait Kit ](https://images.wondershare.com/filmora/article-images/umbrella-lighting-equipment-emart.jpg)
 
 Chances are that you won't need much more than what this photo/video kit has to offer. Emart's 600W kit includes two white and two black/silver 33-inch umbrellas as well as two 83-inch light stands and a smaller 33-inch light stand. The heavy-duty carry case can store the entire kit.
@@ -225,13 +260,22 @@ Chances are that you won't need much more than what this photo/video kit has to 
 
 ![LINCO 600W Photography/Video Continuous Lighting Kit ](https://images.wondershare.com/filmora/article-images/umbrella-lighting-equipment-linco.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The Linco 600W continuous lighting kit contains two white translucent umbrellas that generate soft light, which is quite useful if you want to get even skin tones in your videos. The kit has three lamps that use 5500K 40W bulbs and light stands you can easily carry to any filming location.
 
 #### 5\. [Emart 1575W Umbrella Lighting Kit With Translucent White & Black/Silver & Black/Gold](https://www.amazon.com/gp/product/B018KE5XUO/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Emart 1575W  Umbrella  Lighting Kit With Translucent  ](https://images.wondershare.com/filmora/article-images/umbrella-lighting-equipment-emart-with-translucent.jpg)
 
 The greatest advantage of this Emart 1575 W Lightning kit is the three pairs of 33-inch diameter translucent/white, black/silver, and black/gold umbrellas. The 105W daylight bulbs provide enough light to work even under the most difficult light conditions, while the lightweight stands enable you to use this kit outside of your studio.
@@ -241,7 +285,10 @@ Besides the best lighting equipment, we have also summarized some [tips and tric
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 

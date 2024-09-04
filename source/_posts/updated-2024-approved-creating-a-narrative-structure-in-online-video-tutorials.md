@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Creating a Narrative Structure in Online Video Tutorials\""
-date: 2024-08-01T11:47:19.308Z
-updated: 2024-08-02T11:47:19.308Z
+date: 2024-09-03T20:12:02.723Z
+updated: 2024-09-04T20:12:02.723Z
 tags:
   - ai video
   - ai youtube
@@ -36,9 +36,6 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 * [How should you structure YouTube Video Content?](#part2)
 * [Ready to go out and make amazing videos?](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why is structuring your video important?
 
  The structure of your video can make all the difference between a successful YouTube channel and a big waste of time. Your objective is to get people watching more and watching all the way to the end. A great structure can:
@@ -53,24 +50,28 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 
  There are some key elements of a YouTube video's structure which can make it more natural, more engaging and more fun to watch. When you're planning your structure, you should follow a logical timeline to take the viewer from start to finish easily, and to ensure you get the actions you want at the end.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### Intro
 
  People love to be told what's about to happen, and an intro can be a crucial step in ensuring they are going to continue watching your content. By explaining clearly what they are about to see, why it's important to them and what problems you're aiming to solve, you'll keep them hooked and prevent them from browsing away to the next search result.
 
  An introduction doesn't need to be long or particularly involved. Remember, you don't want to give away all your information here, as what you want is to encourage them to watch until the end. Something like "I'm going to show you … which will help you to …" is fine.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-structure.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Your idea and purpose need to be conveyed fast and effectively if you're keen to get their interest. Most viewers will decide within the first three to five seconds of a video if they want to invest their time in watching, so it's crucial you capture their interest and engage them fast to stop them drifting away.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Main content
 
  Once you've introduced your video, it's time to start working through your content. This should be done by:
@@ -85,12 +86,30 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Now you've addressed the issue that your video content will solve, you're almost ready to ask them to take the next step. Almost. There's one more key element in your structure that you need to remember to include.
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Hook
 
  The hook can be placed anywhere in your content, although it's most successful when placed either in the introduction or while you are framing the problem. The hook is a tidbit that aims to encourage a full viewing of your video, so don't give away your solutions but do give them a reason to carry on watching.
 
  If there's a particular point where you think they might become bored or distracted, this is a great time to insert your hook. Come up with a powerful hook, for instance 'with my solution I managed to go from ten views to two hundred in an hour' or 'when you hear this solution you'll understand how I tripled my profits overnight'. Give them a reason to want to stay to the end.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Outro
 
  Your outro shouldn't just be about signing off in your unique way with some lovely music and visuals. This is the point at which you can ask something back from your audience, whatever that may be. We call this a 'call to action', and it could eb something as simple as subscribing through to something more involved like visiting your website.
@@ -98,7 +117,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  Think about what you want from your audience; what should they do next? Remember to ask via a strong call to action, otherwise you've simply given them some free advice with very little in the way of a return for you.
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Script or no script?
 
@@ -110,20 +132,26 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  **Read More to Get :** [How to Loop a YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ready to go out and make amazing videos?
 
  Having a structure to your videos might seem a little unnatural at first, but there's plenty of evidence to show that people who take the time to plan their content get far better results than those who just improvise. If you're unsure of the best structure for your content, watch videos made by others in your niche to see how they organize theirs.
 
  That's not to say you have to copy the leaders to be a success; indeed, you'll be far more successful on YouTube if you continue to be unique. But there's always room to learn from the best and to take inspiration from those who've been getting the very best results.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

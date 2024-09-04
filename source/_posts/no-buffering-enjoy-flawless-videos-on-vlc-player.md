@@ -1,7 +1,7 @@
 ---
 title: "No Buffering: Enjoy Flawless Videos on VLC Player"
-date: 2024-08-01T11:51:17.423Z
-updated: 2024-08-02T11:51:17.423Z
+date: 2024-09-03T20:11:57.155Z
+updated: 2024-09-04T20:11:57.155Z
 categories:
   - repair-tools
 description: "This Article Describes No Buffering: Enjoy Flawless Videos on VLC Player"
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/848032c0813eed1e619997cdd0bea2d2fe7603582
 
 * ![Written By](https://cdn-cmlep.nitrocdn.com/DLSjJVyzoVcUgUSBlgyEUoGMDKLbWXQr/assets/desktop/optimized/rev-625c9ec/secure.gravatar.com/avatar/51230a434c190250f4ff6504ca157fb6.e5852926d79de076a92e11afdcfd065c)  
  Written By [Nishat Paiker](https://tools.techidaily.com/stellardata-recovery/buy-now/) [linkdin](https://cdn-cmlep.nitrocdn.com/DLSjJVyzoVcUgUSBlgyEUoGMDKLbWXQr/assets/images/optimized/rev-625c9ec/www.stellarinfo.com/public/frontEnd/images/author/linkdin.jpg) ](https://www.linkedin.com/in/nishat-paiker-81a31313/)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 * ![Date](https://cdn-cmlep.nitrocdn.com/DLSjJVyzoVcUgUSBlgyEUoGMDKLbWXQr/assets/images/optimized/rev-625c9ec/www.stellarinfo.com/public/frontEnd/images/author/clender.jpg)  
  Updated on31 May, 2024
 * Min Reading 6  Min
@@ -42,24 +39,24 @@ Table of Content
 
  Here are the six best solutions to fix Video Stuck or Frozen in VLC.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Solutions to fix video stuck, stuttering, buffering or lagging in VLC Media Player
 
  Although there isn’t a set solution, changing the VLC media player’s settings can work. You may have to try various methods shared here to fix the video freeze or lag issues in VLC Media Player.
 
  You can apply the solutions here to play high-quality HD/ UHD/ HDR, 8k, or H.265 videos of any size and file format.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ### **Method 1: Update VLC Media Player to the latest version**
 
  If your videos freeze, stutter, or are not playing in VLC Media Player, first update the player to the latest version. The updates improve support for new HD codecs, advanced formats, HDR, H.265/HEVC, 4K & 8K playback, 360-degree videos, VP9 (HD videos at lower bitrates), and others for decoding and encoding. It also fixes streaming issues and bugs, if any.
 
 **Also read:** [How to open HEIC, HEVC files on Windows 10](https://tools.techidaily.com/stellardata-recovery/buy-now/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Method 2: Increase cache values in VLC Player**
 
  VLC Player preloads video cache files in the computer’s RAM to properly access and plays the video. You can try to fix the video buffering issue by increasing the cache value. However, this would increase the number of seconds videos are cached to play in VLC Player.
@@ -80,6 +77,12 @@ _Figure: Input/Codecs pane in VLC_
 * In the**Advanced** section, across**File caching (ms),** change the value to 1000 or above.
 * Click**Save.** Next, restart VLC Player and check if the videos are playing properly.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Method 3: Disable Hardware Decoding in VLC Player**
 
  VLC Media Player can use the GPU of a computer to accelerate video decoding in high-quality videos. However, your PC’s drivers may behave abruptly, resulting in video playback or streaming issues. You can try disabling hardware decoding to fix Video Stuck or Freeze in the VLC player.
@@ -97,9 +100,6 @@ _Figure: Input/Codecs pane in VLC_
 * Under**FFmpeg audio/video decoder** , scroll down to**Hardware decoding** and set it to**Disable** .
 * Click **Save** . Restart VLC Payer to enable the changes.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### **Method 4: Change FFmpeg settings in VLC Player**
 
  Making changes in the FFmpeg video codec in VLC Player has worked for some. You can also try to resolve video stuttering and freezing with this technique.
@@ -117,7 +117,10 @@ _Figure: Input/Codecs pane in VLC_
 * Click**Save** .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **Method 5: Switch video output to DirectX DirectDraw in VLC**
 
@@ -149,6 +152,18 @@ _Figure: Video output modules in VLC_
 * Click on**Save** at the bottom**.**
 * Check if VLC Player can play your videos without freeze or interruption.
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Method 6: Repair your video using Stellar Repair for Video**
 
  The video file may be corrupt if the above methods using VLC Media Player don’t fix video freeze, lag, or stuttering issues. To confirm corruption, see if your video freezes while playing in another media player.
@@ -171,6 +186,12 @@ _Figure: Video output modules in VLC_
 
 [](https://cloud.stellarinfo.com/StellarRepairforVideo-B.exe) [](https://cloud.stellarinfo.com/StellarRepairforVideo-B.dmg.zip)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Conclusion**
 
  Here we have recommended changing the settings of VLC Media Player to fix video freezing or lag using the below methods:
@@ -186,7 +207,16 @@ _Figure: Video output modules in VLC_
  I hope you found this helpful. Do share with our readers which method helped you fix Video Stuck or Freeze in the VLC player issue in the comment box below.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Was this article helpful?
 
