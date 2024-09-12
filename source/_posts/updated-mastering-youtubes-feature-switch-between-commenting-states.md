@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering YouTube's Feature  Switch Between Commenting States\""
-date: 2024-09-03T20:11:57.115Z
-updated: 2024-09-04T20:11:57.115Z
+date: 2024-09-11T22:01:06.967Z
+updated: 2024-09-12T22:01:06.967Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,19 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -46,6 +59,13 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -57,6 +77,13 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -90,6 +117,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -110,20 +144,15 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -141,11 +170,12 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -160,65 +190,11 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>[New] 2024 Approved  Conquer Your Screen  Top 10 Simple YouTube Projects for All Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-the-ideal-set-of-keywords-for-your-youtube-videos/"><u>[New] 2024 Approved  Crafting the Ideal Set of Keywords for Your Youtube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-dynamic-channels-advanced-youtube-naming-guides/"><u>[New] 2024 Approved  Discover Dynamic Channels  Advanced YouTube Naming Guides</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-views-and-subscribers-a-list-of-proven-youtube-techniques/"><u>[New] 2024 Approved  Elevate Views and Subscribers  A List of Proven YouTube Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-video-visibility-ethically-one-million-in-views-for-2024/"><u>[New] Elevate Your Video Visibility Ethically  One Million in Views for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-viewership-with-informative-youtube-video-captions-for-2024/"><u>[New] Enhancing Viewership with Informative YouTube Video Captions for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bypassing-blockbusters-2023-indie-favorites/"><u>[New] In 2024, Bypassing Blockbusters  2023 Indie Favorites</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-optimizing-your-videography-journey-using-adobe-connects-tools/"><u>[New] Optimizing Your Videography Journey Using Adobe Connect's Tools</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-simple-steps-to-coordinate-consistent-productive-google-collaboration-times/"><u>[New] Simple Steps to Coordinate Consistent, Productive Google Collaboration Times</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-blueprint-for-successful-collaborative-video-production-on-youtube/"><u>[New] The Blueprint for Successful Collaborative Video Production on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-thriving-in-the-world-of-youtube-broadcasting-master-class/"><u>[New] Thriving in the World of YouTube Broadcasting  Master Class</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-top-earners-in-youtube-enterprises/"><u>[New] Top Earners in YouTube Enterprises</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-mic-selection-for-vloggers-and-streamers/"><u>[New] Ultimate Mic Selection for Vloggers and Streamers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-video-calls-that-protect-our-selection-of-the-best-free-secure-applications-for-mobile-tech-for-2024/"><u>[New] Video Calls That Protect  Our Selection of the Best Free, Secure Applications for Mobile Tech for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-your-pathway-to-professional-looking-animated-gifs-online/"><u>[New] Your Pathway to Professional-Looking Animated GIFs Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-youtube-names-generators-plus-how-to-brainstorm/"><u>[Updated] 2024 Approved  Best YouTube Names Generators [+ How to Brainstorm]</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>[Updated] 2024 Approved  Break Free From The Norms  Crafting Your Own Streamer Identity</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-binge-on-christmas-classics-enjoy-9-whole-film-flicks-no-charge-for-2024/"><u>[Updated] Binge on Christmas Classics  Enjoy 9 Whole-Film Flicks No Charge for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-dive-into-makers-earnings-exploring-youtube-shorts-revenue-structure-for-2024/"><u>[Updated] Dive Into Maker's Earnings  Exploring YouTube Shorts Revenue Structure for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-engagement-natural-ways-to-popularize-your-videos-for-2024/"><u>[Updated] Elevate Engagement  Natural Ways to Popularize Your Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-first-timers-manual-for-cool-mac-crafted-youtube-clips/"><u>[Updated] First-Timer's Manual for Cool, Mac-Crafted YouTube Clips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-professionals-playbook-to-profitable-youtube-ventures/"><u>[Updated] In 2024, A Professional's Playbook to Profitable YouTube Ventures</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-instagram-quick-paths-to-influence/"><u>[Updated] Mastering Instagram  Quick Paths to Influence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigate-through-settings-enabledisable-video-comments/"><u>[Updated] Navigate Through Settings  Enable/Disable Video Comments</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-navigating-video-conferencing-with-ease-on-your-win10-pc-for-2024/"><u>[Updated] Navigating Video Conferencing with Ease on Your Win10 PC for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-step-into-wealthy-creator-land-via-youtube-shorts-revenue/"><u>[Updated] Step Into Wealthy Creator Land via YouTube Shorts Revenue</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-maximizing-lenovo-experience-through-effective-recording/"><u>2024 Approved  Maximizing Lenovo Experience Through Effective Recording</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/30-powerful-freegame-hashtags-for-dominating-youtube-for-2024/"><u>30 Powerful FreeGame Hashtags for Dominating YouTube for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-realme-c51-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Realme C51.</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-excel-2016-by-digital-signature-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to sign Excel 2016 by digital signature</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-realme-narzo-60-pro-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Realme Narzo 60 Pro 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-y28-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo Y28 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-hitting-a-pixel-snag-a6400s-video-problems/"><u>In 2024, Hitting a Pixel Snag  A6400's Video Problems</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-instagram-melodies-compliance-and-policies/"><u>In 2024, Instagram Melodies  Compliance and Policies</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/lock-your-xiaomi-civi-3-disney-100th-anniversary-edition-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Xiaomi Civi 3 Disney 100th Anniversary Edition Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/next-level-shooting-lens-selections-for-online-creators-for-2024/"><u>Next-Level Shooting  Lens Selections for Online Creators for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/premier-mobile-tools-for-dji-footage-enhancement-for-2024/"><u>Premier Mobile Tools for DJi Footage Enhancement for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/swift-restoration-rectify-legends-glitches/"><u>Swift Restoration: Rectify Legends Glitches</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-essential-photographers-toolkit-polarr-edition-for-2024/"><u>The Essential Photographer's Toolkit - Polarr Edition for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-quintet-at-the-pinnacle-youtube-subscribers-for-2024/"><u>The Quintet at the Pinnacle  YouTube Subscribers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-players-for-youtube-on-ios-and-android-compared-for-2024/"><u>Top Players for YouTube on iOS and Android Compared for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/upgrade-your-youtube-bio-with-pro-templates-for-2024/"><u>Upgrade Your Youtube Bio with Pro Templates for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -226,3 +202,15 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-quick-ways-to-retain-live-chat-transcripts/"><u>[Updated] In 2024, Quick Ways to Retain Live Chat Transcripts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-screen-capture-showdown-comparing-bests-in-town-obs-vs-bandicam/"><u>[Updated] In 2024, Screen Capture Showdown Comparing Bests in Town – OBS vs Bandicam</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/f1-2020-on-pc-overcoming-persistent-crashing-problems-for-a-smoother-gaming-experience/"><u>F1 2020 on PC - Overcoming Persistent Crashing Problems for a Smoother Gaming Experience</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-nokia-105-classic-screen-sharing-drfone-by-drfone-android/"><u>How To Do Nokia 105 Classic Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-transform-viewers-criticism-into-content-enhancement/"><u>In 2024, How to Transform Viewers' Criticism Into Content Enhancement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/viral-vortex-a-guide-to-powerful-social-media-tags-for-2024/"><u>Viral Vortex A Guide to Powerful Social Media Tags for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-profits-demystified-from-clicks-to-credit-for-2024/"><u>YouTube Profits Demystified From Clicks to Credit for 2024</u></a></li>
+</ul></div>
+

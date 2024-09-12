@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How-To's  Selecting Free, Powerful iPhone/iPad Edits\""
-date: 2024-09-03T20:12:00.783Z
-updated: 2024-09-04T20:12:00.783Z
+date: 2024-09-11T22:03:32.511Z
+updated: 2024-09-12T22:03:32.511Z
 tags:
   - ai video
   - ai youtube
@@ -62,6 +62,13 @@ or Try Filmora App for mobile >>>
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: Best Free Video Editing Apps for iPhone to Edit YouTube Videos You Should Know
 
 Before you opt for one of the apps we’ve featured in our top list, you must first make sure that the app you’re interested in offers all the video editing tools you need to process the footage you recorded for your YouTube channel. Considering **the number of audio and video tracks an app supports**, the number of **visual effects** it offers or its **file-sharing capabilities** can make it easier for you to decide which app you are going to install on your device. However, your choice ultimately depends on how frequently and how professionally you want to edit your YouTube videos. Here are the top 5 video editing apps for iPhones and iPads.
@@ -73,6 +80,13 @@ Before you opt for one of the apps we’ve featured in our top list, you must fi
 **Compatibility:** Requires iOS 9.0 or later. Compatible with iPhone, iPad, and iPod touch.
 
 [![Download filmora](https://images.wondershare.com/filmora/guide/google_play.jpg) ](https://app.adjust.com/w06dr6m%5F19za1f6) [![Download filmora](https://images.wondershare.com/filmora/guide/apple_store.jpg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This is an easy and convenient video editing app that is going to allow you to **turn regular videos into artistic renditions** that are going to look as if they were production-valued. All you need to do is choose the video and select the overall **theme** for it as well as the **design and music**. Furthermore, the app delivers some fantastic visual effects such as overlays, filters, elements and transitions, basic function. It also allows you to trim and split video clips, rotate and crop the footage, **change the video speed, play the video backwards** or   **add your own voiceover**. Another special feature is that you can automate the video by selecting the best parts and letting the application handle everything else.
 
@@ -243,6 +257,19 @@ This is another convenient option that you can take advantage of. You would be p
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Edit YouTube Videos on iPhone with the YouTube Studio Application
 
 Being able to edit the videos you’ve uploaded to YouTube on your iPhone is without a doubt something very beneficial. The YouTube iOS application - YouTube Studio is a powerful mini video-editing tool. You can easily trim your video, add different effects and filters in order to prominently enhance the way that your video looks as well as to add music as a background and many more.
@@ -261,11 +288,25 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.14 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
 or Try Filmora App for mobile >>>
@@ -276,13 +317,18 @@ Check our guide for beginners about [How to Edit YouTube videos with Filmora.](h
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -290,72 +336,20 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-the-buzz-creation-blueprint-for-marketing-success/"><u>[New] 2024 Approved  The Buzz-Creation Blueprint for Marketing Success</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-youtuber-convention-guide-post-vidcon/"><u>[New] 2024 Approved  The Ultimate Youtuber Convention Guide (Post-VidCon)</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-unleash-your-potential-navigating-the-world-of-switch-pro-in-steam/"><u>[New] 2024 Approved  Unleash Your Potential  Navigating the World of Switch Pro in Steam</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-a-comprehensive-overview-of-multiscreen-streaming-techniques-on-social-media-platforms-like-facebook-for-2024/"><u>[New] A Comprehensive Overview of Multiscreen Streaming Techniques on Social Media Platforms Like Facebook for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-creating-simple-videos-top-10-youtube-projects-anyone-can-do-for-2024/"><u>[New] Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-effortless-broadcast-blending-a-guide-to-obspluszoom-for-2024/"><u>[New] Effortless Broadcast Blending  A Guide to OBS+Zoom for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-tips-for-locating-youtubes-content-creation-hub-for-2024/"><u>[New] Essential Tips for Locating YouTube's Content Creation Hub for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-exporting-mp3-files-from-watched-facebook-vids-for-2024/"><u>[New] Exporting MP3 Files From Watched Facebook Vids for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-live-stream-to-youtube-with-wirecast-for-2024/"><u>[New] How to Live Stream to Youtube with Wirecast for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieve-financial-success-on-youtube-start-at-500-views/"><u>[New] In 2024, Achieve Financial Success on YouTube  Start at 500 Views</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-asmr-production-101-essential-strategies-for-cutting-edge-video-making/"><u>[New] In 2024, ASMR Production 101  Essential Strategies for Cutting-Edge Video Making</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-authority-in-education-10-tips-for-youtube-channel-creation/"><u>[New] In 2024, Building Authority in Education  10 Tips for YouTube Channel Creation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-audio-quality-get-high-quality-fx/"><u>[New] In 2024, Enhance Audio Quality, Get High-Quality FX</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-strategies-for-longer-content-on-the-social-network-giant/"><u>[New] In 2024, Strategies for Longer Content on the Social Network Giant</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-instantly-convert-online-tutorials-into-interactive-animation-gifs/"><u>[New] Instantly Convert Online Tutorials Into Interactive Animation GIFs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-navigating-copyright-challenges-on-youtube-shorts/"><u>[New] Navigating Copyright Challenges on YouTube Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-shorts-description-everything-you-need-to-know-for-2024/"><u>[New] YouTube Shorts Description  Everything You Need to Know for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>[New] YouTube to Dailymotion  Transferring Videos Seamlessly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cost-effective-subscriber-growth-hundreds-at-a-bargain-price/"><u>[Updated] 2024 Approved  Cost-Effective Subscriber Growth - Hundreds at a Bargain Price</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-evaluating-best-youtube-extractors-available-on-android/"><u>[Updated] 2024 Approved  Evaluating Best YouTube Extractors Available on Android</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-vlogging-selecting-the-best-cameras-and-lenses/"><u>[Updated] 2024 Approved  Exploring Vlogging  Selecting the Best Cameras & Lenses</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-how-to-create-engaging-screencasts-a-practical-guide/"><u>[Updated] 2024 Approved  How to Create Engaging Screencasts  A Practical Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-beyond-likes-understanding-youtubes-true-view-metrics-for-2024/"><u>[Updated] Beyond Likes  Understanding YouTube’s True View Metrics for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-capturing-quality-should-you-choose-30-or-60-fps/"><u>[Updated] Capturing Quality  Should You Choose 30 or 60 FPS?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-digital-dollars-kings-and-queens-youtube-edition-for-2024/"><u>[Updated] Digital Dollars Kings & Queens  YouTube Edition for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-discovering-the-ultimate-10-free-youtube-artist-collaborators-for-2024/"><u>[Updated] Discovering the Ultimate 10 Free YouTube Artist Collaborators for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-effortless-mp3-conversion-from-youtube-for-mac-users/"><u>[Updated] Effortless MP3 Conversion From YouTube for Mac Users</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-barely-known-to-famous-elevate-your-viewership-on-youtube/"><u>[Updated] From Barely Known to Famous  Elevate Your Viewership on Youtube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-choose-between-youtubers-game-entrance-tutorials-cost-included/"><u>[Updated] How to Choose Between Youtubers' Game Entrance Tutorials (Cost Included?)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-flair-free-download-templates/"><u>[Updated] In 2024, Channel Flair  Free Download Templates</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-engaging-youtube-beginnings-two-methods/"><u>[Updated] In 2024, Crafting Engaging YouTube Beginnings  Two Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>[Updated] In 2024, Essential Steps to Producing a YouTube Hit  Music Reaction Video Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-techniques-for-splendid-lyric-videos-lyric-video-maker-edition/"><u>[Updated] In 2024, Essential Techniques for Splendid Lyric Videos, Lyric Video Maker Edition</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-from-good-to-great-elevating-your-ads-facebook-impact/"><u>[Updated] In 2024, From Good to Great  Elevating Your Ads' Facebook Impact</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-the-art-of-effective-interview-techniques/"><u>[Updated] Mastering The Art Of Effective Interview Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-pro-level-mobile-media-capture-iphone-and-androids-top-5-apps/"><u>[Updated] Pro-Level Mobile Media Capture  IPhone and Android's Top 5 Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-shortcut-to-go-to-tags-maximizing-your-youtube-impact/"><u>[Updated] Shortcut to Go-To Tags  Maximizing Your YouTube Impact</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-distribute-your-youtube-collection/"><u>[Updated] Step-by-Step Guide  Distribute Your YouTube Collection</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-customization-embedding-text-in-youtube-cards/"><u>[Updated] Unlocking Customization  Embedding Text in YouTube Cards</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-earnings-exploration-breakdown-of-adsense-payouts-per-kv-watcher/"><u>[Updated] Youtube Earnings Exploration  Breakdown of AdSense Payouts Per KV Watcher</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-visual-editor-writes-guide-to-leveraging-luts-in-adobe-premiere-pro/"><u>2024 Approved  A Visual Editor' Writes Guide to Leveraging LUTs in Adobe Premiere Pro</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-cameras-that-complement-best-hats-for-capturing-motorcycle-adventures/"><u>2024 Approved  Cameras That Complement  Best Hats for Capturing Motorcycle Adventures</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-quick-shake-reduction-companion-for-cams/"><u>2024 Approved  Quick Shake Reduction Companion for Cams</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-your-google-pixel-8-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Google Pixel 8 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-samsung-galaxy-a05-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Samsung Galaxy A05 in Minutes | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-10-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>In 2024, 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-tecno-spark-10-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Tecno Spark 10 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-beat-the-heat-tips-for-uploading-songs-to-youtube/"><u>In 2024, Beat the Heat  Tips for Uploading Songs to YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-enter-the-world-of-online-promotion-exclusive-free-youtube-banner-access/"><u>In 2024, Enter the World of Online Promotion  Exclusive Free YouTube Banner Access!</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-iphones-unlocked-smart-tips-for-saving-and-playing-gifs/"><u>In 2024, IPhones Unlocked  Smart Tips for Saving & Playing GIFs</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/is-av1-really-outdo-cooking-vp9/"><u>Is AV1 Really Outdo Cooking VP9?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/palette-perfection-the-science-of-video-chromaticity-for-2024/"><u>Palette Perfection  The Science of Video Chromaticity for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-checklist-for-youtube-short-success-for-2024/"><u>The Ultimate Checklist for YouTube Short Success for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/tips-for-effortless-upload-of-high-definition-videos-to-youtube-for-2024/"><u>Tips for Effortless Upload of High Definition Videos to Youtube for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/tomtom-actioncams-latest-features/"><u>TomTom ActionCam's Latest Features</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-nokia-130-music-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Nokia 130 Music Location | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtubes-potential-key-tactics-for-expanding-your-viewership-for-2024/"><u>Unlocking YouTube's Potential  Key Tactics for Expanding Your Viewership for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/what-are-youtube-tags-and-how-can-you-find-great-tags-for-your-videos-for-2024/"><u>What Are YouTube Tags and How Can You Find Great Tags For Your Videos for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-optimize-video-engagement-through-resizing-thumbnails-on-youtube/"><u>[New] 2024 Approved How to Optimize Video Engagement Through Resizing Thumbnails on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-power-8-best-no-cost-software-for-videographers-and-editors/"><u>[Updated] Unlock the Power 8 Best No-Cost Software for Videographers & Editors</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-why-your-youtube-videos-have-zero-views-heres-what-to-do/"><u>[Updated] Why Your YouTube Videos Have Zero Views? Here's What to Do</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-guide-gifs-becoming-stickers-on-discord-whatsapp-and-telegram/"><u>In 2024, Transformative Guide GIFs Becoming Stickers on Discord, WhatsApp & Telegram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/llama-2-the-key-to-streamlined-processes-and-productivity/"><u>Llama 2: The Key to Streamlined Processes and Productivity</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-camera-basics-top-8-recommendations/"><u>Mastering Camera Basics Top 8 Recommendations</u></a></li>
+<li><a href="https://windows11.techidaily.com/perfectly-presented-photos-mastering-the-art-of-crafting-captivating-slideshows-in-win11-photos-app/"><u>Perfectly Presented Photos: Mastering the Art of Crafting Captivating Slideshows in Win11 Photos App</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/rediscovering-retro-gaming-identifying-the-most-advanced-gb-console-emulation-programs/"><u>Rediscovering Retro Gaming Identifying the Most Advanced GB Console Emulation Programs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ricoh-theta-s-complete-review/"><u>Ricoh Theta S Complete Review</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transforming-my-podcast-scripts-using-chatgpt-a-detailed-narrative/"><u>Transforming My Podcast Scripts Using ChatGPT: A Detailed Narrative</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unrestricted-display-save-tool-for-2024/"><u>Unrestricted Display Save Tool for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/viral-video-evolution-youtubes-favorites-for-2024/"><u>Viral Video Evolution YouTube's Favorites for 2024</u></a></li>
 </ul></div>
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

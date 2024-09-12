@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Hilarious YouTube Moments  Top 10 Quirky Short Film Concepts\""
-date: 2024-09-03T20:12:01.060Z
-updated: 2024-09-04T20:12:01.060Z
+date: 2024-09-11T22:03:46.753Z
+updated: 2024-09-12T22:03:46.753Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you hav
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
 #### Idea 2: Story Timeline Series
@@ -66,6 +73,13 @@ Life is indeed full of surprises, events, and glory. Then, why not tailor some o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
 
 Living every moment creates a wonder. Let others also make a part of this journey and inspire them to build your YouTube shorts ideas.
@@ -83,6 +97,13 @@ Just review all your collection of experiments you did and combine them under Yo
 Competition creates a zeal to lead, and if you add some flavor to it. Then, people will love to take part in it. So, waiting for what? Just come out with YouTube Shorts funny Video Competition ideas to grab the audience to watch the videos and become active participants.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
 
@@ -108,6 +129,19 @@ Pets are the favorite of those who own them. They are excellent; they play, danc
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
 
 #### Idea 10: Talent showcase
@@ -119,6 +153,13 @@ Everybody holds some unique talent. You just need to identify it. If you have so
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
@@ -166,13 +207,18 @@ Thus, start utilizing these powerful ideas and tips and head towards your YouTub
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -180,57 +226,20 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-success-with-these-top-15-youtube-introduction-techniques/"><u>[New] 2024 Approved  Charting Success with These Top 15 YouTube Introduction Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-chuckles-galore-navigate-the-best-15-comedic-youtube-crews/"><u>[New] 2024 Approved  Chuckles Galore  Navigate the Best 15 Comedic YouTube Crews</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-create-impact-with-intro-excellence-best-free-services-reviewed/"><u>[New] 2024 Approved  Create Impact with Intro Excellence  Best Free Services Reviewed</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dial-in-the-ideal-aspect-ratio-for-stunning-youtube-videos/"><u>[New] 2024 Approved  Dial in the Ideal Aspect Ratio for Stunning YouTube Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-unlocking-the-potential-of-your-ppt-with-professional-recording/"><u>[New] 2024 Approved  Unlocking the Potential of Your PPT with Professional Recording</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-aspect-ratios-decoded-youtube-edition-a-quick-reference-guide-for-2024/"><u>[New] Aspect Ratios Decoded  YouTube Edition – A Quick Reference Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-charting-a-course-for-growth-precise-youtube-stats-from-social-blades-hub-for-2024/"><u>[New] Charting a Course for Growth  Precise YouTube Stats From Social Blade's Hub for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-drive-more-viewers-to-your-videos-top-growth-hacks-for-2024/"><u>[New] Drive More Viewers to Your Videos  Top Growth Hacks for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-insights-for-asmr-aficionados-for-2024/"><u>[New] Essential Insights for ASMR Aficionados for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-captivating-videos-start-here-these-7-royalty-free-audios/"><u>[New] In 2024, Captivating Videos Start Here  These 7 Royalty-Free Audios</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-designing-effective-video-previews-for-channels/"><u>[New] In 2024, Designing Effective Video Previews for Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-mechanics-of-youtube-shorts-monetization/"><u>[New] The Mechanics of YouTube Shorts Monetization</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-building-mental-armor-against-online-critics/"><u>[Updated] 2024 Approved  Building Mental Armor Against Online Critics</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-capturing-life-on-camera-mastering-the-art-of-vlogging/"><u>[Updated] 2024 Approved  Capturing Life on Camera  Mastering the Art of Vlogging</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-designing-effective-video-previews-for-channels/"><u>[Updated] 2024 Approved  Designing Effective Video Previews for Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-essential-knowledge-for-youtube-short-creators-for-2024/"><u>[Updated] Essential Knowledge for YouTube Short Creators for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-15-online-audio-haven-sites-for-video-content-makers/"><u>[Updated] In 2024, 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-beauty-tutorials-unveiled-creating-a-youtube-channel-from-scratch/"><u>[Updated] In 2024, Beauty Tutorials Unveiled  Creating a YouTube Channel From Scratch</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-behind-closed-doors-of-youtube-a-discovery-manual/"><u>[Updated] In 2024, Behind Closed Doors of YouTube  A Discovery Manual</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-ios-leading-video-capture-solutions/"><u>[Updated] In 2024, IOS Leading Video Capture Solutions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-innovators-designing-online-marvel-experiences/"><u>[Updated] Innovators Designing Online Marvel Experiences</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-structuring-inspirational-lifestyle-content-for-audiences/"><u>[Updated] Structuring Inspirational Lifestyle Content for Audiences</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-roadmap-to-captivating-music-visuals-lyric-video-maker-guidebook/"><u>[Updated] The Roadmap to Captivating Music Visuals  Lyric Video Maker Guidebook</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-undisclosed-browsing-of-fb-stories/"><u>[Updated] Undisclosed Browsing of FB Stories</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-tv-potential-with-social-medias-facebook-live-streams/"><u>[Updated] Unlocking TV Potential with Social Media's Facebook Live Streams</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-secret-behind-successful-youtube-thumbnails/"><u>[Updated] Unveiling The Secret Behind Successful YouTube Thumbnails</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-oppo-reno-9a-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-best-free-android-capture-app-zero-ads/"><u>2024 Approved  Best Free Android Capture App, Zero Ads</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-the-10-finest-iphone-photo-editors-and-filters/"><u>2024 Approved  Explore the 10 Finest iPhone Photo Editors & Filters</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-zero-to-hero-simple-nft-creation-pathway/"><u>2024 Approved  From Zero to Hero  Simple NFT Creation Pathway</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-sculpt-personalized-digital-laughs-now/"><u>2024 Approved  Sculpt Personalized Digital Laughs Now</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unifying-visual-experience-in-iphone-recording/"><u>2024 Approved  Unifying Visual Experience in iPhone Recording</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/chill-bites-analysis-in-depth-review-of-ice-cream-recorder-for-2024/"><u>Chill Bites Analysis  In-Depth Review of Ice Cream Recorder for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-honor-90-gt-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Honor 90 GT Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Samsung Galaxy A05s? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-leading-20-creative-anime-music-starts/"><u>In 2024, Leading 20 Creative Anime Music Starts</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone 6s Plus</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-journey-to-glamorous-guruship-launching-an-aesthetic-channel/"><u>In 2024, Your Journey to Glamorous Guruship  Launching an Aesthetic Channel</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/premium-download-experience-best-youtube-playlist-extractors-reviewed-for-2024/"><u>Premium Download Experience  Best YouTube Playlist Extractors Reviewed for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/simplify-coordination-blending-zoom-into-your-gmail-schedule/"><u>Simplify Coordination  Blending Zoom Into Your Gmail Schedule</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/stepwise-guide-to-youtube-video-enhancement-in-imovie-for-2024/"><u>Stepwise Guide to YouTube Video Enhancement in iMovie for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-art-of-auditory-enhancement-on-youtube-for-2024/"><u>Unveiling the Art of Auditory Enhancement on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secrets-of-popularity-a-guide-to-15-best-opener-plans-for-2024/"><u>Unveiling the Secrets of Popularity  A Guide to 15 Best Opener Plans for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unraveling-instagrams-policies-on-sharing-songs/"><u>[New] Unraveling Instagram's Policies on Sharing Songs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-drones-unleashed-selecting-the-right-supplementary-gear/"><u>[Updated] In 2024, Drones Unleashed Selecting the Right Supplementary Gear</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prosperity-through-streaming-a-youtube-money-blueprint/"><u>[Updated] Prosperity Through Streaming A YouTube Money Blueprint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-securely-growing-your-channels-popularity-a-one-million-goal-guide/"><u>[Updated] Securely Growing Your Channel's Popularity A One-Million Goal Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shot-selection-mastery-making-every-frame-count-on-youtube/"><u>[Updated] Shot Selection Mastery Making Every Frame Count on YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-streamlined-approach-record-movies-everywhere-you-go/"><u>[Updated] Streamlined Approach Record Movies Everywhere You Go</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-filmmakers-guide-producing-engaging-youtube-splits/"><u>[Updated] The Filmmaker's Guide Producing Engaging YouTube Splits</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-opinion-the-ultimate-guide-to-the-garmin-forerunner-265-smartwatch-review/"><u>Expert Opinion: The Ultimate Guide to the Garmin Forerunner 265 Smartwatch Review</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-does-chatgpt-enable-remote-control-over-smart-household-gadgets/"><u>How Does ChatGPT Enable Remote Control Over Smart Household Gadgets?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a34-5g-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Samsung Galaxy A34 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-sync-contacts-from-apple-iphone-12-pro-to-ipad-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Sync Contacts from Apple iPhone 12 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/stop-game-crashing-in-life-is-strange-true-colors-a-proven-fix-that-works/"><u>Stop Game Crashing in Life Is Strange: True Colors - A Proven Fix That Works</u></a></li>
 </ul></div>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
