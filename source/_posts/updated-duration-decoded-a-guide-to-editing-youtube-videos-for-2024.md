@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos for 2024\""
-date: 2024-09-11T22:02:28.740Z
-updated: 2024-09-12T22:02:28.740Z
+date: 2024-09-16T16:00:55.959Z
+updated: 2024-09-18T16:05:58.419Z
 tags:
   - ai video
   - ai youtube
@@ -36,13 +36,6 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -53,13 +46,6 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -68,25 +54,11 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -95,13 +67,6 @@ What is more, if you want to increase the length, you have to drag the bar to th
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -118,14 +83,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-perfect-tunes-essential-music-guide-for-instagram-clips/"><u>[Updated] 2024 Approved Perfect Tunes Essential Music Guide for Instagram Clips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-smooth-and-swift-designing-your-best-thumbnails/"><u>[Updated] Smooth & Swift Designing Your Best Thumbnails</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-strategic-hashing-techniques-for-success-in-youtube-game-vids/"><u>[Updated] Strategic Hashing Techniques for Success in YouTube Game Vids</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>[Updated] Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-essential-guide-to-creating-effective-video-loops-on-instagram/"><u>[Updated] The Essential Guide to Creating Effective Video Loops on Instagram</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-youtubes-potential-establishing-an-effective-upload-cadence/"><u>[Updated] Unlocking YouTube's Potential Establishing an Effective Upload Cadence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unseen-horizons-the-top-3-non-youtube-video-havens/"><u>[Updated] Unseen Horizons The Top 3 Non-Youtube Video Havens</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/decoding-the-dynamics-of-whatsapp-audio-communication/"><u>Decoding the Dynamics of WhatsApp Audio Communication</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-eradicate-your-rocket-league-crash-problems-in-202n4/"><u>Troubleshooting Steps: Eradicate Your Rocket League Crash Problems in 202N4</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-high-speed-film-gatherer-for-timelapse-top5/"><u>[Updated] In 2024, High-Speed Film Gatherer for Timelapse #Top5</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-validating-your-yt-channels-earnings/"><u>[Updated] The Ultimate Guide to Validating Your YT Channel's Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-mobile-sound-treat-asmr/"><u>[Updated] The Ultimate Mobile Sound Treat ASMR</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-windows-movie-maker-tips-for-youtube-editing-excellence/"><u>[Updated] Windows Movie Maker Tips for YouTube Editing Excellence</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-immersive-play-samsung-vr-classics/"><u>2024 Approved Immersive Play Samsung VR Classics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/apple-takes-center-stage-with-ai-advancements-presented-at-wwdc-24th-edition/"><u>Apple Takes Center Stage with AI Advancements Presented at WWDC 24Th Edition</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-iphone-wireless-charging-issues-with-these-7-quick-tips/"><u>Fix iPhone Wireless Charging Issues with These 7 Quick Tips</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-assessing-used-ipads-key-points-for-smart-shopping/"><u>The Ultimate Guide to Assessing Used iPads - Key Points for Smart Shopping</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

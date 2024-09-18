@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Shot Selection Mastery  Making Every Frame Count on YouTube\""
-date: 2024-09-11T21:58:31.580Z
-updated: 2024-09-12T21:58:31.580Z
+date: 2024-09-13T16:00:21.061Z
+updated: 2024-09-18T16:14:35.196Z
 tags:
   - ai video
   - ai youtube
@@ -27,19 +27,6 @@ thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf33
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -73,19 +60,6 @@ thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf33
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -102,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf33
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -118,13 +85,6 @@ thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf33
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -148,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf33
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -170,21 +123,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-avoiding-strikes-youtube-edition-for-2024/"><u>[New] Avoiding Strikes YouTube Edition for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-ios-and-android-tips-for-silent-youtube-viewing/"><u>[New] IOS & Android Tips for Silent YouTube Viewing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/eep-up-to-date-with-youtube-community-guidelines/"><u>[New] Keep Up-to-Date With YouTube Community Guidelines</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2023s-social-media-video-extractor-for-all-platforms-for-2024/"><u>[Updated] 2023'S Social Media Video Extractor for All Platforms for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-step-by-step-guide-for-video-narration-implementation/"><u>[Updated] Step-By-Step Guide for Video Narration Implementation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-strategies-for-captivating-end-moments/"><u>[Updated] Strategies for Captivating End Moments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-greatest-satirical-serenades/"><u>[Updated] The Greatest Satirical Serenades</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-smudge-solution-blurring-visions-in-video-content/"><u>[Updated] The Smudge Solution Blurring Visions in Video Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-turn-your-youtube-tracks-into-mp3-with-macos-for-2024/"><u>[Updated] Turn Your YouTube Tracks Into MP3 with MacOS for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-whats-the-take-home-from-each-youtube-sponsored-play/"><u>[Updated] What's the Take-Home From Each YouTube Sponsored Play?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-conversion-made-simple-learn-how-without-spending-a-dime/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-the-silent-skies-solutions-for-your-skyrim-audio-issues/"><u>Fixing the Silent Skies: Solutions for Your Skyrim Audio Issues</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/restore-sound-to-your-xbox-one-setup-effective-troubleshooting-steps/"><u>Restore Sound to Your Xbox One Setup - Effective Troubleshooting Steps</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-s24-ultra-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/solution-guide-optimizing-gpu-usage-in-call-of-duty-warzone-on-windows-10/"><u>Solution Guide: Optimizing GPU Usage in Call of Duty: Warzone on Windows 10</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/warm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds-for-2024/"><u>Warm Up Your Visuals A Guide to Top Cozy Winter Backgrounds for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-step-by-step-guide-to-iphone-screen-capturing/"><u>[New] In 2024, Step-by-Step Guide to Iphone Screen Capturing</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-proactive-copyright-verification-for-your-tiktok-videos-for-2024/"><u>[Updated] Proactive Copyright Verification for Your TikTok Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prosperity-through-streaming-a-youtube-money-blueprint/"><u>[Updated] Prosperity Through Streaming A YouTube Money Blueprint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-silencing-the-spotlight-avoiding-vloggers-fears/"><u>[Updated] Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-video-creators-blueprint-to-legal-and-profitable-streaming/"><u>[Updated] The Video Creator's Blueprint to Legal and Profitable Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-winter-vibes-selecting-heated-background-ideas/"><u>[Updated] Winter Vibes Selecting Heated Background Ideas</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-clear-path-to-silencing-amber-notifications-strategies-for-your-android-user-experience/"><u>A Clear Path to Silencing AMBER Notifications: Strategies for Your Android User Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/beat-lag-like-a-pro-improve-your-fortnite-experience-with-effective-troubleshooting/"><u>Beat Lag Like a Pro: Improve Your Fortnite Experience with Effective Troubleshooting</u></a></li>
+<li><a href="https://win-blog.techidaily.com/finding-solutions-to-the-gta-nvidia-error-on-launch/"><u>Finding Solutions to the GTA nVidia Error on Launch</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/forget-the-delay-explore-our-handpicked-selection-of-free-desktop-based-alternatives-to-chatgpt/"><u>Forget the Delay - Explore Our Handpicked Selection of Free Desktop-Based Alternatives to ChatGPT</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-horizonhawk-reality-check/"><u>In 2024, HorizonHawk Reality Check</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-complete-walkthrough-on-how-to-win-at-pokemon-unite/"><u>The Complete Walkthrough on How To Win At Pokémon Unite</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

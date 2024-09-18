@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Free Templates for Dynamic YouTube Channel Closures"
-date: 2024-09-11T22:03:41.538Z
-updated: 2024-09-12T22:03:41.538Z
+date: 2024-09-12T16:15:50.989Z
+updated: 2024-09-18T16:18:44.224Z
 tags:
   - ai video
   - ai youtube
@@ -32,13 +32,6 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Free End Screen Templates Download
 
@@ -72,19 +65,6 @@ Those who do not have PhotoShop can use Taha Chimar’s end screen designs that 
 
 ![taha-chimar-youtube-end-screen](https://images.wondershare.com/filmora/article-images/taha-chimar-youtube-end-screen.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To download, you will have to follow a URL link in the description box of the YouTube videos. Be careful, though, as a lot of the links lead to free hosting websites with pop-ups that can harm your computer if you are easily fooled by them.
 
 #### 4. SoapyEdits
@@ -95,13 +75,6 @@ Here are some of our favorite ones.
 
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
@@ -110,13 +83,6 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
@@ -124,13 +90,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -141,19 +100,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -167,29 +113,9 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -212,20 +138,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-direct-download-and-mp3-creation-for-streaming-video-files-for-2024/"><u>[New] Direct Download & MP3 Creation for Streaming Video Files for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-becoming-the-ultimate-streamer-on-youtube-and-twitch-using-obs/"><u>[Updated] In 2024, Becoming the Ultimate Streamer on YouTube and Twitch Using OBS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-reverse-engineering-a-youtube-ban/"><u>[Updated] Reverse Engineering a YouTube Ban</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-starter-kit-the-essential-youtube-setup/"><u>[Updated] Starter Kit The Essential YouTube Setup</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-core-interface-youtube-studio-explained/"><u>[Updated] The Core Interface YouTube Studio Explained</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-potential-with-these-essential-editing-tips-for-beginners/"><u>[Updated] Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youth-empowerment-your-life-story-can-inspire/"><u>[Updated] Youth Empowerment Your Life Story Can Inspire</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-outlining-expenses-creating-a-music-video/"><u>2024 Approved Outlining Expenses Creating a Music Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-costs-on-social-media-management-with-these-5-strategies/"><u>Cut Costs on Social Media Management with These 5 Strategies</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/ensuring-optimal-display-a-how-to-on-installing-new-graphics-drivers-in-windows-11/"><u>Ensuring Optimal Display: A How-To on Installing New Graphics Drivers in Windows 11</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-itel-a60s-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Itel A60s Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-nubia-red-magic-8s-proplus-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Nubia Red Magic 8S Pro+</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/solve-your-pc-problems-with-these-easy-fixes-for-the-football-manager-2e-22-game-crash/"><u>Solve Your PC Problems with These Easy Fixes for the Football Manager 2E 22 Game Crash</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-motorola-one-hyper-uncovered-a-potent-blend-of-value-and-vibrancy-in-a-mid-range-device/"><u>The Motorola One Hyper Uncovered: A Potent Blend of Value and Vibrancy in a Mid-Range Device</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-choosing-best-free-srt-translators-online/"><u>The Ultimate Guide to Choosing Best FREE SRT Translators Online</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-magix-acid-pro-review-a-look-at-similar-programs/"><u>[New] Magix ACID Pro Review A Look at Similar Programs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-hand-held-balance-for-sharp-images-for-2024/"><u>[Updated] Hand-Held Balance for Sharp Images for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prosperity-through-streaming-a-youtube-money-blueprint/"><u>[Updated] Prosperity Through Streaming A YouTube Money Blueprint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-securely-growing-your-channels-popularity-a-one-million-goal-guide/"><u>[Updated] Securely Growing Your Channel's Popularity A One-Million Goal Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shot-selection-mastery-making-every-frame-count-on-youtube/"><u>[Updated] Shot Selection Mastery Making Every Frame Count on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-filmmakers-guide-producing-engaging-youtube-splits/"><u>[Updated] The Filmmaker's Guide Producing Engaging YouTube Splits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-blueprint-for-broadcasting-breaks/"><u>2024 Approved Blueprint for Broadcasting Breaks</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-on-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working On iPhone 14 Plus</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-finding-the-cause-of-your-car-speaker-malfunction/"><u>Troubleshooting: Finding the Cause of Your Car Speaker Malfunction</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

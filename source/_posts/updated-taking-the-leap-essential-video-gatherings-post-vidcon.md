@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Taking the Leap  Essential Video Gatherings (Post-VidCon)\""
-date: 2024-09-11T21:58:58.093Z
-updated: 2024-09-12T21:58:58.093Z
+date: 2024-09-12T16:08:49.107Z
+updated: 2024-09-18T16:00:19.451Z
 tags:
   - ai video
   - ai youtube
@@ -36,31 +36,11 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -99,13 +79,6 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -165,13 +138,6 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -183,13 +149,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -228,13 +187,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 **London, UK:** August
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
@@ -275,17 +227,27 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ndroid-and-ios-top-asmr-audio-picks/"><u>[New] Android and iOS Top ASMR Audio Picks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-multimedia-a-detailed-review-of-video-editors/"><u>[New] Mastering Multimedia A Detailed Review of Video Editors</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-mastering-the-art-of-videography-a-comparative-analysis-between-tiktok-and-snap/"><u>[Updated] In 2024, Mastering the Art of Videography A Comparative Analysis Between TikTok and Snap</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unleash-the-fun-of-jumping-into-tiktok-lives/"><u>[Updated] In 2024, Unleash the Fun of Jumping Into TikTok Lives</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-leading-non-zoom-remote-work-solutions-for-pc-and-mobile/"><u>[New] Leading Non-Zoom Remote Work Solutions for PC & Mobile</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-embrace-sound-narratives-on-ipadiphone-downloading-apple-podcasts/"><u>[Updated] 2024 Approved Embrace Sound Narratives on iPad/iPhone Downloading Apple Podcasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-premium-10-audio-enhancers-for-multiple-systems/"><u>[Updated] In 2024, Premium 10 Audio Enhancers for Multiple Systems</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-strategies-for-captivating-end-moments/"><u>[Updated] Strategies for Captivating End Moments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-transforming-life-experiences-into-engaging-yt-videos/"><u>[Updated] Transforming Life Experiences Into Engaging YT Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-tailored-audio-gear-choosing-mics-for-diverse-video-platforms/"><u>2024 Approved Tailored Audio Gear Choosing Mics for Diverse Video Platforms</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/broadcom-netlink-ethernet-drivers-compatible-updated-and-installed-for-windows-10-users/"><u>Broadcom NetLink Ethernet Drivers - Compatible, Updated & Installed for Windows 10 Users</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/t-friendly-designs-for-youtube-content-creators/"><u>Budget-Friendly Designs for YouTube Content Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/common-causes-and-solutions-for-metro-exodus-game-crashes-on-desktops/"><u>Common Causes and Solutions for Metro Exodus Game Crashes on Desktops</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigate-the-digital-landscape-discover-these-10-sites-of-3d-graffiti-brilliance/"><u>In 2024, Navigate the Digital Landscape Discover These 10 Sites of 3D Graffiti Brilliance</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/1715859972579-in-2024-quick-guide-to-incor-written-as-a-python-list-which-represents-the-30-titles-above-the-elements-of-this-list-should-be-strings-that-are-already-comp/"><u>In 2024, Quick Guide to Incor Written as a Python List, Which Represents the 30 Titles Above. The Elements of This List Should Be Strings that Are Already Complete Sentences and Adhere to the Given Constraints. Ensure No Title Exceeds 156 Characters.</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-greatest-satirical-serenades/"><u>[Updated] The Greatest Satirical Serenades</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-smudge-solution-blurring-visions-in-video-content/"><u>[Updated] The Smudge Solution Blurring Visions in Video Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-whats-the-take-home-from-each-youtube-sponsored-play/"><u>[Updated] What's the Take-Home From Each YouTube Sponsored Play?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-conversion-made-simple-learn-how-without-spending-a-dime/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/optibackup-insider-opinions/"><u>OptiBackup Insider Opinions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-oppo-reno-11-pro-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Oppo Reno 11 Pro 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-xs-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone XS Prevention & Solution</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723210066041-resolving-adobe-flash-player-crashes-on-google-chrome-solved/"><u>Resolving Adobe Flash Player Crashes on Google Chrome - Solved!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/solution-guide-optimizing-gpu-usage-in-call-of-duty-warzone-on-windows-10/"><u>Solution Guide: Optimizing GPU Usage in Call of Duty: Warzone on Windows 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-aphaca-bt6-groovy-a-detailed-look-at-the-best-wireless-fm-transmitter-with-bluetooth-technology/"><u>The Aphaca BT6 Groovy? - A Detailed Look at the Best Wireless FM Transmitter with Bluetooth Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/warm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds-for-2024/"><u>Warm Up Your Visuals A Guide to Top Cozy Winter Backgrounds for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

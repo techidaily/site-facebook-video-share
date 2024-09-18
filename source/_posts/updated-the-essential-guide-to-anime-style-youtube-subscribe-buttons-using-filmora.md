@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Essential Guide to Anime-Style YouTube Subscribe Buttons Using Filmora\""
-date: 2024-09-11T21:59:36.213Z
-updated: 2024-09-12T21:59:36.213Z
+date: 2024-09-16T16:02:59.764Z
+updated: 2024-09-18T16:16:24.095Z
 tags:
   - ai video
   - ai youtube
@@ -30,60 +30,19 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Step-By-Step guide
 
 **Step 1:** To get started,open Filmora X. On your upper left corner, click on the "Sample Colors," select the Green color and drag it to Video Track into the timeline. We are using a Green background to easily remove it using the green screen feature in Filmora to use it in our future projects after exporting it, without creating it again. Adjust the duration of this track according to your requirement. In my case, I am trying to make an animated subscribe button of 5 seconds.![subscribe-button1](https://images.wondershare.com/filmora/article-images/subs-button1.png)
 
 **Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
 
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
 
@@ -93,32 +52,11 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
 
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
 
@@ -127,13 +65,6 @@ There are so many platforms on the internet from where you can get Youtube subsc
 **Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
 
 **Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
 
@@ -149,21 +80,7 @@ Conclusion：Your own Animated Subscribe Button is ready to be used in your futu
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -180,19 +97,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boost-engagement-with-effortless-youtube-thumbnail-tips/"><u>[Updated] 2024 Approved Boost Engagement with Effortless Youtube Thumbnail Tips</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-fresh-perspectives-on-logo-design-for-podcast-brands-for-2024/"><u>[Updated] Fresh Perspectives on Logo Design for Podcast Brands for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-cutting-edge-crossfading-steps-for-logic-pro-users/"><u>[Updated] In 2024, Cutting-Edge Crossfading Steps for Logic Pro Users</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-setting-up-personalized-video-shots-on-youtube/"><u>[Updated] Setting Up Personalized Video Shots on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-your-content-creation-iphoneipad-screen-recordings-on-youtube/"><u>[Updated] Streamline Your Content Creation IPhone/iPad Screen Recordings on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>[Updated] Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-freedom-from-ads-why-you-might-consider-youtube-premium/"><u>[Updated] The Freedom From Ads Why You Might Consider YouTube Premium</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-most-economical-tools-for-youtube-audio-conversion/"><u>[Updated] The Most Economical Tools for YouTube Audio Conversion</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-pewdiepies-paycheck-profile-a-glimpse-into-his-earnings/"><u>2024 Approved PewDiePie’s Paycheck Profile – A Glimpse Into His Earnings</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-download-the-latest-corsair-icue-software-windows-1110-supported/"><u>How to Download the Latest Corsair iCUE Software – Windows 11/10 Supported</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/soil-testing-identifies-specific-soil-needs-allowing-for-targeted-amendments-which-improves-crop-yields-reduces-waste-and-minimizes-environmental-harm-from-613/"><u>Soil Testing Identifies Specific Soil Needs, Allowing for Targeted Amendments, Which Improves Crop Yields, Reduces Waste, and Minimizes Environmental Harm From Over-Fertilization.</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-network-speed-limitations-on-phones-solutions-for-better-connectivity/"><u>Understanding Network Speed Limitations on Phones - Solutions for Better Connectivity</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-to-avi-mastery-top-8-convertors-reviewed-for-2024/"><u>YouTube to AVI Mastery Top 8 Convertors Reviewed for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-outlook-orders-analysis/"><u>[Updated] 2024 Approved Outlook Orders Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-adjustment-of-youtube-vids-for-mac-screen/"><u>[Updated] Rapid Adjustment of YouTube Vids for Mac Screen</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-step-by-step-guide-to-preserve-snapchat-videos-on-phone/"><u>2024 Approved Step-by-Step Guide to Preserve Snapchat Videos on Phone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722967608780-canon-imageclass-mf4800-printer-driver-download-get-started-now/"><u>Canon ImageCLASS MF4800 Printer Driver Download - Get Started Now!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/experience-unmatched-ease-sabrents-wireless-mobile-mouse-designed-for-exactness-and-reliability/"><u>Experience Unmatched Ease: Sabrent's Wireless Mobile Mouse Designed for Exactness and Reliability</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/exploring-the-comfort-of-mods-latest-innovation-the-user-friendly-sidecar-e-bike/"><u>Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-trifecta-guide-for-extracting-youtube-subtitled-content/"><u>In 2024, A Trifecta Guide for Extracting YouTube Subtitled Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-crystal-clarity-in-depth-comparison-of-premium-8k-monitors/"><u>In 2024, Crystal Clarity In-Depth Comparison of Premium 8K Monitors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/masterclass-review-unpacking-the-features-of-android-lightroom/"><u>Masterclass Review Unpacking the Features of Android Lightroom</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/simplified-steps-to-documenting-fb-chats-and-calls/"><u>Simplified Steps to Documenting FB Chats and Calls</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

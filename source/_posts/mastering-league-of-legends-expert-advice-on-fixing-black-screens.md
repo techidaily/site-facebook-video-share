@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-09-11T21:58:05.917Z
-updated: 2024-09-12T21:58:05.917Z
+date: 2024-09-14T16:07:28.548Z
+updated: 2024-09-18T16:01:53.779Z
 tags:
   - win11
   - win10
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 * [Fix 5: Enable low spec mode](https://tools.techidaily.com/drivereasy/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 1: Make sure your PC meets meets the system requirements for League of Legends
 
@@ -89,19 +82,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
 
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee.
@@ -120,23 +100,9 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-62-1024x796.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Click**Download** if Windows detects any new updates. If not, then click**Check for updates** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3) Wait until Windows downloaded and installed all the updates.
 
@@ -155,10 +121,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Click**Initiate Full Repair** .
@@ -172,10 +138,16 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5: Enable low spec mode
@@ -191,15 +163,34 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap778.png)
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Run League of Legends to see if you resolved this issue.
 
@@ -223,12 +214,20 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-tips.techidaily.com/new-understanding-luts-to-amplify-your-photo-quality/"><u>[New] Understanding LUTs to Amplify Your Photo Quality</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-silencing-the-spotlight-avoiding-vloggers-fears/"><u>[Updated] Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-animators-choice-full-review-2024-edition/"><u>[New] Animator's Choice Full Review - 2024 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-startups-guide-to-earnings-on-youtube-platform/"><u>[Updated] Startups' Guide to Earnings on YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-learning-processes-with-detailed-chaptering-for-educational-youtube-videos/"><u>[Updated] Streamline Learning Processes with Detailed Chaptering for Educational YouTube Videos</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-stylish-profiles-easy-downloads/"><u>[Updated] Stylish Profiles, Easy Downloads</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-realme-narzo-60-pro-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Realme Narzo 60 Pro 5G Phone?</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/mastering-morrowinds-legacy-the-ultimate-guide-to-elder-scrolls-v-skyrim-for-switch/"><u>Mastering Morrowind's Legacy: The Ultimate Guide to Elder Scrolls V - Skyrim for Switch</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-the-content-file-locked-error-on-steam-platform/"><u>Overcoming the 'Content File Locked' Error on Steam Platform</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/overcoming-the-challenge-solving-the-entry-point-not-found-problem-in-fortnite/"><u>Overcoming the Challenge: Solving the 'Entry Point Not Found' Problem in Fortnite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-thriving-online-a-strategy-guide-for-building-youtube-links/"><u>[Updated] Thriving Online A Strategy Guide for Building YouTube Links</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-audio-amplifiers-for-home-office-setups/"><u>[Updated] Top 10 Audio Amplifiers for Home-Office Setups</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-understanding-and-implementing-audio-ebb-in-premiere-pro/"><u>[Updated] Understanding and Implementing Audio Ebb in Premiere Pro</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-through-the-excellent-5-virtual-title-experts/"><u>2024 Approved Navigating Through the Excellent 5 Virtual Title Experts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/a-comprehensive-review-the-good-and-not-so-good-in-qc30/"><u>A Comprehensive Review: The Good & Not-So-Good in QC30</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-elite-8-cameras-revolutionizing-online-broadcasts/"><u>In 2024, Elite 8 Cameras Revolutionizing Online Broadcasts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/intova-x-reviewed-cutting-edge-action-capture/"><u>Intova X Reviewed Cutting-Edge Action Capture</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-canon-mf7n3cdw-printer-driver-software-for-microsoft-windows-devices/"><u>Latest Canon MF7n3CDW Printer Driver Software for Microsoft Windows Devices</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solutions-restoring-functionality-to-a-non-responsive-lenovo-keyboard/"><u>Step-by-Step Solutions: Restoring Functionality to a Non-Responsive Lenovo Keyboard</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/writers-guide-embedding-images-in-articles-without-spending-for-2024/"><u>Writers' Guide Embedding Images in Articles Without Spending for 2024</u></a></li>
 </ul></div>
 

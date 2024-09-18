@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike"
-date: 2024-09-11T22:00:07.887Z
-updated: 2024-09-12T22:00:07.887Z
+date: 2024-09-15T16:04:49.939Z
+updated: 2024-09-18T16:00:59.380Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike"
@@ -37,13 +37,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -69,19 +62,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -100,20 +80,20 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -121,26 +101,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -159,13 +126,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -177,10 +137,10 @@ Lifewire / Erika Rawes
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -214,21 +174,14 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-defeat-synthetic-followers-for-true-popularity-peak/"><u>[New] 2024 Approved Defeat Synthetic Followers for True Popularity Peak</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-step-by-step-techniques-for-recording-team-conversations/"><u>[Updated] In 2024, Step-by-Step Techniques for Recording Team Conversations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-adjustment-of-youtube-vids-for-mac-screen/"><u>[Updated] Rapid Adjustment of YouTube Vids for Mac Screen</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-transfer/"><u>[Updated] Transfer</u></a></li>
-<li><a href="https://extra-information.techidaily.com/audio-integration-into-visual-screens-via-apple/"><u>Audio Integration Into Visual Screens via Apple</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/evaluating-compromises-in-hp-stream-14-a-cost-effective-windows-laptop-overview/"><u>Evaluating Compromises in HP Stream 14: A Cost-Effective Windows Laptop Overview</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/frame-your-photos-right-a-guide-to-top-notch-edges-in-instagram/"><u>Frame Your Photos Right A Guide to Top-Notch Edges in Instagram</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/freezing-your-window-windows-screenshoting-guide-for-2024/"><u>Freezing Your Window Windows Screenshoting Guide for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-turn-off-find-my-iphone-14-when-phone-is-broken-by-drfone-ios/"><u>How to Turn Off Find My iPhone 14 when Phone is Broken?</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Best Phone Monitoring Apps for Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-mend-facebook-story-playback-pauses/"><u>In 2024, Mend Facebook Story Playback Pauses</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/llama-2-the-key-to-streamlined-processes-and-productivity/"><u>Llama 2: The Key to Streamlined Processes and Productivity</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/strategies-for-acquiring-flawless-photos-on-the-internet/"><u>Strategies for Acquiring Flawless Photos on the Internet</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/transforming-my-podcast-scripts-using-chatgpt-a-detailed-narrative/"><u>Transforming My Podcast Scripts Using ChatGPT: A Detailed Narrative</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/vloggers-with-the-largest-digital-incomes-for-2024/"><u>Vloggers with the Largest Digital Incomes for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-to-gif-magic-your-ultimate-guide-to-animated-images-for-2024/"><u>Youtube to Gif Magic Your Ultimate Guide to Animated Images for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-easily-download-your-favorites-handpicked-tools-reviewed/"><u>[New] 2024 Approved Easily Download Your Favorites Handpicked Tools Reviewed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-effortless-electronic-exchange-how-to-transfer-files/"><u>[New] Effortless Electronic Exchange How To Transfer Files</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-meerkat-experts-live-at-snapchat-spotlight/"><u>[Updated] In 2024, Meerkat Experts Live at Snapchat Spotlight</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-validating-your-yt-channels-earnings/"><u>[Updated] The Ultimate Guide to Validating Your YT Channel's Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-mobile-sound-treat-asmr/"><u>[Updated] The Ultimate Mobile Sound Treat ASMR</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-windows-movie-maker-tips-for-youtube-editing-excellence/"><u>[Updated] Windows Movie Maker Tips for YouTube Editing Excellence</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-21-edition-breakdown-analyzing-the-revolution-in-vegas-pro-gaming/"><u>2024 Approved '21 Edition Breakdown – Analyzing the Revolution in Vegas Pro Gaming</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/complete-guide-for-seamlessly-linking-content-into-your-tiktok-profile-for-2024/"><u>Complete Guide for Seamlessly Linking Content Into Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your Apple iPhone 12 Pro Max</u></a></li>
 </ul></div>
 

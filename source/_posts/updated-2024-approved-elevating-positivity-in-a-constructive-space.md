@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-09-11T22:04:13.739Z
-updated: 2024-09-12T22:04:13.739Z
+date: 2024-09-16T16:16:18.953Z
+updated: 2024-09-18T16:00:03.723Z
 tags:
   - ai video
   - ai youtube
@@ -25,13 +25,6 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -61,19 +54,6 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -89,18 +69,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-ensuring-authenticity-of-your-youtube-account/"><u>[New] Ensuring Authenticity of Your YouTube Account</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-expert-insights-into-mov-file-recording-on-latest-win-11-edition/"><u>[Updated] 2024 Approved Expert Insights Into .MOV File Recording on Latest Win 11 Edition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-dominate-search-results-powerful-youtube-seo-techniques-exposed-for-2024/"><u>[Updated] Dominate Search Results Powerful YouTube SEO Techniques Exposed for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-securely-growing-your-channels-popularity-a-one-million-goal-guide/"><u>[Updated] Securely Growing Your Channel's Popularity A One-Million Goal Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-filmmakers-guide-producing-engaging-youtube-splits/"><u>[Updated] The Filmmaker's Guide Producing Engaging YouTube Splits</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-greatest-satirical-serenades/"><u>[Updated] The Greatest Satirical Serenades</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-whats-the-take-home-from-each-youtube-sponsored-play/"><u>[Updated] What's the Take-Home From Each YouTube Sponsored Play?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-conversion-made-simple-learn-how-without-spending-a-dime/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-skincare-and-sensational-looks/"><u>2024 Approved Skincare and Sensational Looks</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/a-detailed-guide-to-advanced-human-interface-systems-for-2024/"><u>A Detailed Guide to Advanced Human Interface Systems for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-windows-10-mastering-photo-and-video-importation/"><u>In 2024, Unveiling Windows 10 Mastering Photo & Video Importation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/solution-guide-optimizing-gpu-usage-in-call-of-duty-warzone-on-windows-10/"><u>Solution Guide: Optimizing GPU Usage in Call of Duty: Warzone on Windows 10</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/successful-configuration-yet-device-remains-quiet/"><u>Successful Configuration, Yet Device Remains Quiet</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beginning-the-video-odyssey-how-to-create-an-engaging-youtube-channel/"><u>[New] In 2024, Beginning the Video Odyssey How to Create an Engaging YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transforming-your-youtube-profile-descriptions/"><u>[New] Transforming Your YouTube Profile Descriptions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-most-affordable-gaming-tunes-top-10-lists-for-2024/"><u>[Updated] The Most Affordable Gaming Tunes Top 10 Lists for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-audio-archives-the-essential-guide-with-8-key-techniques/"><u>2024 Approved Mastering Audio Archives The Essential Guide with 8 Key Techniques</u></a></li>
+<li><a href="https://fox-that.techidaily.com/comprehensive-fix-for-mobile-network-sim-not-provisioned-mmi-2-glitches/"><u>Comprehensive Fix for Mobile Network SIM Not Provisioned MMI 2 Glitches</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-virtual-artisans-haven-retreat/"><u>In 2024, Virtual Artisans' Haven Retreat</u></a></li>
+<li><a href="https://driver-error.techidaily.com/optimizing-razer-hats-for-windows-11/"><u>Optimizing Razer HATs for Windows 11</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

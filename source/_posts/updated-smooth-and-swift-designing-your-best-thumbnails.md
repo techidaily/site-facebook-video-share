@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Smooth & Swift  Designing Your Best Thumbnails\""
-date: 2024-09-11T22:00:14.343Z
-updated: 2024-09-12T22:00:14.343Z
+date: 2024-09-12T16:06:02.288Z
+updated: 2024-09-18T16:11:44.600Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,6 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -54,29 +47,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
@@ -86,23 +59,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
@@ -124,13 +83,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
@@ -144,13 +96,6 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -167,15 +112,25 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-exploring-the-best-screenshot-apps-for-idevices/"><u>[New] Exploring the Best Screenshot Apps for iDevices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-game-on-with-these-5-must-have-broadcast-cams-for-2024/"><u>[Updated] Game on with These 5 Must-Have Broadcast Cams for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-legacy-linkup-suite/"><u>[Updated] In 2024, Legacy Linkup Suite</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-top-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>[Updated] Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-your-ultimate-youtube-to-avi-transformation-guidebook/"><u>[Updated] Your Ultimate YouTube-to-AVI Transformation Guidebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-analyzing-the-significance-of-instagrams-selfie-verification/"><u>2024 Approved Analyzing the Significance of Instagram's Selfie Verification</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-deciphering-the-secrets-of-zd-soft-recorder/"><u>2024 Approved Deciphering the Secrets of ZD Soft Recorder</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/comprehensive-solutions-dealing-with-counter-strike-2-cs2-sudden-shutdowns-in-the-newest-version-pc-edition/"><u>Comprehensive Solutions: Dealing with Counter-Strike 2 (CS2) Sudden Shutdowns in the Newest Version - PC Edition</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/critical-steps-in-logging-live-youtube-videos-for-2024/"><u>Critical Steps in Logging Live YouTube Videos for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/lead-capture-enhanced-solutions-powered-by-the-innovative-cookiebot-engine/"><u>Lead Capture Enhanced: Solutions Powered by the Innovative Cookiebot Engine</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unlocking-live-sports-install-and-watch-fubotv-on-your-fire-tv-device/"><u>Unlocking Live Sports: Install and Watch FuboTV on Your Fire TV Device</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gigabytes-needed-for-a-full-days-movie-watching/"><u>2024 Approved Gigabytes Needed for a Full Day's Movie Watching</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/comprehensive-guide-to-the-lg-um7300-49-inch-television-a-budget-friendly-4k-option/"><u>Comprehensive Guide to the LG UM7300 49-Inch Television: A Budget-Friendly 4K Option</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ensuring-error-free-website-launches-the-ultimate-pre-uploading-checklist/"><u>Ensuring Error-Free Website Launches: The Ultimate Pre-Uploading Checklist</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-tecno-spark-10c-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Tecno Spark 10C Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/income-journey-on-youtube-start-here-with-8-tips/"><u>Income Journey on YouTube - Start Here with 8 Tips</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visionaries-tools-revealed-premium-360cameras-of-2023/"><u>Visionaries' Tools Revealed Premium 360°Cameras of 2023</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/your-handy-hint-downloading-youtube-videos-to-your-apple-device-for-2024/"><u>Your Handy Hint Downloading YouTube Videos to Your Apple Device for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

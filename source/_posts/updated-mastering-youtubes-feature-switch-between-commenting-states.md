@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering YouTube's Feature  Switch Between Commenting States\""
-date: 2024-09-11T22:01:06.967Z
-updated: 2024-09-12T22:01:06.967Z
+date: 2024-09-15T16:01:17.999Z
+updated: 2024-09-18T16:06:28.050Z
 tags:
   - ai video
   - ai youtube
@@ -30,19 +30,6 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -59,13 +46,6 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -77,13 +57,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -117,13 +90,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -144,13 +110,6 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -168,13 +127,6 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -205,12 +157,28 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-quick-ways-to-retain-live-chat-transcripts/"><u>[Updated] In 2024, Quick Ways to Retain Live Chat Transcripts</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-screen-capture-showdown-comparing-bests-in-town-obs-vs-bandicam/"><u>[Updated] In 2024, Screen Capture Showdown Comparing Bests in Town – OBS vs Bandicam</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/f1-2020-on-pc-overcoming-persistent-crashing-problems-for-a-smoother-gaming-experience/"><u>F1 2020 on PC - Overcoming Persistent Crashing Problems for a Smoother Gaming Experience</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-nokia-105-classic-screen-sharing-drfone-by-drfone-android/"><u>How To Do Nokia 105 Classic Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-transform-viewers-criticism-into-content-enhancement/"><u>In 2024, How to Transform Viewers' Criticism Into Content Enhancement</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/viral-vortex-a-guide-to-powerful-social-media-tags-for-2024/"><u>Viral Vortex A Guide to Powerful Social Media Tags for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-profits-demystified-from-clicks-to-credit-for-2024/"><u>YouTube Profits Demystified From Clicks to Credit for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-explore-the-best-top-10-4k-mirrorless-camera-lists-for-2024/"><u>[Updated] Explore the Best Top 10 4K Mirrorless Camera Lists for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shine-on-top-17-studio-lights-for-youtube/"><u>[Updated] Shine On Top 17 Studio Lights for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-guide-to-anime-style-youtube-subscribe-buttons-using-filmora/"><u>[Updated] The Essential Guide to Anime-Style YouTube Subscribe Buttons Using Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[Updated] The Ultimate Guide Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-easy-guide-to-youtube-downloads-on-idevices/"><u>[Updated] Your Easy Guide to YouTube Downloads on iDevices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-angle-adjustment-a-step-by-step-editing-guide/"><u>[Updated] Youtube Angle Adjustment A Step-by-Step Editing Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-how-does-vidma-stack-up-as-a-screen-recorder/"><u>2024 Approved How Does Vidma Stack Up as a Screen Recorder?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/construct-humor-memes-via-adobe-for-2024/"><u>Construct Humor Memes via Adobe for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-honor-70-lite-5g-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Honor 70 Lite 5G Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-assassins-creed-valhalla-a-deep-dive-into-its-spectacular-viking-chronicles-and-historical-quests/"><u>Inside Assassin's Creed: Valhalla - A Deep Dive Into Its Spectacular Viking Chronicles and Historical Quests</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-xiaomi-redmi-a2plus-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Xiaomi Redmi A2+ Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/netatmo-weather-station-review-a-well-designed-weather-station-for-app-lovers/"><u>Netatmo Weather Station Review: A Well-Designed Weather Station For App-Lovers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/seamlessly-shift-songs-from-your-ipad-to-your-mac-on-macos-sierra/"><u>Seamlessly Shift Songs From Your iPad to Your Mac on macOS Sierra</u></a></li>
+<li><a href="https://article-posts.techidaily.com/taking-solo-shots-from-videos-in-windows-10-photos-interface/"><u>Taking Solo Shots From Videos in Windows 10 Photos Interface</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-honor-x50iplus-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Honor X50i+ Phone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/troubleshooting-anticheat-failure-errors-in-escape-from-tarkov-solved/"><u>Troubleshooting 'Anticheat Failure' Errors in Escape From Tarkov - Solved</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

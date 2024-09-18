@@ -1,7 +1,7 @@
 ---
 title: F1 2020 on PC - Overcoming Persistent Crashing Problems for a Smoother Gaming Experience
-date: 2024-09-11T21:59:43.923Z
-updated: 2024-09-12T21:59:43.923Z
+date: 2024-09-14T16:06:55.303Z
+updated: 2024-09-18T16:05:38.509Z
 tags:
   - win11
   - win10
@@ -34,13 +34,6 @@ System Requirements for Hyper Scape
 
  If your PC gear is good to go, check out the following fixes to get your game running perfectly again.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  Hyper Scape crashing can be caused by**faulty game files** ,**background apps** ,**outdated operating systems/drivers** , or**overclocking** , etc.
@@ -67,22 +60,21 @@ System Requirements for Hyper Scape
 ![Hyper Scape verify game files](https://images.drivereasy.com/wp-content/uploads/2020/09/Verify-game-files.jpg)
 4. It will take about 3-5 minutes to verify your game files. Once complete, try playing Hyper Scape again to test the issue.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![verify your game files](https://images.drivereasy.com/wp-content/uploads/2020/09/verify-your-game-files.jpg)
 
  If it helps you restore some missing/corrupted game files, you can play the game without any crashing now. But if this fix doesn’t work, don’t worry, for there’re more fixes to try.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 2: Run Hyper Scape as an administrator
@@ -95,30 +87,18 @@ System Requirements for Hyper Scape
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/Properties.jpg)
 3. Go to the**Compatibility** tab, and check**Run this program as an administrator.** Then click**Apply > OK** to save the changes.  
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![run Hyper Scape as admin](https://images.drivereasy.com/wp-content/uploads/2020/09/run-as-admin.jpg)
 4. You can also run your game launcher i.e. Uplay as an administrator.  
-![run uplay as admin](https://images.drivereasy.com/wp-content/uploads/2020/09/Run-Uplay-as-admin.jpg)
-5. Try playing Hyper Scape again to see if the crashes persist.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![run uplay as admin](https://images.drivereasy.com/wp-content/uploads/2020/09/Run-Uplay-as-admin.jpg)
+5. Try playing Hyper Scape again to see if the crashes persist.
 
  If you would like to grant administrative permissions only temporarily, right-click on the desktop icon of the game (or the executable file in the[installation directory](https://support.ubisoft.com/en-US/Faqs/000038997) ) and select**Run as Administrator** .
 
@@ -142,13 +122,6 @@ System Requirements for Hyper Scape
 
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 4: Disable background apps
 
  Some apps running in the background may interfere with your games. To check if this is the culprit of your game crashing, here’s how to do it:
@@ -159,36 +132,16 @@ System Requirements for Hyper Scape
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-1.jpg)
 2. Under the**General** tab, choose**Selective startup** , and uncheck**Load startup items** . Then click**Apply** \>**OK** .  
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/start-up-service.jpg)
 3. When you’re prompted to restart your PC. Make sure you’ve saved your files and click**Restart** .  
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/restart.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Try playing your game and see if Hyper Scape crashing still persists. If the game works fine now, it’s likely a background app is the culprit. But if Hyper Scape keeps crashing, you can move on to[fix 5](https://tools.techidaily.com/drivereasy/download/) .
@@ -201,28 +154,8 @@ System Requirements for Hyper Scape
 2. Type**msconfig** into the box and hit **Enter** .![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-1.jpg)
 3. Go to the **Services** tab and check the **Hide all Microsoft services** box. Then click **Disable all** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![open system configuration](https://images.drivereasy.com/wp-content/uploads/2020/09/system-config.jpg)
 4. Select the **Startup** tab and click **Open Task Manager** .  
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![task manager](https://images.drivereasy.com/wp-content/uploads/2020/09/Open-task-manager.jpg)
 5. Select each startup item and click**Disable** .  
@@ -239,25 +172,11 @@ System Requirements for Hyper Scape
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/check-for-updates.jpg)
 2. Click the**Check for updates** button. Windows will start checking for available updates and download them if there’re any.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/start-checking.jpg)
 
  Once the download is complete, follow the on-screen instructions to install all the updates.
 
 If your Hyper Scape keeps crashing, you can head to the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 6: Lower your graphics settings
 
@@ -301,11 +220,25 @@ Best graphics settings for Hyper Scape
 
  If you’ve turned V-Sync on, you can turn it to**Off** . This method has varying success, so you can move to the next fix if this doesn’t work.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 8: Switch to the windowed mode
 
  Many players find a windowed mode to fix their game crashing issues. When running your game, press**Alt + Enter** . If this keyboard shortcut doesn’t work, you can open the game’s graphics settings window and choose windowed mode instead.
 
  If this workaround doesn’t do the trick for you, you can switch out of windowed mode and re-enable full-screen mode afterward.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 9: Reinstall Uplay
 
@@ -316,13 +249,6 @@ Best graphics settings for Hyper Scape
 3. Uninstall the Uplay client from your PC. By default, the uninstall application is located in`C:Program Files (x86)UbisoftUbisoft Game Launcher` .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/Uninstall-Uplay.jpg)
 4. Run this application, and follow the on-screen instructions to complete the uninstall.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5. During the process, you will have the option to decide if you want to uninstall the games as well.
 6. [Download](https://uplay.ubisoft.com/en-GB) the latest version of Uplay.
@@ -352,15 +278,19 @@ Best graphics settings for Hyper Scape
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-creative-commons-legalities-explained-simply/"><u>[Updated] Creative Commons Legalities Explained Simply</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-kajis-wealth-kid-star-earnings-surpass-major-celebrities-for-2024/"><u>[Updated] Kaji’s Wealth Kid Star Earnings Surpass Major Celebrities for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-steps-to-clear-out-your-youtube-watch-later-collection/"><u>[Updated] Steps to Clear Out Your YouTube Watch Later Collection</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-first-step-into-youtube-creating-an-engaging-channel/"><u>[Updated] Your First Step Into YouTube Creating an Engaging Channel</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-angle-adjustment-a-step-by-step-editing-guide/"><u>[Updated] Youtube Angle Adjustment A Step-by-Step Editing Guide</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/experience-next-level-linux-gaming-with-tuxedos-sirius-gen2-featuring-all-amd-processing-and-stunning-165hz-ips-display-starting-at-1699/"><u>Experience Next-Level Linux Gaming with Tuxedo's Sirius Gen2 - Featuring All-AMD Processing & Stunning 165Hz IPS Display Starting at €1,699</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-the-ultimate-guide-for-the-10-leading-slow-motion-cameras-for-2024/"><u>New The Ultimate Guide for the 10 Leading Slow-Motion Cameras for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-ultimate-guide-to-creating-engaging-facebook-stories/"><u>The Ultimate Guide to Creating Engaging Facebook Stories</u></a></li>
-<li><a href="https://win-able.techidaily.com/unraveling-puzzles-in-cyberpunk-2077-solving-pc-stability-issues-for-an-uninterrupted-experience/"><u>Unraveling Puzzles in Cyberpunk 2077: Solving PC Stability Issues for an Uninterrupted Experience</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/viral-vortex-a-guide-to-powerful-social-media-tags-for-2024/"><u>Viral Vortex A Guide to Powerful Social Media Tags for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-perfect-pairing-of-livestream-tech-top-recommendations-for-youtubers/"><u>[Updated] In 2024, Perfect Pairing of Livestream Tech Top Recommendations for Youtubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shine-on-top-17-studio-lights-for-youtube/"><u>[Updated] Shine On Top 17 Studio Lights for YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-finest-tech-for-streaming-and-saving-your-video-conferences/"><u>[Updated] The Finest Tech for Streaming and Saving Your Video Conferences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[Updated] The Ultimate Guide Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-winning-strategies-for-youtube-seo-titles-and-descriptions/"><u>[Updated] Winning Strategies for YouTube SEO Titles & Descriptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-easy-guide-to-youtube-downloads-on-idevices/"><u>[Updated] Your Easy Guide to YouTube Downloads on iDevices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-audio-adventurers-guide-navigating-between-podcasts-and-youtube/"><u>2024 Approved Audio Adventurer’s Guide Navigating Between Podcasts & YouTube</u></a></li>
+<li><a href="https://win-dash.techidaily.com/best-practices-updating-your-targus-graphics-adapter-drivers-on-modern-windows-versions/"><u>Best Practices: Updating Your Targus Graphics Adapter Drivers on Modern Windows Versions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-plug-in-hub-4-key-improvements-to-enhance-user-satisfaction/"><u>ChatGPT Plug-In Hub – 4 Key Improvements to Enhance User Satisfaction</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/expert-advice-4-ways-to-cure-mysterious-question-marks/"><u>Expert Advice: 4 Ways to Cure Mysterious Question Marks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/netatmo-weather-station-review-a-well-designed-weather-station-for-app-lovers/"><u>Netatmo Weather Station Review: A Well-Designed Weather Station For App-Lovers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-fix-for-a-smooth-unwavering-surface-pro-visual-experience/"><u>Step-by-Step Fix for a Smooth, Unwavering Surface Pro Visual Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/troubleshooting-anticheat-failure-errors-in-escape-from-tarkov-solved/"><u>Troubleshooting 'Anticheat Failure' Errors in Escape From Tarkov - Solved</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-free-split-screen-video-creators-web-based-and-desktop-options/"><u>Updated 2024 Approved Free Split Screen Video Creators Web-Based and Desktop Options</u></a></li>
 </ul></div>
 

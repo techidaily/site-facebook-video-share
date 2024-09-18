@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Decoding the Visual Language of YouTube Thumbnails"
-date: 2024-09-11T22:01:49.160Z
-updated: 2024-09-12T22:01:49.160Z
+date: 2024-09-12T16:08:59.154Z
+updated: 2024-09-18T16:01:15.528Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,6 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 3. [YouTube Thumbnail Makers](#makers)
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: How to Make a YouTube Thumbnail
 
@@ -77,19 +70,6 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
@@ -97,13 +77,6 @@ One increasingly popular style of YouTube thumbnail is what we’re going to cal
 The three main elements of the Emotional Laser thumbnail are a background (usually bright), your face on the right wearing an over-pronounced expression, and either the thing your expression is in reaction to (i.e. food, a product, the topic of your video in text) or reinforcement of your emotion (i.e an emoji or question marks) on the left.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
 
@@ -127,13 +100,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -150,6 +116,13 @@ Remember when you’re uploading custom thumbnails that you need to use a .JPG, 
 YouTube recommends that thumbnail images have a resolution of **1280x720px**, and you cannot upload an image with a width of less than 640 pixels.
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: YouTube Thumbnail Makers
 
@@ -203,13 +176,6 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -219,16 +185,10 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
@@ -236,6 +196,13 @@ Alright, now that you know everything about YouTube thumbnails, go make one! Tel
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -254,15 +221,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-thriving-in-google-meet-chats/"><u>[New] The Ultimate Guide to Thriving in Google Meet Chats</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-buzzing-beats-essential-background-scores-for-viral-video-shorts/"><u>[Updated] In 2024, Buzzing Beats Essential Background Scores for Viral Video Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-greatest-satirical-serenades/"><u>[Updated] The Greatest Satirical Serenades</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-smudge-solution-blurring-visions-in-video-content/"><u>[Updated] The Smudge Solution Blurring Visions in Video Content</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-list-10-movie-gems-to-spark-inspiration/"><u>[Updated] Ultimate List 10 Movie Gems to Spark Inspiration</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-conversion-made-simple-learn-how-without-spending-a-dime/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-infinix-gt-10-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Infinix GT 10 Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-future-of-audio-extraction-with-pazera-tools-analysis/"><u>In 2024, The Future of Audio Extraction with Pazera Tools Analysis</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/ultimate-collection-20-chuckle-inducing-detention-cell-photos-for-a-better-day/"><u>Ultimate Collection 20 Chuckle-Inducing Detention Cell Photos for a Better Day</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/warm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds-for-2024/"><u>Warm Up Your Visuals A Guide to Top Cozy Winter Backgrounds for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-innovative-solutions-made-simple-using-ez-grabber-for-2024/"><u>[New] Innovative Solutions Made Simple Using EZ Grabber for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-seizing-photographic-segments-from-videos-in-windows-11/"><u>[New] Seizing Photographic Segments From Videos in Windows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-high-earning-video-visionaries/"><u>[Updated] 2024 Approved High Earning Video Visionaries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-silencing-the-spotlight-avoiding-vloggers-fears/"><u>[Updated] Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stylish-profiles-easy-downloads/"><u>[Updated] Stylish Profiles, Easy Downloads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-video-creators-blueprint-to-legal-and-profitable-streaming/"><u>[Updated] The Video Creator's Blueprint to Legal and Profitable Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/beat-lag-like-a-pro-improve-your-fortnite-experience-with-effective-troubleshooting/"><u>Beat Lag Like a Pro: Improve Your Fortnite Experience with Effective Troubleshooting</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/online-gratuiti-trasforma-file-3gp-in-formato-avi-con-movavi/"><u>Online Gratuiti: Trasforma File 3GP in Formato Avi Con Movavi</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/overcoming-the-challenge-solving-the-entry-point-not-found-problem-in-fortnite/"><u>Overcoming the Challenge: Solving the 'Entry Point Not Found' Problem in Fortnite</u></a></li>
+<li><a href="https://win-dash.techidaily.com/patience-pays-off-a-satisfying-experience-with-the-new-windows-release-of-goodnotes/"><u>Patience Pays Off: A Satisfying Experience with the New Windows Release of GoodNotes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-voice-guided-powerpoint-handbook-for-2024/"><u>The Ultimate Voice-Guided PowerPoint Handbook for 2024</u></a></li>
 </ul></div>
 

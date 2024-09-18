@@ -1,7 +1,7 @@
 ---
 title: "Get Your Call of Duty: BOKC Voice Chat Back Up and Running - A Step-by-Step Guide"
-date: 2024-09-11T22:00:05.239Z
-updated: 2024-09-12T22:00:05.239Z
+date: 2024-09-17T16:03:09.458Z
+updated: 2024-09-18T16:07:58.204Z
 tags:
   - win11
   - win10
@@ -18,13 +18,6 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/black-ops-cold-war-featured.jpg)
 
  When you’re about to enjoy the fight in Black Ops Cold War with your buddies, the last thing you want to know is that the voice chat stops working. Many gamers are reporting this**voice chat issue** with the new COD title. So here we have some fixes that worked for many veterans, try them and dominate the field with your amigos.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -49,13 +42,6 @@ If the connection is fine, check out the next fix below.
 
  If you’re not using any peripherals, simply move on to the next fix.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 3: Change your default recording device
 
  Normally, Windows will automatically set your audio device as the system default once they’re plugged in. But that’s not always the case. Sometimes you’ll need to**set your device as the default one manually** . You can follow the instructions below to make sure your settings are correct.
@@ -69,16 +55,10 @@ First you need to check the default audio device on your system:
 2. Under the**Input** section, make sure your input device is set to your desired one. Then click**Device properties and test microphone** .  
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/input-device-testing.jpg)
@@ -86,14 +66,14 @@ First you need to check the default audio device on your system:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/device-properties-and-test-microphone.jpg)
 4. Click **Start test** and tap or speak to your microphone. Then click **Stop test** . If you’re prompted **The highest value we saw was xx (xx > 0) percent** , it means your microphone has been set up correctly.  
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/sound-test-percent.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Set up your mic correctly in the Battle.net client
 
@@ -103,13 +83,6 @@ Next, you need to check the voice chat settings in the Battle.net client:
 2. At the top left corner, click the **BLIZZARD**  icon and select **Settings**  from the drop-down menu.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/battle-net-settings-1.jpg)
 3. On the menu to your left, select **Voice Chat** . Set **OUTPUT DEVICE** and **INPUT DEVICE** to **System Default Device** . Then click **Done** .  
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/blizzard-voice-chat.jpg)
 
@@ -140,19 +113,6 @@ Now launch Black Ops Cold War and see if you can talk to others.
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-pro-update-audio-bluetooth-usb-unifying.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Once you’ve updated your audio driver, restart your PC and test the gameplay in Black Ops Cold War.
@@ -160,10 +120,10 @@ Now launch Black Ops Cold War and see if you can talk to others.
  If updating the audio driver doesn’t work for you, simply continue to the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5: Change the in-game audio settings
@@ -180,16 +140,10 @@ Now launch Black Ops Cold War and see if you can talk to others.
  If changing game settings doesn’t help, you can try the next fix below.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 6: Install all Windows updates
@@ -201,20 +155,15 @@ Here’s a quick guide for that:
 1. On your keyboard, press**Win+I** (the Windows logo key and the i key) to open the Windows Settings app. Click**Update & Security** .  
 ![update & security](https://images.drivereasy.com/wp-content/uploads/2020/10/update-security-2.jpg)
 2. Click**Check for updates** . Windows will download and install the available updates. Wait for the process to complete.  
-![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
@@ -239,13 +188,19 @@ Here’s a quick guide for that:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-unparalleled-selection-best-of-the-10-vimeo-download-sites-for-2024/"><u>[New] Unparalleled Selection Best of the 10 Vimeo Download Sites for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-no-ads-content-creators-playbook-a-guide-to-monetizing-videos/"><u>[Updated] The No-Ads Content Creator’s Playbook A Guide to Monetizing Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-simple-way-to-control-comment-functionality-in-youtube/"><u>[Updated] The Simple Way to Control Comment Functionality in YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unseen-horizons-the-top-3-non-youtube-video-havens/"><u>[Updated] Unseen Horizons The Top 3 Non-Youtube Video Havens</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-excellence-on-screen-the-years-best-camcorders-reviewed/"><u>2024 Approved Excellence on Screen The Year's Best Camcorders Reviewed</u></a></li>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Motorola Razr 40 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/how-instagram-new-algorithm-update-will-affect-you-for-2024/"><u>How Instagram New Algorithm Update Will Affect You for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/six-budget-friendly-artificial-intelligence-options/"><u>Six Budget-Friendly Artificial Intelligence Options</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-pioneering-technology-cutting-edge-screen-capture-software-listings/"><u>[New] In 2024, Pioneering Technology Cutting-Edge Screen Capture Software Listings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prowess-in-phrasing-best-tags-for-gamer-videos/"><u>[Updated] Prowess in Phrasing Best Tags for Gamer Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-adjustment-of-youtube-vids-for-mac-screen/"><u>[Updated] Rapid Adjustment of YouTube Vids for Mac Screen</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-transfer/"><u>[Updated] Transfer</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-web-accessory-fb-stories-keeper-for-2024/"><u>[Updated] Web Accessory FB Stories Keeper for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-top-tunes-apps-win-edition/"><u>2024 Approved Top Tunes Apps Win Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comprehensive-explanation-of-googles-automatic-transcription-technology/"><u>Comprehensive Explanation of Google's Automatic Transcription Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/evaluating-compromises-in-hp-stream-14-a-cost-effective-windows-laptop-overview/"><u>Evaluating Compromises in HP Stream 14: A Cost-Effective Windows Laptop Overview</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/exploring-the-comfort-of-mods-latest-innovation-the-user-friendly-sidecar-e-bike/"><u>Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-asus-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Asus .</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-seamless-social-media-experience-with-fb-videos/"><u>In 2024, Seamless Social Media Experience with FB Videos</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-to-stop-mir4-from-freezing-on-your-computer/"><u>Troubleshooting Steps to Stop Mir4 From Freezing on Your Computer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/vloggers-with-the-largest-digital-incomes-for-2024/"><u>Vloggers with the Largest Digital Incomes for 2024</u></a></li>
 </ul></div>
 

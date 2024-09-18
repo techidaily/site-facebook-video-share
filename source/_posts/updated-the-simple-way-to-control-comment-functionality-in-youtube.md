@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-09-11T22:00:10.443Z
-updated: 2024-09-12T22:00:10.443Z
+date: 2024-09-16T16:06:33.535Z
+updated: 2024-09-18T16:16:31.809Z
 tags:
   - ai video
   - ai youtube
@@ -40,25 +40,11 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
 
@@ -72,13 +58,6 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
@@ -90,13 +69,6 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -117,19 +89,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 * **Disable comments**
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -169,13 +128,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -205,18 +157,33 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-navigating-instagrams-video-landscape-a-detailed-look/"><u>[New] In 2024, Navigating Instagram's Video Landscape A Detailed Look</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-ancient-art-of-role-playing-evolutionary-trajectory-for-2024/"><u>[New] The Ancient Art of Role-Playing Evolutionary Trajectory for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-android-users-discover-the-top-youtube-video-clips/"><u>[Updated] In 2024, Android Users, Discover the Top YouTube Video Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-steps-to-clear-out-your-youtube-watch-later-collection/"><u>[Updated] Steps to Clear Out Your YouTube Watch Later Collection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-guide-to-anime-style-youtube-subscribe-buttons-using-filmora/"><u>[Updated] The Essential Guide to Anime-Style YouTube Subscribe Buttons Using Filmora</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-editing-hacks-for-flawless-image-edits-on-canva/"><u>[Updated] Ultimate Editing Hacks for Flawless Image Edits on Canva</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-your-first-step-into-youtube-creating-an-engaging-channel/"><u>[Updated] Your First Step Into YouTube Creating an Engaging Channel</u></a></li>
-<li><a href="https://article-tips.techidaily.com/beyond-samsung-gear-360-top-alternative-cameras-of-2023/"><u>Beyond Samsung Gear 360 Top Alternative Cameras of 2023</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723007389422-breaking-news-the-anticipated-launch-of-it-takes-two-is-now-live/"><u>Breaking News: The Anticipated Launch of 'It Takes Two' Is Now Live</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/expert-advice-on-overcoming-minecraft-not-loading-challenges/"><u>Expert Advice on Overcoming Minecraft Not Loading Challenges</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/f1-2020-on-pc-overcoming-persistent-crashing-problems-for-a-smoother-gaming-experience/"><u>F1 2020 on PC - Overcoming Persistent Crashing Problems for a Smoother Gaming Experience</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-convert-avi-videos-into-high-impact-gifs-using-filmora-for-windowsmacos/"><u>In 2024, Convert AVI Videos Into High Impact GIFs Using Filmora for Windows/MacOS</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-oppo-f25-pro-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Oppo F25 Pro 5G</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/start-your-social-media-show-going-live-on-facebook-for-2024/"><u>Start Your Social Media Show Going Live on Facebook for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-correcting-errors-caused-by-absence-of-msvcr71dll/"><u>Step-by-Step Guide: Correcting Errors Caused by Absence of Msvcr71.dll</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essentials-of-vk-russias-online-community-explored/"><u>The Essentials of VK: Russia's Online Community Explored</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-asus-ax6000-rt-ax88u-your-new-smart-wi-fi-6-powerhouse/"><u>The Ultimate Guide to the Asus AX6000 RT-AX88U - Your New Smart Wi-Fi 6 Powerhouse!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-angle-adjustment-a-step-by-step-editing-guide/"><u>[Updated] Youtube Angle Adjustment A Step-by-Step Editing Guide</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/best-video-translator-app-for-pc-you-cannot-miss-for-2024/"><u>Best Video Translator App for PC You Cannot Miss for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-the-newest-update-of-elan-smbus-drivers-installed-on-your-window-computer-fixed/"><u>How to Get the Newest Update of ELAN SMBus Drivers Installed on Your Window Computer [FIXED]</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mavericks-video-editors-handbook-a-step-by-step-guide-for-2024/"><u>Mavericks Video Editors Handbook A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/troubleshooting-anticheat-failure-errors-in-escape-from-tarkov-solved/"><u>Troubleshooting 'Anticheat Failure' Errors in Escape From Tarkov - Solved</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-guide-coding-your-own-multi-device-smart-remote/"><u>Ultimate Guide: Coding Your Own Multi-Device Smart Remote</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/viral-vortex-a-guide-to-powerful-social-media-tags-for-2024/"><u>Viral Vortex A Guide to Powerful Social Media Tags for 2024</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/youtube-profits-demystified-from-clicks-to-credit-for-2024/"><u>YouTube Profits Demystified From Clicks to Credit for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

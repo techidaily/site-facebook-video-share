@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing Self-Filmed Content on YouTube\""
-date: 2024-09-11T22:00:59.206Z
-updated: 2024-09-12T22:00:59.206Z
+date: 2024-09-14T16:00:01.069Z
+updated: 2024-09-18T16:16:38.569Z
 tags:
   - ai video
   - ai youtube
@@ -37,26 +37,6 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -87,13 +67,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -103,16 +76,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -132,16 +99,10 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -149,13 +110,6 @@ Looking to find the right lights for your video recording set? Check out our [To
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -174,19 +128,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-from-ordinary-snaps-to-captivating-creations-editing-on-snapchat/"><u>[New] 2024 Approved From Ordinary Snaps to Captivating Creations Editing on Snapchat</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-prime-presenter-prefix-planner/"><u>[New] 2024 Approved Prime Presenter Prefix Planner</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-setting-up-personalized-video-shots-on-youtube/"><u>[Updated] Setting Up Personalized Video Shots on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-your-content-creation-iphoneipad-screen-recordings-on-youtube/"><u>[Updated] Streamline Your Content Creation IPhone/iPad Screen Recordings on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-freedom-from-ads-why-you-might-consider-youtube-premium/"><u>[Updated] The Freedom From Ads Why You Might Consider YouTube Premium</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-most-economical-tools-for-youtube-audio-conversion/"><u>[Updated] The Most Economical Tools for YouTube Audio Conversion</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-y77t-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo Y77t | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-honor-100-pro-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Honor 100 Pro Location | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/marketing-magic-with-testimonial-videos/"><u>Marketing Magic with Testimonial Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/optimal-remote-voice-recorders-for-2024/"><u>Optimal Remote Voice Recorders for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-role-of-analytics-in-youtube-shorts-management/"><u>The Role of Analytics in YouTube Shorts Management</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-manual-for-youtube-playlist-reordering/"><u>The Ultimate Manual for YouTube Playlist Reordering</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-top-converters-turn-videos-into-live-photos-with-ease-for-2024/"><u>Updated Top Converters Turn Videos Into Live Photos with Ease for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-to-avi-mastery-top-8-convertors-reviewed-for-2024/"><u>YouTube to AVI Mastery Top 8 Convertors Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unleash-creative-fb-ad-videos-access-free-video-tools-now/"><u>[New] Unleash Creative FB Ad Videos - Access FREE Video Tools Now</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-snapseed-starters-handbook-for-photo-editing/"><u>[Updated] In 2024, The Snapseed Starter's Handbook for Photo Editing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-multi-screen-recording-setup-for-2024/"><u>[Updated] Multi-Screen Recording Setup for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-smooth-and-swift-designing-your-best-thumbnails/"><u>[Updated] Smooth & Swift Designing Your Best Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>[Updated] Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-no-ads-content-creators-playbook-a-guide-to-monetizing-videos/"><u>[Updated] The No-Ads Content Creator’s Playbook A Guide to Monetizing Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-simple-way-to-control-comment-functionality-in-youtube/"><u>[Updated] The Simple Way to Control Comment Functionality in YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-youtubes-potential-establishing-an-effective-upload-cadence/"><u>[Updated] Unlocking YouTube's Potential Establishing an Effective Upload Cadence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unseen-horizons-the-top-3-non-youtube-video-havens/"><u>[Updated] Unseen Horizons The Top 3 Non-Youtube Video Havens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/experience-unmatched-ease-sabrents-wireless-mobile-mouse-designed-for-exactness-and-reliability/"><u>Experience Unmatched Ease: Sabrent's Wireless Mobile Mouse Designed for Exactness and Reliability</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-s24plus-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy S24+ Phone Network-Ready</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-ultimate-tutorial-for-installing-the-latest-corsair-audio-device-drivers-in-windows/"><u>The Ultimate Tutorial for Installing the Latest Corsair Audio Device Drivers in Windows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-guide-to-downloading-gifs-a-step-by-step-approach-for-2024/"><u>Twitter's Guide to Downloading GIFs A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-usb-20-speeds-cabling-and-connector-options/"><u>Understanding USB 2.0: Speeds, Cabling, and Connector Options</u></a></li>
 </ul></div>
 

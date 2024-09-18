@@ -1,7 +1,7 @@
 ---
 title: Solve Your PC Problems with These Easy Fixes for the Football Manager 2E 22 Game Crash
-date: 2024-09-11T21:59:00.609Z
-updated: 2024-09-12T21:59:00.609Z
+date: 2024-09-13T16:06:22.688Z
+updated: 2024-09-18T16:00:15.757Z
 tags:
   - win11
   - win10
@@ -36,19 +36,6 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 
  Make sure you’re playing Football Manager 2022 in a 64-bit processor and operating system. If you’re on a 32-bit system, it’s recommended to upgrade your system and perhaps your device.
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 2\. Add an exception to your antivirus
 
  Antivirus is known to interfere with Football Manager 2022 and most of your Steam games. To make sure you can run your game, make sure you have added Football Manager 2022 as an exception to your antivirus software.
@@ -75,25 +62,32 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.(This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![update all drivers](https://images.drivereasy.com/wp-content/uploads/2021/10/update-all.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
 After updating your drivers, restart your PC and test the gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 4\. Verify the integrity of game files
 
@@ -106,19 +100,6 @@ After updating your drivers, restart your PC and test the gameplay.
 
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once complete, launch the game to check if your game is working again.
 
@@ -146,6 +127,13 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Locate the game’s executable and run the game as an administrator.
 
 ### Fix 7\. Open the game in windowed mode
@@ -155,31 +143,10 @@ Once complete, launch the game to check if your game is working again.
  1) Right-click on Football Manager 2021 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 8\. Repair your system files
 
@@ -208,22 +175,21 @@ Once complete, launch the game to check if your game is working again.
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) You’ll see the summary of detected issues on your PC. Click **START REPAIR** and all the issues will be fixed automatically. (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Option 2 – Manually
 
@@ -246,19 +212,6 @@ sfc /scannow
  3) System File Check will begin to scan all system files and repair any corrupted or missing ones it detected. This may take 3-5 minutes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/scan-now.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) You may receive something like the following messages after the verification.
 
@@ -317,19 +270,20 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-effortless-screen-recording-on-modern-pcs/"><u>[Updated] Effortless Screen Recording on Modern PCs</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-digital-fortune-makers-top-earning-youtubers/"><u>[Updated] In 2024, Digital Fortune Makers Top Earning YouTubers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-securely-growing-your-channels-popularity-a-one-million-goal-guide/"><u>[Updated] Securely Growing Your Channel's Popularity A One-Million Goal Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-filmmakers-guide-producing-engaging-youtube-splits/"><u>[Updated] The Filmmaker's Guide Producing Engaging YouTube Splits</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-greatest-satirical-serenades/"><u>[Updated] The Greatest Satirical Serenades</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-whats-the-take-home-from-each-youtube-sponsored-play/"><u>[Updated] What's the Take-Home From Each YouTube Sponsored Play?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-easy-guide-how-to-make-talking-head-videos/"><u>2024 Approved Easy Guide How To Make Talking Head Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-xiaomi-redmi-k70e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/8-top-video-screen-grabbers/"><u>8 Top Video Screen Grabbers</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-in-the-professional-sphere-6-compelling-reasons-for-skill-acquisition/"><u>ChatGPT in the Professional Sphere: 6 Compelling Reasons for Skill Acquisition</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-infinix-note-30-vip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Infinix Note 30 VIP? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-v30-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo V30 Pro to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/solution-guide-optimizing-gpu-usage-in-call-of-duty-warzone-on-windows-10/"><u>Solution Guide: Optimizing GPU Usage in Call of Duty: Warzone on Windows 10</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-realme-12-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Realme 12 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-streamlining-your-approach-to-configuring-and-gauging-fb-instream-ads/"><u>[New] 2024 Approved Streamlining Your Approach to Configuring & Gauging FB Instream Ads</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-exploring-drones-vast-airtime-capabilities-top-10/"><u>[New] In 2024, Exploring Drones' Vast Airtime Capabilities (Top 10)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-navigating-online-broadcasts-expertise-in-onestream-use-for-2024/"><u>[Updated] Navigating Online Broadcasts Expertise in OneStream Use for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-silencing-the-spotlight-avoiding-vloggers-fears/"><u>[Updated] Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-into-youtube-creation-crafting-your-top-10-simple-projects/"><u>[Updated] Step-by-Step Into YouTube Creation Crafting Your Top 10 Simple Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-video-creators-blueprint-to-legal-and-profitable-streaming/"><u>[Updated] The Video Creator's Blueprint to Legal and Profitable Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-winter-vibes-selecting-heated-background-ideas/"><u>[Updated] Winter Vibes Selecting Heated Background Ideas</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-on-your-apple-iphone-15-pro-max-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID On Your Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/anthonys-top-rating-for-affordable-viewing-the-elegant-and-effective-at-127-tv-antenna/"><u>Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/beat-lag-like-a-pro-improve-your-fortnite-experience-with-effective-troubleshooting/"><u>Beat Lag Like a Pro: Improve Your Fortnite Experience with Effective Troubleshooting</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/deciphering-bingcoin-hoaxes-a-crypto-guide/"><u>Deciphering BingCoin Hoaxes: A Crypto Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/face-id-vs-snapchats-face-unlock-the-apple-vs-samsung-debate/"><u>Face ID Vs. Snapchat's Face Unlock The Apple Vs. Samsung Debate</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-comprehensive-guide-to-implementing-and-using-high-dynamic-range-auto-hdr-in-windows-11/"><u>In 2024, A Comprehensive Guide to Implementing and Using High Dynamic Range (Auto HDR) in Windows 11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/overcoming-the-challenge-solving-the-entry-point-not-found-problem-in-fortnite/"><u>Overcoming the Challenge: Solving the 'Entry Point Not Found' Problem in Fortnite</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-how-to-resolve-no-sound-in-discord-when-screen-sharing/"><u>Troubleshooting Tips - How To Resolve No Sound in Discord When Screen Sharing</u></a></li>
 </ul></div>
 

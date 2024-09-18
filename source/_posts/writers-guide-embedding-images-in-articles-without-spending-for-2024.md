@@ -1,7 +1,7 @@
 ---
 title: "\"Writers' Guide  Embedding Images in Articles Without Spending for 2024\""
-date: 2024-09-11T21:58:12.318Z
-updated: 2024-09-12T21:58:12.318Z
+date: 2024-09-16T16:07:46.845Z
+updated: 2024-09-18T16:11:10.449Z
 tags:
   - ai video
   - ai youtube
@@ -40,25 +40,11 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
@@ -70,23 +56,9 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -97,13 +69,6 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -116,13 +81,6 @@ There are so many different ways to create visually striking content, and adding
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -139,16 +97,27 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-virtual-reality-top-emulators-for-playing-ps3-games-on-pc/"><u>[New] In 2024, Virtual Reality Top Emulators for Playing PS3 Games on PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-your-content-creation-iphoneipad-screen-recordings-on-youtube/"><u>[Updated] Streamline Your Content Creation IPhone/iPad Screen Recordings on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>[Updated] Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-the-complete-mac-powered-guide-to-ootd-videography/"><u>[Updated] The Complete Mac-Powered Guide to OOTD Videography</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-freedom-from-ads-why-you-might-consider-youtube-premium/"><u>[Updated] The Freedom From Ads Why You Might Consider YouTube Premium</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-youtubes-potential-establishing-an-effective-upload-cadence/"><u>[Updated] Unlocking YouTube's Potential Establishing an Effective Upload Cadence</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/effective-solutions-for-when-madden-nfl-20-keeps-crashing-on-pc-a-step-by-step-guide/"><u>Effective Solutions for When Madden NFL '20 Keeps Crashing on PC: A Step-by-Step Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/expert-strategies-to-tackle-the-problem-of-a-lost-bootmgr-file/"><u>Expert Strategies to Tackle the Problem of a Lost BOOTMGR File</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-15-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Infinix Smart 8? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/redefine-your-customer-journey-with-advanced-interaction-automation/"><u>Redefine Your Customer Journey with Advanced Interaction Automation</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-culinary-cinema-mastery-the-7-pathways-to-delectable-vids-for-2024/"><u>[New] Culinary Cinema Mastery - The 7 Pathways to Delectable Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-transfer/"><u>[Updated] Transfer</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-essential-playbook-turning-your-phone-into-a-vr-setup/"><u>2024 Approved The Essential Playbook Turning Your Phone Into a VR Setup</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/audio-recorder-performance-assessment-for-2024/"><u>Audio Recorder Performance Assessment for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/evaluating-compromises-in-hp-stream-14-a-cost-effective-windows-laptop-overview/"><u>Evaluating Compromises in HP Stream 14: A Cost-Effective Windows Laptop Overview</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-samsung-galaxy-a15-4g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Samsung Galaxy A15 4G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-how-to-adjust-audio-volume-in-videos-4-ways/"><u>New In 2024, How to Adjust Audio Volume in Videos 4 Ways</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/paper-jams-and-ink-issues-now-gone/"><u>Paper Jams and Ink Issues, Now Gone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/vloggers-with-the-largest-digital-incomes-for-2024/"><u>Vloggers with the Largest Digital Incomes for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

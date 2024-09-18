@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Setting Up Personalized Video Shots on YouTube"
-date: 2024-09-11T21:58:00.745Z
-updated: 2024-09-12T21:58:00.745Z
+date: 2024-09-13T16:00:31.086Z
+updated: 2024-09-18T16:07:47.902Z
 tags:
   - ai video
   - ai youtube
@@ -31,38 +31,11 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -79,13 +52,6 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -125,19 +91,6 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -145,13 +98,20 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,20 +128,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-transformative-beauty-practices/"><u>[New] 2024 Approved Transformative Beauty Practices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-speed-it-up-crafting-beautiful-timelapse-videos-on-galaxy/"><u>[Updated] In 2024, Speed It Up Crafting Beautiful Timelapse Videos on Galaxy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-the-step-by-step-process-for-perfecting-screencast-video-quality/"><u>[Updated] In 2024, The Step-by-Step Process for Perfecting Screencast Video Quality</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-strategies-for-captivating-end-moments/"><u>[Updated] Strategies for Captivating End Moments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-smudge-solution-blurring-visions-in-video-content/"><u>[Updated] The Smudge Solution Blurring Visions in Video Content</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-transforming-life-experiences-into-engaging-yt-videos/"><u>[Updated] Transforming Life Experiences Into Engaging YT Videos</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-uncovering-illegal-gain-from-false-subscriber-sales/"><u>[Updated] Uncovering Illegal Gain From False Subscriber Sales</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-unlocking-nearby-nuggets-your-essential-locale-lens-for-a-smoother-journey/"><u>[Updated] Unlocking Nearby Nuggets Your Essential Locale Lens for a Smoother Journey</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-must-have-gear-for-new-youtubers/"><u>[Updated] Unveiling the Must-Have Gear for New YouTubers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/budget-friendly-high-quality-gaming-keyboards-unveiled/"><u>Budget-Friendly, High-Quality Gaming Keyboards Unveiled</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/common-causes-and-solutions-for-metro-exodus-game-crashes-on-desktops/"><u>Common Causes and Solutions for Metro Exodus Game Crashes on Desktops</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-infinix-hot-40-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Infinix Hot 40 without App | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Oppo Find N3 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-c33-2023-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme C33 2023</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-top-5-ways-to-record-audio-in-windows-11-for-2024/"><u>The Ultimate Guide Top 5 Ways to Record Audio in Windows 11 for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/troubleshooting-guide-adobe-startup-failure-issue-error-0xc00/"><u>Troubleshooting Guide: Adobe Startup Failure Issue - Error 0Xc00 #</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-tips-for-resolving-persistent-sovled-warno-pc-app-crashes/"><u>Troubleshooting Tips for Resolving Persistent [SOVLED] Warno PC App Crashes</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unlocking-canvas-potential-10-secrets-for-professionals/"><u>Unlocking Canvas Potential - 10 Secrets for Professionals</u></a></li>
+<li><a href="https://win-best.techidaily.com/conversion-facile-et-gratuite-de-fichiers-3gpp-en-format-wma-en-ligne-movavi/"><u>Conversion Facile Et Gratuite De Fichiers 3GPP en Format WMA en Ligne - Movavi</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/get-into-the-game-starting-an-apple-powered-sports-network-for-2024/"><u>Get Into the Game Starting an Apple-Powered Sports Network for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/how-to-record-online-tv-shows-for-2024/"><u>How to Record Online TV Shows for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/real-time-broadcasting-softwares-edge-over-gear/"><u>Real-Time Broadcasting Software's Edge Over Gear?</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solve-windows-1011-unifying-receiver-woes/"><u>Solve Windows 10/11 Unifying Receiver Woes</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unblocking-windows-10s-incompatible-input-device/"><u>Unblocking Windows 10'S Incompatible Input Device</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/warm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds-for-2024/"><u>Warm Up Your Visuals A Guide to Top Cozy Winter Backgrounds for 2024</u></a></li>
 </ul></div>
 
