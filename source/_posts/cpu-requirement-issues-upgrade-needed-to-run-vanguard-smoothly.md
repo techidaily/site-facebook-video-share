@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2024-09-14T16:05:52.740Z
-updated: 2024-09-18T16:13:23.278Z
+date: 2024-09-22T02:51:47.396Z
+updated: 2024-09-23T22:57:43.500Z
 tags:
   - win11
   - win10
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
  If you’re using a Wi-Fi connection, try using an ethernet cable. An ethernet cable can provide a more stable internet connection. If that’s not an option, you can instead, move your computer closer to your router as the distance between your PC and the Router could also affect your Wi-Fi connection and your gaming performance.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 2: Update your graphics driver
 
  Outdated graphics drivers, of course, are the most common culprit to game issues. Be sure to download and install the correct driver set for your video card.
@@ -72,10 +79,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
  Relaunch the game to test your issue. If it’s still occurring, try the next fix below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 3: Verify Warframe cache files
@@ -89,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
  This will compare your game files with those of the latest version on Warframe’s content distribution network (CDN), replaces any bad game data, and update outdated files.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_15-35-03.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **3)**  After the process is complete, click**Optimize** .
 
@@ -113,20 +113,27 @@ Your game still freezes? Try the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If your issue persists, then move on to the next fix below.
 
@@ -167,21 +174,25 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-configuring-picture-in-picture-for-apple-browsers/"><u>[Updated] Configuring Picture-in-Picture for Apple Browsers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-filmmakers-guide-producing-engaging-youtube-splits/"><u>[Updated] The Filmmaker's Guide Producing Engaging YouTube Splits</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-greatest-satirical-serenades/"><u>[Updated] The Greatest Satirical Serenades</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-smudge-solution-blurring-visions-in-video-content/"><u>[Updated] The Smudge Solution Blurring Visions in Video Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-whats-the-take-home-from-each-youtube-sponsored-play/"><u>[Updated] What's the Take-Home From Each YouTube Sponsored Play?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-conversion-made-simple-learn-how-without-spending-a-dime/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/amazon-prime-viewers-who-to-follow-on-twitter-now/"><u>Amazon Prime Viewers - Who to Follow on Twitter, Now</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-the-ultimate-7-ai-applications-for-effortless-and-engaging-presentation-designs/"><u>Discover the Ultimate 7 AI Applications for Effortless and Engaging Presentation Designs</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/for-laminar-flow-in-pipes-the-pressure-drop-can-be-calculated-using-the-hagen-poiseuille-equation-dpl-32mvrd2/"><u>For Laminar Flow in Pipes, the Pressure Drop Can Be Calculated Using the Hagen-Poiseuille Equation: ΔP/L = 32μV/(ρD^2)</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-best-audio-experience-realtek-alc-driver-install-guide-for-windows-download/"><u>Get the Best Audio Experience: RealTek ALC Driver Install Guide for Windows ([Download])</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722877397447-getting-your-windows-11-search-back-on-track-essential-fixes/"><u>Getting Your Windows 11 Search Back on Track - Essential Fixes</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-8-plus-to-other-iphone-15-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 8 Plus To Other iPhone 15 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/outshining-nvidia-with-comparable-graphics-cards/"><u>Outshining Nvidia with Comparable Graphics Cards</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/solution-guide-optimizing-gpu-usage-in-call-of-duty-warzone-on-windows-10/"><u>Solution Guide: Optimizing GPU Usage in Call of Duty: Warzone on Windows 10</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-best-online-locations-to-find-and-download-open-source-closing-music/"><u>Updated 2024 Approved Best Online Locations to Find and Download Open-Source Closing Music</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/warm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds-for-2024/"><u>Warm Up Your Visuals A Guide to Top Cozy Winter Backgrounds for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engage-and-inspire-audiences-professional-level-tips-for-youtube-edits/"><u>[New] 2024 Approved Engage and Inspire Audiences Professional-Level Tips for YouTube Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-brighten-up-your-videos-implementing-neons-on-thumbnails-for-2024/"><u>[New] Brighten Up Your Videos Implementing Neons on Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-exploring-what-sets-youtube-tv-apart-from-other-streaming-platforms/"><u>[New] Exploring What Sets YouTube TV Apart From Other Streaming Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bite-sized-content-on-youtube/"><u>[New] In 2024, Bite-Sized Content on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thriving-in-the-economy-of-youtube-shorts-the-ultimate-guide/"><u>[New] Thriving in the Economy of YouTube Shorts – The Ultimate Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-video-rankings-with-effective-seo-tactics/"><u>[Updated] 2024 Approved Elevate Your Video Rankings with Effective SEO Tactics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-affordable-and-accessible-the-definitive-guide-to-9-budget-friendly-editors-for-2024/"><u>[Updated] Affordable & Accessible The Definitive Guide to 9 Budget-Friendly Editors for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-beginning-with-windows-10-sound-recording/"><u>[Updated] Beginning with Windows 10 Sound Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-extract-and-save-youtube-gallery-files/"><u>[Updated] Extract and Save YouTube Gallery Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-user-insights-on-vllo-for-2024/"><u>[Updated] User Insights on VLLO for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-humor-kapwings-meme-crafting-app/"><u>2024 Approved Unleash Humor Kapwing's Meme Crafting App</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-foremost-ad-creators-a-showcase-of-excellence/"><u>2024 Approved YouTube's Foremost Ad Creators A Showcase of Excellence</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-walkthrough-creating-and-delivering-voice-notes-using-your-iphone/"><u>Comprehensive Walkthrough: Creating & Delivering Voice Notes Using Your iPhone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-your-game-solving-batman-arkham-knight-crashes-and-errors-swiftly/"><u>Fix Your Game: Solving Batman: Arkham Knight Crashes & Errors Swiftly</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-motorola-moto-e13-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Motorola Moto E13</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-photographic-precision-optimal-websites-and-tools-for-frame-upgrades/"><u>In 2024, Photographic Precision Optimal Websites and Tools for Frame Upgrades</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/simplify-your-life-a-guide-on-quick-removal-of-youtube-feedback-for-2024/"><u>Simplify Your Life A Guide on Quick Removal of YouTube Feedback for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175702238-stay-cool-with-style-grab-your-essential-top-tier-arctic-aio-cooler-now-and-save-big-with-just-a-74-payment/"><u>Stay Cool with Style: Grab Your Essential, Top-Tier Arctic AIO Cooler Now and Save Big with Just a $74 Payment</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategic-endings-keeping-viewers-engaged-on-yt-for-2024/"><u>Strategic Endings Keeping Viewers Engaged on YT for 2024</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-poco-x5-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Poco X5 Reset Code | Dr.fone</u></a></li>
 </ul></div>
 

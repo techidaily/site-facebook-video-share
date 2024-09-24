@@ -1,7 +1,7 @@
 ---
 title: "Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
-date: 2024-09-16T16:03:28.226Z
-updated: 2024-09-18T16:09:53.864Z
+date: 2024-09-19T21:40:53.123Z
+updated: 2024-09-24T02:55:27.533Z
 categories:
   - BestProducts
 description: "This Article Describes Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
@@ -70,6 +70,13 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -84,7 +91,21 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Pain-free plug and play**
 
@@ -98,14 +119,20 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/BvO_NJ8pdby7NqO2Fq-orJ_NbFI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-02-40358222569c4a55b4d04e7aadf01af7.jpg)
 
- Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jeremy Laukkonen
 
 ## **Connectivity: MIMO with beamforming**
 
@@ -114,19 +141,6 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
 
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network Performance: Blazing fast and low latency**
 
@@ -140,14 +154,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/s7sBTQQEDT14u1i6nHyeA6O4hEw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-05-d60cab3cba9446c1b398076a39432b70.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Runs on an embedded Linux distribution**
 
@@ -168,13 +182,6 @@ Lifewire / Jeremy Laukkonen
  The Extollo LANSocket 1500 has an MSRP of $90 for a set of two. That places these adapters right in the same general price range as other similar devices. You can find HomePlug AV2 compatible adapters for a little less, but they typically don’t perform quite as well.
 
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Wins on transfer speeds with some security concerns**
 
@@ -228,20 +235,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-penning-podcasts-to-perfection-a-compreomed-writers-guide/"><u>[New] Penning Podcasts to Perfection A Compreomed Writer’s Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enhancing-instagram-video-performance-desktop/"><u>[Updated] In 2024, Enhancing Instagram Video Performance (Desktop)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-reverse-engineering-a-youtube-ban/"><u>[Updated] Reverse Engineering a YouTube Ban</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-synthesizing-waterway-content-with-impact/"><u>[Updated] Synthesizing Waterway Content with Impact</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-taking-the-leap-essential-video-gatherings-post-vidcon/"><u>[Updated] Taking the Leap Essential Video Gatherings (Post-VidCon)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-core-interface-youtube-studio-explained/"><u>[Updated] The Core Interface YouTube Studio Explained</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-potential-with-these-essential-editing-tips-for-beginners/"><u>[Updated] Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-motorola-moto-g23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/networking-made-easy-connect-and-map-your-drives-on-a-mac/"><u>Networking Made Easy: Connect and Map Your Drives on a Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/peek-into-facebook-bonds-history-of-connections/"><u>Peek Into Facebook Bonds: History of Connections</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/solve-your-pc-problems-with-these-easy-fixes-for-the-football-manager-2e-22-game-crash/"><u>Solve Your PC Problems with These Easy Fixes for the Football Manager 2E 22 Game Crash</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-motorola-one-hyper-uncovered-a-potent-blend-of-value-and-vibrancy-in-a-mid-range-device/"><u>The Motorola One Hyper Uncovered: A Potent Blend of Value and Vibrancy in a Mid-Range Device</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/triumphant-tips-repairing-windows-update-failures/"><u>Triumphant Tips: Repairing Windows Update Failures</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-high-tech-secrets-at-toms-gear-and-hardware-insights/"><u>Unveiling High-Tech Secrets at Tom's Gear & Hardware Insights</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-basic-to-breakthrough-content-crafting-the-top-10-simplest-youtube-projects-for-2024/"><u>[New] Basic to Breakthrough Content Crafting the Top 10 Simplest YouTube Projects for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-examining-youtubes-highlighted-comment-mechanics-for-2024/"><u>[New] Examining YouTube's Highlighted Comment Mechanics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bright-ideas-top-17-lighting-setups-for-youtubers/"><u>[New] In 2024, Bright Ideas Top 17 Lighting Setups for YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-earnings-breakdown-one-million-glances-at-youtube/"><u>[New] In 2024, Earnings Breakdown One Million Glances at Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-hidden-face-technique-for-anonymous-content-sharing/"><u>[New] The Hidden Face Technique for Anonymous Content Sharing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-cultivate-connections-top-10-agrigames-for-gathering-pals/"><u>[Updated] 2024 Approved Cultivate Connections Top 10 AgriGames for Gathering Pals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-ultimate-photography-journey-with-vsco-editing-tool/"><u>[Updated] 2024 Approved Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-tools-and-tricks-creating-compelling-youtube-video-ads/"><u>[Updated] Free Tools and Tricks Creating Compelling YouTube Video Ads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-creating-cost-effective-youtube-closure-elements/"><u>[Updated] In 2024, Creating Cost-Effective YouTube Closure Elements</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-unveiling-the-high-res-sky-scenes-with-mi-drone/"><u>2024 Approved Unveiling the High-Res Sky Scenes with Mi Drone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/error-leaf-resolved-optimize-your-apex-legends-experience-with-2022-fixes/"><u>Error Leaf Resolved: Optimize Your Apex Legends Experience with 2022 Fixes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-samsung-galaxy-s24-ultra-drfone-by-drfone-android/"><u>How to Screen Mirroring Samsung Galaxy S24 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-realme-narzo-60-pro-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Realme Narzo 60 Pro 5G Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-studios-pathway-to-high-quality-videography/"><u>In 2024, YouTube Studio's Pathway to High-Quality Videography</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/seamless-transitions-in-vlogs-with-jump-cuts-magic-for-2024/"><u>Seamless Transitions in Vlogs with Jump Cuts Magic for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/spark-to-the-past-djis-mavic-air-reimagines-gameplay/"><u>Spark to the Past? DJI's Mavic Air Reimagines Gameplay</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-history-the-ultimate-walkthrough-on-using-the-wayback-machine/"><u>Unlocking History: The Ultimate Walkthrough on Using the Wayback Machine</u></a></li>
 </ul></div>
 

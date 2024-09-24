@@ -1,7 +1,7 @@
 ---
 title: "Get Your Call of Duty: BOKC Voice Chat Back Up and Running - A Step-by-Step Guide"
-date: 2024-09-17T16:03:09.458Z
-updated: 2024-09-18T16:07:58.204Z
+date: 2024-09-20T02:37:36.189Z
+updated: 2024-09-23T22:09:11.217Z
 tags:
   - win11
   - win10
@@ -36,11 +36,25 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 
 If the connection is fine, check out the next fix below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 2: Disable your peripherals
 
  In some cases, your game chat won’t work[**because your controller is conflicting with your mic**](https://www.reddit.com/r/blackopscoldwar/comments/jtcnob/voice%5Fchat%5Fnot%5Fworking/) . This is a weird but possible situation. So before entering Black Ops Cold War, make sure you’ve disabled your peripherals, especially those with a headphone jack.
 
  If you’re not using any peripherals, simply move on to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Change your default recording device
 
@@ -55,10 +69,10 @@ First you need to check the default audio device on your system:
 2. Under the**Input** section, make sure your input device is set to your desired one. Then click**Device properties and test microphone** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/input-device-testing.jpg)
@@ -67,13 +81,6 @@ First you need to check the default audio device on your system:
 4. Click **Start test** and tap or speak to your microphone. Then click **Stop test** . If you’re prompted **The highest value we saw was xx (xx > 0) percent** , it means your microphone has been set up correctly.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/sound-test-percent.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Set up your mic correctly in the Battle.net client
 
@@ -110,21 +117,35 @@ Now launch Black Ops Cold War and see if you can talk to others.
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/Scan-now.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-pro-update-audio-bluetooth-usb-unifying.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Once you’ve updated your audio driver, restart your PC and test the gameplay in Black Ops Cold War.
 
  If updating the audio driver doesn’t work for you, simply continue to the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Change the in-game audio settings
 
@@ -138,13 +159,6 @@ Now launch Black Ops Cold War and see if you can talk to others.
  Now you can restart Black Ops Cold War and check if the voice chat is working.
 
  If changing game settings doesn’t help, you can try the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 6: Install all Windows updates
 
@@ -188,19 +202,25 @@ Here’s a quick guide for that:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-pioneering-technology-cutting-edge-screen-capture-software-listings/"><u>[New] In 2024, Pioneering Technology Cutting-Edge Screen Capture Software Listings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-prowess-in-phrasing-best-tags-for-gamer-videos/"><u>[Updated] Prowess in Phrasing Best Tags for Gamer Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-adjustment-of-youtube-vids-for-mac-screen/"><u>[Updated] Rapid Adjustment of YouTube Vids for Mac Screen</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-transfer/"><u>[Updated] Transfer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-web-accessory-fb-stories-keeper-for-2024/"><u>[Updated] Web Accessory FB Stories Keeper for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-top-tunes-apps-win-edition/"><u>2024 Approved Top Tunes Apps Win Edition</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/comprehensive-explanation-of-googles-automatic-transcription-technology/"><u>Comprehensive Explanation of Google's Automatic Transcription Technology</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/evaluating-compromises-in-hp-stream-14-a-cost-effective-windows-laptop-overview/"><u>Evaluating Compromises in HP Stream 14: A Cost-Effective Windows Laptop Overview</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/exploring-the-comfort-of-mods-latest-innovation-the-user-friendly-sidecar-e-bike/"><u>Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-asus-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Asus .</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-seamless-social-media-experience-with-fb-videos/"><u>In 2024, Seamless Social Media Experience with FB Videos</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-to-stop-mir4-from-freezing-on-your-computer/"><u>Troubleshooting Steps to Stop Mir4 From Freezing on Your Computer</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/vloggers-with-the-largest-digital-incomes-for-2024/"><u>Vloggers with the Largest Digital Incomes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-android-audio-alchemy-selecting-the-top-free-downloader-apps-from-youtube-for-2024/"><u>[New] Android Audio Alchemy Selecting the Top Free Downloader Apps From YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-auditing-video-content-monetization-success-for-2024/"><u>[New] Auditing Video Content Monetization Success for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-illustrator-tutorial-bringing-text-to-life/"><u>[New] Illustrator Tutorial Bringing Text to Life</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unleash-creativity-a-detailed-look-at-vsco-features/"><u>[New] In 2024, Unleash Creativity A Detailed Look at VSCO Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ascent-of-jake-paul-in-online-video-fame/"><u>[New] The Ascent of Jake Paul in Online Video Fame</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-errors-to-dodge-beginner-youtubers-guide/"><u>[Updated] 2024 Approved Essential Errors to Dodge Beginner YouTuber's Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-how-to-achieve-slick-sound-segmentation-in-premiere/"><u>[Updated] 2024 Approved How to Achieve Slick Sound Segmentation in Premiere</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-teen-riches-skyrocket-with-viral-video-empire/"><u>[Updated] 2024 Approved Teen Riches Skyrocket with Viral Video Empire</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engage-viewers-from-the-start-mobile-film-techniques-for-thumbnails-for-2024/"><u>[Updated] Engage Viewers From the Start Mobile Film Techniques for Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-maximize-earnings-navigating-youtubes-partner-program-updates/"><u>[Updated] Maximize Earnings Navigating YouTube's Partner Program Updates</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-revolutionize-your-content-reach-livestreaming-past-footage-on-facebook-for-2024/"><u>[Updated] Revolutionize Your Content Reach Livestreaming Past Footage on Facebook for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-rhythm-wizards-choice-online-tempo-tester-apps/"><u>[Updated] Rhythm Wizards' Choice Online Tempo Tester Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocket-your-channels-status-on-youtube-with-these-steps/"><u>[Updated] Skyrocket Your Channel's Status on YouTube with These Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-journey-seamlessly-converted-into-high-quality-avis/"><u>[Updated] YouTube's Journey Seamlessly Converted Into High-Quality AVIs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-generate-funny-image-for-giphy/"><u>2024 Approved Generate Funny Image for Giphy</u></a></li>
+<li><a href="https://extra-information.techidaily.com/all-inclusive-rundown-whats-behind-the-google-podcast-app-for-2024/"><u>All-Inclusive Rundown What's Behind the Google Podcast App for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/diversifying-from-googles-ar-enhancements/"><u>Diversifying From Google's AR Enhancements</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-art-of-multi-platform-broadcasting-in-the-digital-age-for-2024/"><u>The Art of Multi-Platform Broadcasting in the Digital Age for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/top-7-windows-photo-management-tools-an-essential-guide/"><u>Top 7 Windows Photo Management Tools: An Essential Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transform-your-streaming-journey-by-activating-youtubes-av1-for-2024/"><u>Transform Your Streaming Journey by Activating YouTube's AV1 for 2024</u></a></li>
 </ul></div>
 

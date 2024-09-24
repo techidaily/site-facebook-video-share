@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing Self-Filmed Content on YouTube\""
-date: 2024-09-14T16:00:01.069Z
-updated: 2024-09-18T16:16:38.569Z
+date: 2024-09-20T03:07:41.589Z
+updated: 2024-09-23T20:25:24.161Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -76,10 +83,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -98,20 +105,27 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -128,20 +142,25 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unleash-creative-fb-ad-videos-access-free-video-tools-now/"><u>[New] Unleash Creative FB Ad Videos - Access FREE Video Tools Now</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-snapseed-starters-handbook-for-photo-editing/"><u>[Updated] In 2024, The Snapseed Starter's Handbook for Photo Editing</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-multi-screen-recording-setup-for-2024/"><u>[Updated] Multi-Screen Recording Setup for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-smooth-and-swift-designing-your-best-thumbnails/"><u>[Updated] Smooth & Swift Designing Your Best Thumbnails</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>[Updated] Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-no-ads-content-creators-playbook-a-guide-to-monetizing-videos/"><u>[Updated] The No-Ads Content Creator’s Playbook A Guide to Monetizing Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-simple-way-to-control-comment-functionality-in-youtube/"><u>[Updated] The Simple Way to Control Comment Functionality in YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-youtubes-potential-establishing-an-effective-upload-cadence/"><u>[Updated] Unlocking YouTube's Potential Establishing an Effective Upload Cadence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unseen-horizons-the-top-3-non-youtube-video-havens/"><u>[Updated] Unseen Horizons The Top 3 Non-Youtube Video Havens</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/experience-unmatched-ease-sabrents-wireless-mobile-mouse-designed-for-exactness-and-reliability/"><u>Experience Unmatched Ease: Sabrent's Wireless Mobile Mouse Designed for Exactness and Reliability</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-s24plus-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy S24+ Phone Network-Ready</u></a></li>
-<li><a href="https://win-dash.techidaily.com/the-ultimate-tutorial-for-installing-the-latest-corsair-audio-device-drivers-in-windows/"><u>The Ultimate Tutorial for Installing the Latest Corsair Audio Device Drivers in Windows</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-guide-to-downloading-gifs-a-step-by-step-approach-for-2024/"><u>Twitter's Guide to Downloading GIFs A Step-by-Step Approach for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/understanding-usb-20-speeds-cabling-and-connector-options/"><u>Understanding USB 2.0: Speeds, Cabling, and Connector Options</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-enhance-your-imagery-a-step-by-step-guide-for-instagram-videos/"><u>[New] 2024 Approved Enhance Your Imagery A Step-by-Step Guide for Instagram Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expertly-selected-asmr-tools-for-androidios/"><u>[New] 2024 Approved Expertly Selected ASMR Tools for Android/iOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-an-intro-to-discovering-youtube-studio-content-creators-dreamland-for-2024/"><u>[New] An Intro to Discovering YouTube Studio Content Creator's Dreamland for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-engagement-with-solutions-to-common-shorts-challenges-for-2024/"><u>[New] Enhancing Engagement with Solutions to Common Shorts Challenges for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cutting-edge-tech-meets-creativity-top-12-camera-picks-for-vloggers/"><u>[New] In 2024, Cutting-Edge Tech Meets Creativity Top 12 Camera Picks for Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-youtubes-highest-peaks-post-vidcon/"><u>[New] Unraveling Youtube's Highest Peaks (Post-VidCon)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-building-a-solid-foundation-for-authenticity-in-design/"><u>[Updated] 2024 Approved Building a Solid Foundation for Authenticity in Design</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-knowledge-for-engaging-with-asmr-videos/"><u>[Updated] 2024 Approved Essential Knowledge for Engaging with ASMR Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-expert-video-upload-techniques-for-youtube-via-premiere/"><u>[Updated] 2024 Approved Expert Video Upload Techniques for YouTube via Premiere</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-quick-ways-to-retain-live-chat-transcripts-for-2024/"><u>[Updated] Quick Ways to Retain Live Chat Transcripts for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-simplify-passport-photography-with-these-top-10-low-cost-solutions/"><u>[Updated] Simplify Passport Photography with These Top 10 Low-Cost Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-sprinkle-some-joy-incorporating-emojis-into-youtube-discussions/"><u>[Updated] Sprinkle Some Joy Incorporating Emojis Into Youtube Discussions</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722986075919-black-screen-dilemma-solutions-that-work/"><u>Black Screen Dilemma - Solutions that Work!</u></a></li>
+<li><a href="https://windows11.techidaily.com/delving-into-individual-user-settings-on-group-policy-level/"><u>Delving Into Individual User Settings on Group Policy Level</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722978324816-get-the-newest-intel-wi-fi-6-ax200-drivers-compatible-with-windows-11-and-10-free-update-now/"><u>Get the Newest Intel Wi-Fi 6 AX200 Drivers Compatible with Windows 11 & 10 - Free Update Now</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-oneplus-ace-3-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your OnePlus Ace 3 Screen | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-superior-sonic-aligner-android-version/"><u>In 2024, Superior Sonic Aligner, Android Version</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-issue-of-crackling-noise-in-your-arctis-7-headphones-on-windows/"><u>Solving the Issue of Crackling Noise in Your Arctis 7 Headphones on Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-free-content-creation-blending-text-and-video-for-2024/"><u>Unlocking Free Content Creation Blending Text & Video for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-free-avi-video-editor-downloads-our-top-recommendations-for-2024/"><u>Updated Free AVI Video Editor Downloads Our Top Recommendations for 2024</u></a></li>
 </ul></div>
 

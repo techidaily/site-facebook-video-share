@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-09-16T16:06:33.535Z
-updated: 2024-09-18T16:16:31.809Z
+date: 2024-09-21T03:03:09.653Z
+updated: 2024-09-24T05:38:09.837Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -110,6 +117,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -128,6 +142,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -141,6 +162,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -157,33 +185,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-navigating-instagrams-video-landscape-a-detailed-look/"><u>[New] In 2024, Navigating Instagram's Video Landscape A Detailed Look</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-ancient-art-of-role-playing-evolutionary-trajectory-for-2024/"><u>[New] The Ancient Art of Role-Playing Evolutionary Trajectory for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-android-users-discover-the-top-youtube-video-clips/"><u>[Updated] In 2024, Android Users, Discover the Top YouTube Video Clips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-steps-to-clear-out-your-youtube-watch-later-collection/"><u>[Updated] Steps to Clear Out Your YouTube Watch Later Collection</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-guide-to-anime-style-youtube-subscribe-buttons-using-filmora/"><u>[Updated] The Essential Guide to Anime-Style YouTube Subscribe Buttons Using Filmora</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-editing-hacks-for-flawless-image-edits-on-canva/"><u>[Updated] Ultimate Editing Hacks for Flawless Image Edits on Canva</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-first-step-into-youtube-creating-an-engaging-channel/"><u>[Updated] Your First Step Into YouTube Creating an Engaging Channel</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-angle-adjustment-a-step-by-step-editing-guide/"><u>[Updated] Youtube Angle Adjustment A Step-by-Step Editing Guide</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/best-video-translator-app-for-pc-you-cannot-miss-for-2024/"><u>Best Video Translator App for PC You Cannot Miss for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-get-the-newest-update-of-elan-smbus-drivers-installed-on-your-window-computer-fixed/"><u>How to Get the Newest Update of ELAN SMBus Drivers Installed on Your Window Computer [FIXED]</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/mavericks-video-editors-handbook-a-step-by-step-guide-for-2024/"><u>Mavericks Video Editors Handbook A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/troubleshooting-anticheat-failure-errors-in-escape-from-tarkov-solved/"><u>Troubleshooting 'Anticheat Failure' Errors in Escape From Tarkov - Solved</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-guide-coding-your-own-multi-device-smart-remote/"><u>Ultimate Guide: Coding Your Own Multi-Device Smart Remote</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/viral-vortex-a-guide-to-powerful-social-media-tags-for-2024/"><u>Viral Vortex A Guide to Powerful Social Media Tags for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-profits-demystified-from-clicks-to-credit-for-2024/"><u>YouTube Profits Demystified From Clicks to Credit for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebook-today-changes-and-what-they-mean-for-you/"><u>[New] 2024 Approved Facebook Today Changes and What They Mean for You</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-join-the-circle-easy-friend-request-steps/"><u>[New] 2024 Approved Join the Circle Easy Friend Request Steps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-breakthrough-beginnings-in-panzoids-for-2024/"><u>[New] Breakthrough Beginnings in Panzoids for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-dispelling-darkness-enhancing-youtube-views-for-2024/"><u>[New] Dispelling Darkness, Enhancing Youtube Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-errors-to-dodge-beginner-youtubers-guide-for-2024/"><u>[New] Essential Errors to Dodge Beginner YouTuber's Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-access-royalty-free-beats-for-your-vlog-and-more/"><u>[Updated] 2024 Approved Access Royalty-Free Beats for Your Vlog & More</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-live-stream-screen-recorders-for-youtube/"><u>[Updated] 2024 Approved Best Live Stream Screen Recorders for YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-integrate-xp-moviemaker-from-digital-software-suite/"><u>[Updated] Integrate XP Moviemaker From Digital Software Suite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-erased-memories-how-to-revisit-them-online-for-2024/"><u>Youtube's Erased Memories How to Revisit Them Online for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
