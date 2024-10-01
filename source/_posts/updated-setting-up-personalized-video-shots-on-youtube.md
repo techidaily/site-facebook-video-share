@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Setting Up Personalized Video Shots on YouTube"
-date: 2024-09-17T18:47:31.608Z
-updated: 2024-09-24T00:53:02.603Z
+date: 2024-09-23T18:03:17.762Z
+updated: 2024-10-01T05:04:46.164Z
 tags:
   - ai video
   - ai youtube
@@ -37,14 +37,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -61,10 +61,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -80,13 +80,6 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -112,20 +105,33 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,5 +146,26 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-success-navigating-youtube-statistics-with-social-blade/"><u>[New] 2024 Approved Charting Success Navigating YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-10-professional-grade-microphones-for-podcasters/"><u>[New] Top 10 Professional-Grade Microphones for Podcasters</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-the-free-webinar-recorders-manual/"><u>[Updated] 2024 Approved The Free Webinar Recorder's Manual</u></a></li>
+<li><a href="https://article-posts.techidaily.com/1718032495933-updated-360-degree-cameras-vs-3d-cameras-what-are-the-differences/"><u>[Updated] 360 Degree Cameras Vs 3D Cameras What Are the Differences?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-5-innovative-apps-to-design-stunning-openings-for-2024/"><u>[Updated] 5 Innovative Apps to Design Stunning Openings for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-frameworks-for-compelling-youtube-content-layouts/"><u>[Updated] Frameworks for Compelling YouTube Content Layouts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ensuring-authenticity-as-you-aspire-for-one-million-video-watches/"><u>[Updated] In 2024, Ensuring Authenticity as You Aspire for One Million Video Watches</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-definitive-guide-to-ios-and-android-maker-tools/"><u>[Updated] The Definitive Guide to iOS & Android Maker Tools</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-picsarts-latest-features-rev-2024/"><u>[Updated] The Ultimate Guide to PicsArt's Latest Features, Rev. 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-monetization-showdown-dailymotion-vs-youtubes-financial-gains/"><u>2024 Approved Video Monetization Showdown Dailymotion vs Youtube's Financial Gains</u></a></li>
+<li><a href="https://fox-access.techidaily.com/a-compreranium-of-hand-tracking-systems-for-2024/"><u>A Compreranium of Hand Tracking Systems for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/how-to-create-vintage-videos-a-comprehensive-tutorial-for-2024/"><u>How to Create Vintage Videos A Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-easily-convert-your-m4a-files-into-mp3-format-with-vlc-media-player-a-comprehensive-tutorial/"><u>How to Easily Convert Your M4A Files Into MP3 Format with VLC Media Player - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-infinix-by-drfone-android/"><u>How to Show Wi-Fi Password on Infinix</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-13-mini-to-samsung-galaxy-s20-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 13 mini to Samsung Galaxy S20? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-downloading-standardized-images-from-youtube-for-2024/"><u>The Ultimate Guide to Downloading Standardized Images From Youtube for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-totobay-2nd-gen-wake-up-light-affordable-luxury-for-awakening/"><u>The Ultimate Review of Totobay 2Nd Gen Wake-Up Light - Affordable Luxury for Awakening</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transfer-for-2024/"><u>Transfer for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/wifi-configuration-made-simple-in-windows-7-a-comprehensive-solution/"><u>WiFi Configuration Made Simple in Windows 7: A Comprehensive Solution</u></a></li>
+</ul></div>
 

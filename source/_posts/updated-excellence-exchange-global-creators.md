@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Excellence Exchange  Global Creators\""
-date: 2024-09-20T00:12:55.075Z
-updated: 2024-09-23T17:25:20.039Z
+date: 2024-09-27T04:56:53.474Z
+updated: 2024-09-30T17:28:44.452Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -66,6 +73,13 @@ One of the major benefits of attending this summit would have been networking wi
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -75,35 +89,22 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -113,26 +114,19 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -148,5 +142,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-blur-techniques-for-hand-held-stability/"><u>[New] 2024 Approved Avoiding Blur Techniques for Hand-Held Stability</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-viewers-prime-video-ideas-for-channels-for-2024/"><u>[New] Elevating Viewers Prime Video Ideas for Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-comprehensive-look-editing-and-polishing-yt-videos-via-movie-maker/"><u>[New] In 2024, A Comprehensive Look Editing and Polishing YT Videos via Movie Maker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-commanding-youtube-realm-through-strategic-creator-studio-utilization/"><u>[New] In 2024, Commanding YouTube Realm Through Strategic Creator Studio Utilization</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-pro-gamers-and-casters-to-subscribe-now/"><u>[New] Pro Gamers & Casters to Subscribe Now!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-achieving-flawless-visual-balance-aspect-ratios-matter/"><u>[Updated] Achieving Flawless Visual Balance Aspect Ratios Matter</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gain-traction-in-the-algorithm-the-insiders-manual-for-featured-channels/"><u>[Updated] Gain Traction in the Algorithm The Insider's Manual for Featured Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-explore-online-downloads-converting-youtube-to-mp3-made-simple/"><u>[Updated] In 2024, Explore Online Downloads Converting YouTube to MP3 Made Simple</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-tailoring-content-to-trends-organic-growth-strategies-for-youtubers/"><u>[Updated] Tailoring Content to Trends Organic Growth Strategies for YouTubers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-top-five-mac-screen-seize-techniques-char-limit-156-for-2024/"><u>[Updated] Top Five Mac Screen Seize Techniques (Char Limit 156) for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-selfie-showstoppers-adding-whimsy-with-the-cartoon-lens/"><u>2024 Approved Selfie Showstoppers Adding Whimsy with the Cartoon Lens</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/cross-platform-zoom-meeting-setup-guide-for-2024/"><u>Cross-Platform Zoom Meeting Setup Guide for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/democratize-your-digital-dedication-increase-your-follower-count/"><u>Democratize Your Digital Dedication Increase Your Follower Count</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722965587714-nvidias-newest-rtx-grove-3080-driver-for-your-windows-pc-get-it-here/"><u>NVIDIA's Newest RTX Grove 3080 Driver for Your Windows PC: Get It Here!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unraveling-the-process-of-uploading-360-footage-to-youtube/"><u>Unraveling the Process of Uploading 360° Footage to YouTube</u></a></li>
+</ul></div>
 

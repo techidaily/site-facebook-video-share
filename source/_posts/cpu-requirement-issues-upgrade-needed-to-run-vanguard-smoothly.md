@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2024-09-22T02:51:47.396Z
-updated: 2024-09-23T22:57:43.500Z
+date: 2024-09-26T03:50:15.398Z
+updated: 2024-09-30T23:18:08.546Z
 tags:
   - win11
   - win10
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
  If you’re using a Wi-Fi connection, try using an ethernet cable. An ethernet cable can provide a more stable internet connection. If that’s not an option, you can instead, move your computer closer to your router as the distance between your PC and the Router could also affect your Wi-Fi connection and your gaming performance.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 2: Update your graphics driver
@@ -78,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
  Relaunch the game to test your issue. If it’s still occurring, try the next fix below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 3: Verify Warframe cache files
 
  Game issues might occur when your game installation files are outdated or get corrupted somehow. In this case, you can verify the game cache files in the Warframe launcher settings menu.
@@ -114,25 +107,32 @@ Your game still freezes? Try the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your issue persists, then move on to the next fix below.
@@ -172,5 +172,19 @@ If your issue persists, then move on to the next fix below.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-smooth-sailing-easy-recording-tips-for-your-logitech-cam/"><u>[New] Smooth Sailing Easy Recording Tips for Your Logitech Cam</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-resize-youtube-to-fit-mac-display-ratio/"><u>[Updated] Quick Resize YouTube to Fit Mac Display Ratio</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stream-like-never-before-turning-on-youtubes-av1/"><u>[Updated] Stream Like Never Before Turning On YouTube's AV1</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-8-plus-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot iPhone 8 Plus Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-samsung-galaxy-s23-ultra-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Samsung Galaxy S23 Ultra? Try These Fixes</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/game-on-recording-off-nvidia-magic/"><u>Game On, Recording Off! - NVIDIA Magic</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-a05-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy A05 Phone?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-itel-a60-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Itel A60 Phone?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premier-pro-expertise-for-sound-switchers/"><u>In 2024, Premier Pro Expertise for Sound Switchers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-stutters-on-galaxy-m14-5g-and-stops-randomly-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV stutters on Galaxy M14 5G and stops randomly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimal-tripod-setup-for-smooth-professional-videography-for-2024/"><u>Optimal Tripod Setup for Smooth, Professional Videography for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-social-media-symphony-composing-jake-pauls-youtube-success-for-2024/"><u>The Social Media Symphony Composing Jake Paul's YouTube Success for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Free Templates for Dynamic YouTube Channel Closures"
-date: 2024-09-12T16:15:50.989Z
-updated: 2024-09-18T16:18:44.224Z
+date: 2024-09-26T23:44:25.061Z
+updated: 2024-09-30T19:02:29.073Z
 tags:
   - ai video
   - ai youtube
@@ -101,17 +101,45 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -136,12 +164,20 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-prodigy-skyrocketing-with-content-innovation/"><u>[New] 2024 Approved Channel Prodigy Skyrocketing with Content Innovation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-unique-content-to-differentiate-your-channel/"><u>[New] 2024 Approved Crafting Unique Content to Differentiate Your Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>[Updated] In 2024, Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-immersive-odyssey-top-10-best-free-mmorpgs-ever/"><u>[Updated] In 2024, Immersive Odyssey Top 10 Best Free MMORPGs Ever</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-pathway-to-youtube-prosperity-a-comprehensive-guide/"><u>[Updated] In 2024, The Pathway to YouTube Prosperity - A Comprehensive Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-starting-an-online-platform-for-consumer-goods-reviews/"><u>[Updated] Starting an Online Platform for Consumer Goods Reviews</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-vimeo-vs-youtube-the-differentiators-analysis/"><u>[Updated] Vimeo V/S YouTube The Differentiator's Analysis</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accelerate-your-setup-5-key-tools-to-turbocharge-windows/"><u>Accelerate Your Setup: 5 Key Tools to Turbocharge Windows</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-xiaomi-redmi-13c-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Xiaomi Redmi 13C to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>In 2024, How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-icloud-unlocker-download-unlock-icloud-lock-for-your-iphone-13-by-drfone-ios/"><u>In 2024, iCloud Unlocker Download Unlock iCloud Lock for your iPhone 13</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/restore-original-sound-in-tweet-video-links-for-2024/"><u>Restore Original Sound in Tweet Video Links for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-slides-potential-embedding-video-from-youtube-for-2024/"><u>Unlock Slides' Potential Embedding Video From YouTube for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, A Deep-Dive Into Digital Platform Wealth  Dailymotion & YouTube Comparison\""
-date: 2024-09-12T16:19:27.420Z
-updated: 2024-09-18T16:06:07.911Z
+date: 2024-09-27T19:21:17.788Z
+updated: 2024-09-30T17:44:49.865Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,13 @@ This article compares Dailymotion monetization to YouTube on privacy, audience, 
 
 ![dailymotion monetization vs youtube](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### YouTube
 
 A three-person team, Chad Hurley, Steve Chen, and Jawed Karim, founded YouTube in 2005\. Their goal is to create YouTube as a global platform for sharing videos. A huge $1.65 billion was paid by Google for buying YouTube. YouTube then became a more popular website with over two billion users every month.
@@ -35,6 +42,13 @@ A three-person team, Chad Hurley, Steve Chen, and Jawed Karim, founded YouTube i
 Lots of creators, like makeup artists and gamers, make money on YouTube. With the platform, you can livestream, make money from your videos, and watch tons of user-made videos.
 
 ![youtube: what is it](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Dailymotion
 
@@ -113,6 +127,13 @@ Let's take a look at a powerful tool to enhance your gaming experience. It's Won
 
 ![filmora wondershare](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-6.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
@@ -136,19 +157,6 @@ To create engaging content, you must have great audio. With Filmora's audio tool
 Using Wondershare Filmora, you can transform your ordinary videos into something extraordinary. There are a variety of effects available, such as overlays, filters, and transitions. Filters allow you to change your videos' feel and appearance. With overlays, like glitch overlays, you can enhance your videos.
 
 ![filmora video effects](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-9.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 4\. Color Correction
 
@@ -226,6 +234,13 @@ The Dailymotion Partner Program has made several French video creators extremely
 
 ![programs and options for dailymotion monetization](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Monetization Requirements and Earning Potential
 
 YouTube's YPP monetizes accounts with 1,000 subscribers and earns revenue through advertising. You'll get 55% of the revenue generated by the ads shown during, before, and after your videos. It is also possible to charge channel memberships. For every 1,000 views, the average YouTuber makes about $18.
@@ -235,13 +250,6 @@ The Dailymotion Partner Program monetizes your videos. The least number of views
 ### Choosing Between YouTube and Dailymotion Channel Monetization
 
 ![choosing between dailymotion and youtube](https://images.wondershare.com/filmora/article-images/2023/Dailymotion-Monetization-vs-YouTube-Which-Is-More-Profitable-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now that you've seen a YouTube vs. Dailymotion comparison, you are leaning toward one. Let's dive into some key questions if you're still not sure (you can use both platforms):
 
@@ -316,178 +324,13 @@ If you put captions on your videos, more people will watch. Think of Filmora as 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Finding ways to engage your YouTube audience and attract new followers requires a lot of dedication and hard work. Even though there are only a handful of channels built entirely around **reaction videos**, this genre of videos can help you make your channel more diverse.
-
-However, copyright restrictions prevent you from commenting on any video you find interesting, which is the reason why you have to get creative while choosing the next idea for a reaction video. So, in this article we are going to take you through some of the **best YouTube video reaction ideas** you can use to comment on different types of YouTube videos.
-
-Previously we have demonstrated [how to create a YouTube reaction video with Filmora](https://tools.techidaily.com/wondershare/filmora/download/), check it to get some inspiration.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
-
-The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
-
-### 1\. React to music videos
-
-Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
-
-### 2\. Video game reactions
-
-Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
-
-### 3\. React to video’s comments
-
-YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
-
-### 4\. Make a ‘Kids React To’ videos
-
-Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
-
-### 5\. React to ‘React To’ Videos
-
-Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
-
-### 6\. Comment on your old videos
-
-Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
-
-### 7\. Record reactions of elderly people
-
-It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
-
-### 8\. React to different challenges
-
-Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
-
-### 9\. React to TV shows
-
-We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
-
-### 10\. Comment on movie trailers
-
-If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
-
-Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
-
-With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Conclusion**
-
-Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Finding ways to engage your YouTube audience and attract new followers requires a lot of dedication and hard work. Even though there are only a handful of channels built entirely around **reaction videos**, this genre of videos can help you make your channel more diverse.
-
-However, copyright restrictions prevent you from commenting on any video you find interesting, which is the reason why you have to get creative while choosing the next idea for a reaction video. So, in this article we are going to take you through some of the **best YouTube video reaction ideas** you can use to comment on different types of YouTube videos.
-
-Previously we have demonstrated [how to create a YouTube reaction video with Filmora](https://tools.techidaily.com/wondershare/filmora/download/), check it to get some inspiration.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
----
-
-## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
-
-The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
-
-### 1\. React to music videos
-
-Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-### 2\. Video game reactions
-
-Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
-
-### 3\. React to video’s comments
-
-YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
-
-### 4\. Make a ‘Kids React To’ videos
-
-Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
-
-### 5\. React to ‘React To’ Videos
-
-Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
-
-### 6\. Comment on your old videos
-
-Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
-
-### 7\. Record reactions of elderly people
-
-It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
-
-### 8\. React to different challenges
-
-Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
-
-### 9\. React to TV shows
-
-We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
-
-### 10\. Comment on movie trailers
-
-If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
-
-Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
-
-With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Conclusion**
-
-Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -505,135 +348,301 @@ Previously we have demonstrated [how to create a YouTube reaction video with Fil
 ## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
 
 The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
-
-### 1\. React to music videos
-
-Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
-
-### 2\. Video game reactions
-
-Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
-
-### 3\. React to video’s comments
-
-YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
-
-### 4\. Make a ‘Kids React To’ videos
-
-Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
-
-### 5\. React to ‘React To’ Videos
-
-Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
-
-### 6\. Comment on your old videos
-
-Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
-
-### 7\. Record reactions of elderly people
-
-It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
-
-### 8\. React to different challenges
-
-Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
-
-### 9\. React to TV shows
-
-We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
-
-### 10\. Comment on movie trailers
-
-If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
-
-Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
-
-With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Conclusion**
-
-Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Finding ways to engage your YouTube audience and attract new followers requires a lot of dedication and hard work. Even though there are only a handful of channels built entirely around **reaction videos**, this genre of videos can help you make your channel more diverse.
-
-However, copyright restrictions prevent you from commenting on any video you find interesting, which is the reason why you have to get creative while choosing the next idea for a reaction video. So, in this article we are going to take you through some of the **best YouTube video reaction ideas** you can use to comment on different types of YouTube videos.
-
-Previously we have demonstrated [how to create a YouTube reaction video with Filmora](https://tools.techidaily.com/wondershare/filmora/download/), check it to get some inspiration.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
-
-The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
-
-### 1\. React to music videos
-
-Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
-
-### 2\. Video game reactions
-
-Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
-
-### 3\. React to video’s comments
-
-YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
-
-### 4\. Make a ‘Kids React To’ videos
-
-Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
-
-### 5\. React to ‘React To’ Videos
-
-Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
-
-### 6\. Comment on your old videos
-
-Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
-
-### 7\. Record reactions of elderly people
-
-It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
-
-### 8\. React to different challenges
-
-Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
-
-### 9\. React to TV shows
-
-We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
-
-### 10\. Comment on movie trailers
-
-If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
-
-Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
-
-With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### 1\. React to music videos
+
+Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
+
+### 2\. Video game reactions
+
+Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
+
+### 3\. React to video’s comments
+
+YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
+
+### 4\. Make a ‘Kids React To’ videos
+
+Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
+
+### 5\. React to ‘React To’ Videos
+
+Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
+
+### 6\. Comment on your old videos
+
+Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
+
+### 7\. Record reactions of elderly people
+
+It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
+
+### 8\. React to different challenges
+
+Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
+
+### 9\. React to TV shows
+
+We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
+
+### 10\. Comment on movie trailers
+
+If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
+
+Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Conclusion**
+
+Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Finding ways to engage your YouTube audience and attract new followers requires a lot of dedication and hard work. Even though there are only a handful of channels built entirely around **reaction videos**, this genre of videos can help you make your channel more diverse.
+
+However, copyright restrictions prevent you from commenting on any video you find interesting, which is the reason why you have to get creative while choosing the next idea for a reaction video. So, in this article we are going to take you through some of the **best YouTube video reaction ideas** you can use to comment on different types of YouTube videos.
+
+Previously we have demonstrated [how to create a YouTube reaction video with Filmora](https://tools.techidaily.com/wondershare/filmora/download/), check it to get some inspiration.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
+
+The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
+
+### 1\. React to music videos
+
+Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
+
+### 2\. Video game reactions
+
+Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
+
+### 3\. React to video’s comments
+
+YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
+
+### 4\. Make a ‘Kids React To’ videos
+
+Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
+
+### 5\. React to ‘React To’ Videos
+
+Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
+
+### 6\. Comment on your old videos
+
+Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
+
+### 7\. Record reactions of elderly people
+
+It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
+
+### 8\. React to different challenges
+
+Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
+
+### 9\. React to TV shows
+
+We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
+
+### 10\. Comment on movie trailers
+
+If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
+
+Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Conclusion**
+
+Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Finding ways to engage your YouTube audience and attract new followers requires a lot of dedication and hard work. Even though there are only a handful of channels built entirely around **reaction videos**, this genre of videos can help you make your channel more diverse.
+
+However, copyright restrictions prevent you from commenting on any video you find interesting, which is the reason why you have to get creative while choosing the next idea for a reaction video. So, in this article we are going to take you through some of the **best YouTube video reaction ideas** you can use to comment on different types of YouTube videos.
+
+Previously we have demonstrated [how to create a YouTube reaction video with Filmora](https://tools.techidaily.com/wondershare/filmora/download/), check it to get some inspiration.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
+
+The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
+
+### 1\. React to music videos
+
+Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
+
+### 2\. Video game reactions
+
+Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
+
+### 3\. React to video’s comments
+
+YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 4\. Make a ‘Kids React To’ videos
+
+Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
+
+### 5\. React to ‘React To’ Videos
+
+Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
+
+### 6\. Comment on your old videos
+
+Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
+
+### 7\. Record reactions of elderly people
+
+It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
+
+### 8\. React to different challenges
+
+Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
+
+### 9\. React to TV shows
+
+We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
+
+### 10\. Comment on movie trailers
+
+If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
+
+Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Conclusion**
+
+Coming up with a unique idea for a reaction video isn’t necessarily a simple process, because there are so many reaction videos on YouTube. That is why the YouTube video reaction ideas you choose to have to fit perfectly into your channel’s theme. What is your favorite YouTube video reaction idea? Share your opinions in the comments.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Finding ways to engage your YouTube audience and attract new followers requires a lot of dedication and hard work. Even though there are only a handful of channels built entirely around **reaction videos**, this genre of videos can help you make your channel more diverse.
+
+However, copyright restrictions prevent you from commenting on any video you find interesting, which is the reason why you have to get creative while choosing the next idea for a reaction video. So, in this article we are going to take you through some of the **best YouTube video reaction ideas** you can use to comment on different types of YouTube videos.
+
+Previously we have demonstrated [how to create a YouTube reaction video with Filmora](https://tools.techidaily.com/wondershare/filmora/download/), check it to get some inspiration.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## 10 Best YouTube Video Reaction Ideas You Should Try in 2021
+
+The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
+
+### 1\. React to music videos
+
+Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
+
+### 2\. Video game reactions
+
+Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attention on YouTube, and if you are a fan of any of them you can easily react to the gameplay. Reacting to video games is only a good idea if your channel is dedicated to gaming, because otherwise, this reaction video idea may seem off-topic.
+
+### 3\. React to video’s comments
+
+YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
+
+### 4\. Make a ‘Kids React To’ videos
+
+Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
+
+### 5\. React to ‘React To’ Videos
+
+Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
+
+### 6\. Comment on your old videos
+
+Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
+
+### 7\. Record reactions of elderly people
+
+It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
+
+### 8\. React to different challenges
+
+Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
+
+### 9\. React to TV shows
+
+We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
+
+### 10\. Comment on movie trailers
+
+If you are running a movie channel on YouTube, your followers are expecting your comment on the latest releases. Sharing your opinion about trailers of movies you like or dislike with your audience is going to help you start a conversation about that movie. This idea is only worth considering if you are a movie buff, since analyzing a movie trailer or reacting to it is anything but easy.
+
+Interested in Movie Trailer? You can now make it with some [best movie trailer makers](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Conclusion**
 
@@ -660,5 +669,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-15-indispentic-tools-to-launch-your-youtube-career-for-2024/"><u>[New] 15 Indispentic Tools to Launch Your YouTube Career for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-live-recording-gadgets-for-youtube-content-creators/"><u>[New] 2024 Approved Best Live Recording Gadgets for YouTube Content Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-combat-common-youtube-short-obstacles-for-2024/"><u>[New] Combat Common YouTube Short Obstacles for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-exploring-premium-9-digital-mic-capture-tools/"><u>[Updated] Exploring Premium 9 Digital Mic Capture Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expert-roundup-of-platforms-for-video-intro-acquisition/"><u>[Updated] In 2024, Expert Roundup of Platforms for Video Intro Acquisition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-maximizing-your-visuals-the-ultrawide-vs-uhd-4k-debate-for-2024/"><u>[Updated] Maximizing Your Visuals The UltraWide vs UHD 4K Debate for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigate-the-looping-world-with-our-yt-video-playback-hacks/"><u>[Updated] Navigate the Looping World with Our YT Video Playback Hacks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-mechanisms-that-govern-youtube-after-a-video-is-live/"><u>[Updated] Unveiling the Mechanisms That Govern YouTube After a Video Is Live</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-cutting-edge-technology-with-toms-hardware-guides/"><u>Exploring Cutting-Edge Technology with Tom's Hardware Guides</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-windows-update-error-code-0x802e-a-comprehensive-guide/"><u>Fixing Windows Update Error Code 0X802e: A Comprehensive Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-game-on-a-comprehensive-guide-to-xbox-one-captures/"><u>In 2024, Game On A Comprehensive Guide to Xbox One Captures</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID on iPhone 11 Pro Max</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-mastery-for-phones-choose-from-the-top-8-timers/"><u>In 2024, Instagram Mastery for Phones - Choose From The Top 8 Timers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-lava-yuva-2-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Lava Yuva 2 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/proficient-content-tagging-made-simple-the-best-7-budget-friendly-online-taggification-apps-reviewed-for-2024/"><u>Proficient Content Tagging Made Simple The Best 7 Budget-Friendly Online Taggification Apps Reviewed for 2024</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/step-by-step-guide-creating-your-own-usb-defender-key-for-windows-11-safety/"><u>Step-by-Step Guide: Creating Your Own USB Defender Key for Windows 11 Safety</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamline-your-online-presence-yt-descriptive-insights-for-2024/"><u>Streamline Your Online Presence YT Descriptive Insights for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-role-of-creative-commons-in-youtube-content-sharing-for-2024/"><u>The Role of Creative Commons in YouTube Content Sharing for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-mastering-the-art-of-adding-emails-to-your-safe-list/"><u>Ultimate Guide: Mastering the Art of Adding Emails to Your Safe List</u></a></li>
+</ul></div>
 
