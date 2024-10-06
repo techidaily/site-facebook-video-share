@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-08-01T11:42:55.326Z
-updated: 2024-08-02T11:42:55.326Z
+date: 2024-10-01T18:50:50.734Z
+updated: 2024-10-06T08:21:48.199Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/b6c1c170b3fb34192b1990649e9c8685733790cb7
 
 # Daily Vlogging Ideas: What to Talk about While Vlogging?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -54,18 +51,12 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -77,8 +68,12 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -96,11 +91,22 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
@@ -110,10 +116,14 @@ You could also just flick the camera on and tell the full story of your day like
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -121,12 +131,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creating-user-friendly-youtube-subscribe-icons/"><u>[New] 2024 Approved Creating User-Friendly YouTube Subscribe Icons</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-master-adding-youtube-videos-to-gslides-a-step-by-step-guide/"><u>[New] 2024 Approved Master Adding YouTube Videos to GSlides A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-deep-dive-into-youtubes-latest-monetization-policy-for-2024/"><u>[New] A Deep Dive Into YouTube's Latest Monetization Policy for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-cyberlink-vs-alternatives-the-ultimate-recording-showdown/"><u>[New] Cyberlink Vs. Alternatives The Ultimate Recording Showdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-efficient-broadcast-techniques-incorporating-youtube-loops-on-tv-for-2024/"><u>[New] Efficient Broadcast Techniques Incorporating YouTube Loops on TV for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decode-youtube-shorts-a-complete-breakdown/"><u>[New] In 2024, Decode YouTube Shorts A Complete Breakdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-free-online-music-libraries-15-picks/"><u>[Updated] 2024 Approved Essential Free Online Music Libraries 15 Picks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-successful-strategies-to-elevate-audience-numbers-on-youtube-shorts/"><u>[Updated] 2024 Approved Exploring Successful Strategies to Elevate Audience Numbers on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-blueprints-for-breaking-ground-in-edu-video-production-on-youtube-channels-for-2024/"><u>[Updated] Blueprints for Breaking Ground in Edu-Video Production on YouTube Channels for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-top-7-shooter-games-you-must-play-today/"><u>[Updated] In 2024, Top 7 Shooter Games You Must Play Today</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtubes-short-form-content-key-tips-revealed/"><u>[Updated] Mastering YouTube's Short-Form Content Key Tips Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyline-your-videos-reach-writing-captivating-youtube-descs-using-templates/"><u>[Updated] Skyline Your Video's Reach Writing Captivating Youtube Descs Using Templates</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/cool-whatsapp-tricks-and-hidden-features-you-should-know-for-2024/"><u>Cool Whatsapp Tricks and Hidden Features You Should Know for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/financial-frontiers-unveiling-pewdiepies-income-graph-for-2024/"><u>Financial Frontiers Unveiling PewDiePie's Income Graph for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-missing-d3dxt939dll-errors-in-windows-expert-solutions-and-tips/"><u>Fixing Missing d3dxt9_39.dll Errors in Windows - Expert Solutions and Tips</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-motorola-moto-g13-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Motorola Moto G13 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/step-by-step-guide-converting-mkv-videos-for-seamless-webm-playback/"><u>Step-by-Step Guide: Converting MKV Videos for Seamless WebM Playback</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-cutting-room-floor-experts-share-tips-on-video-editing-for-2024/"><u>The Cutting Room Floor Experts Share Tips on Video Editing for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-the-leading-speech-recognition-applications-on-the-market-android-and-iphone-focus-for-2024/"><u>Updated The Leading Speech Recognition Applications on the Market - Android & iPhone Focus for 2024</u></a></li>
+</ul></div>
 

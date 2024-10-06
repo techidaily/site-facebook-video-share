@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing Self-Filmed Content on YouTube\""
-date: 2024-09-29T21:52:02.881Z
-updated: 2024-10-01T01:06:20.783Z
+date: 2024-10-01T08:13:16.548Z
+updated: 2024-10-06T09:34:28.853Z
 tags:
   - ai video
   - ai youtube
@@ -37,14 +37,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -60,13 +60,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -81,6 +74,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -88,6 +88,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -112,20 +119,13 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,15 +142,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-affordable-gopros-where-to-buy-with-best-price/"><u>[New] Affordable GoPros Where to Buy with Best Price</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-seamless-sharing-of-oversized-content-from-iphone-to-macos/"><u>[New] Seamless Sharing of Oversized Content From iPhone to macOS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-10-free-youtube-playlist-downloaders-onlinepcandroidios2/"><u>[Updated] 2024 Approved 10 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]2</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker/"><u>[Updated] In 2024, Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-refine-your-youtube-identity-with-efficient-descriptions/"><u>[Updated] Refine Your YouTube Identity with Efficient Descriptions</u></a></li>
-<li><a href="https://techtrends.techidaily.com/gratis-online-omwandelen-van-mp2-naar-avi-format-een-beknopte-richtlijn-met-movavi/"><u>Gratis Online Omwandelen Van MP2 Naar Avi-Format: Een Beknopte Richtlijn Met Movavi</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-oppo-find-n3-by-drfone-android/"><u>How to Bypass FRP on Oppo Find N3?</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solved-fix-your-logitech-g-pro-x-microphone-malfunctions-easily/"><u>Solved: Fix Your Logitech G Pro X Microphone Malfunctions Easily</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-list-10-text-effects-to-elevate-your-clips-for-2024/"><u>The Ultimate List 10 Text Effects to Elevate Your Clips for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-top-6-favorite-short-form-video-download-tools-for-2024/"><u>Unveiling the Top 6 Favorite Short-Form Video Download Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[New] In 2024, Directing Content Destination From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-your-vlogs-with-high-quality-editing-premiere-pro-style/"><u>[New] In 2024, Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-navigating-best-options-expert-picks-from-top-9-free-logomakers/"><u>[Updated] 2024 Approved Navigating Best Options Expert Picks From Top 9 Free Logomakers</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-crafting-a-triumphant-tiktok-advertising-strategy/"><u>[Updated] Crafting a Triumphant TikTok Advertising Strategy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-enchanting-audiences-crafting-captivating-animation-with-wmm-for-2024/"><u>[Updated] Enchanting Audiences Crafting Captivating Animation with WMM for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-youtube-determines-your-true-view-count/"><u>[Updated] How YouTube Determines Your True View Count</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-tecno-camon-20-pro-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Tecno Camon 20 Pro 5G</u></a></li>
+<li><a href="https://change-location.techidaily.com/ipogo-will-be-the-new-ispoofer-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Xiaomi Redmi A2+? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/softening-edges-strategic-lighting-for-content-creators-for-2024/"><u>Softening Edges Strategic Lighting for Content Creators for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-to-trimming-videos-on-your-android-device/"><u>Step-by-Step Guide to Trimming Videos on Your Android Device</u></a></li>
 </ul></div>
 

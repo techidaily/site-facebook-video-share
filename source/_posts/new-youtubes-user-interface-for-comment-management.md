@@ -1,7 +1,7 @@
 ---
 title: "[New] YouTube's User Interface for Comment Management"
-date: 2024-09-12T16:22:45.200Z
-updated: 2024-09-18T16:11:29.009Z
+date: 2024-09-30T16:18:07.967Z
+updated: 2024-10-05T22:28:56.984Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -110,7 +117,27 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -127,6 +154,13 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -155,12 +189,21 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-your-content-best-practices-in-collaborative-youtube-outros/"><u>[New] 2024 Approved Amplify Your Content Best Practices in Collaborative YouTube Outros</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-discovering-the-least-expensive-cloud-storage-plans/"><u>[New] 2024 Approved Discovering the Least Expensive Cloud Storage Plans</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-optimal-cameras-for-puppet-film-projects/"><u>[New] 2024 Approved Optimal Cameras for Puppet Film Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-who-youre-watching-6-quizzes-for-youtube-fans/"><u>[New] In 2024, Discover Who You're Watching 6 Quizzes for YouTube Fans</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audiophiles-guide-techniques-to-elevate-sound-recording/"><u>[Updated] 2024 Approved Audiophile's Guide Techniques to Elevate Sound Recording</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-comprehensive-guide-to-minecraft-live-streaming/"><u>[Updated] 2024 Approved Comprehensive Guide to Minecraft Live Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-your-youtube-empire-kit-overview-for-2024/"><u>[Updated] Building Your YouTube Empire Kit Overview for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-solvedhow-to-blur-faces-or-objects-in-youtube-videos-for-2024/"><u>[Updated] Solved How to Blur Faces or Objects in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-sharing-showdown-20-decoding-the-platform-preferences-vimeo-youtubes-and-dailymotions/"><u>2024 Approved Video Sharing Showdown 2.0 Decoding the Platform Preferences - Vimeo, YouTubes & DailyMotions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-oppo-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Oppo FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-detailed-dissection-straightforward-hdr-methods/"><u>In 2024, Detailed Dissection Straightforward HDR Methods</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-13-mini-drfone-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/joining-the-metaverse-comedy-club-top-20plus-memes-and-techniques-for-2024/"><u>Joining the Metaverse Comedy Club Top 20+ Memes & Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transform-your-channels-views-with-strategic-insights-for-2024/"><u>Transform Your Channels Views with Strategic Insights for 2024</u></a></li>
+</ul></div>
 

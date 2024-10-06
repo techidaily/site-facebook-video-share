@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike"
-date: 2024-09-28T16:45:03.095Z
-updated: 2024-09-30T16:43:01.127Z
+date: 2024-09-28T18:33:36.098Z
+updated: 2024-10-06T06:57:43.411Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike"
@@ -42,10 +42,16 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -69,6 +75,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -76,6 +89,13 @@ Lifewire / Erika Rawes
  It doesn’t come with a stand, but it does include 3M double-sided adhesives you can use to attach the antenna to walls or other surfaces. It also comes with a 10-foot long coax cable, which is removable. The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
 
@@ -87,13 +107,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -103,6 +116,19 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -120,19 +146,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -142,13 +155,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -181,24 +187,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-double-your-watch-time-on-youtube-with-these-tips/"><u>[New] 2024 Approved Double Your Watch Time on YouTube with These Tips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-video-game-top-10-keyword-strategy-resources/"><u>[New] 2024 Approved Elevate Your Video Game Top 10 Keyword Strategy Resources</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-youtube-gaming-content-with-key-freefire-hashtags/"><u>[New] 2024 Approved Elevate Your YouTube Gaming Content With Key FreeFire Hashtags</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-a-journey-through-colors-leading-tutorials-for-grading-and-correction/"><u>[New] A Journey Through Colors Leading Tutorials for Grading & Correction</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-collabs-for-youtube-channel-expansion/"><u>[New] In 2024, Crafting Collabs for YouTube Channel Expansion</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-transcribing-online-master-the-art-of-free-youtube-conversion/"><u>[New] Transcribing Online Master the Art of Free YouTube Conversion</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-virtual-diary-dos-and-donts-for-consistent-content/"><u>[New] Virtual Diary Dos & Don'ts for Consistent Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-10-unique-video-reaction-strategies-for-online-enthusiasts-for-2024/"><u>[Updated] 10 Unique Video Reaction Strategies for Online Enthusiasts for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-post-youtube-video-on-the-best-days-to-get-more-view/"><u>[Updated] In 2024, Post Youtube Video on the Best Days to Get More View</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-youtube-insights-via-social-blade-mastering-your-video-metrics/"><u>[Updated] Unlock YouTube Insights via Social Blade Mastering Your Video Metrics</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-navigating-metaverse-marketing-landscapes/"><u>2024 Approved Navigating Metaverse Marketing Landscapes</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/choosing-the-best-media-converter-handbrake-vs-makemkv-for-optimal-blu-ray-and-dvd-backups/"><u>Choosing the Best Media Converter: Handbrake Vs. MakeMKV for Optimal Blu-Ray & DVD Backups</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/full-guide-to-apple-iphone-15-plus-icloud-bypass-by-drfone-ios/"><u>Full guide to Apple iPhone 15 Plus iCloud Bypass</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/identify-8-proven-video-promotion-tactics-for-success/"><u>Identify 8 Proven Video Promotion Tactics for Success</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>In 2024, Become the Brand You Want With Our Exclusive Set of FREE Graphics!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-vivo-y78-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Vivo Y78 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-instantly-and-indefinitely-remove-yourself-from-tiktok-landscape/"><u>In 2024, Instantly and Indefinitely Remove Yourself From TikTok Landscape</u></a></li>
-<li><a href="https://android-location.techidaily.com/unleash-high-speed-computing-discover-microns-ddr5-8800-modules-for-next-gen-intel-xeon-servers/"><u>Unleash High-Speed Computing: Discover Micron's DDR5-8800 Modules for Next-Gen Intel Xeon Servers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/verifying-your-youtube-sign-in-details-for-2024/"><u>Verifying Your YouTube Sign-In Details for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unmatched-youtube-success-10-unique-tips-for-your-shorts/"><u>[New] 2024 Approved Unmatched YouTube Success 10 Unique Tips for Your Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boosting-your-youtube-with-partner-videos-for-2024/"><u>[New] Boosting Your YouTube with Partner Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-demystifying-youtubes-video-editing-power/"><u>[New] In 2024, Demystifying YouTube's Video Editing Power</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comprehensive-list-of-top-9-free-video-channel-branding-aids-for-2024/"><u>[Updated] Comprehensive List of Top 9 Free Video Channel Branding Aids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-blur-faces-or-objects-in-youtube-videos/"><u>[Updated] How to Blur Faces or Objects in YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-legality-of-capturing-and-reproducing-youtube-video-playbacks/"><u>[Updated] Legality of Capturing and Reproducing YouTube Video Playbacks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastery-in-converting-classic-vhs-into-high-quality-pictures-for-2024/"><u>[Updated] Mastery in Converting Classic VHS Into High-Quality Pictures for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unraveling-youtubes-vision-for-a-thriving-ecosystem-of-short-form-video/"><u>[Updated] Unraveling YouTube's Vision for a Thriving Ecosystem of Short-Form Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-boosting-viewer-interest-with-optimal-video-thumbnail-sizes/"><u>In 2024, Boosting Viewer Interest with Optimal Video Thumbnail Sizes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-motorola-edge-40-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Motorola Edge 40 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transforming-your-footage-into-shareable-youtube-stories/"><u>In 2024, Transforming Your Footage Into Shareable YouTube Stories</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-t-series-youtube-earnings/"><u>In 2024, Unveiling T-Series' Youtube Earnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/novice-net-worth-easy-sites-for-beginners-channel-buys-for-2024/"><u>Novice Net Worth Easy Sites for Beginner's Channel Buys for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/sensational-no-cost-visual-collaboration-games-for-2024/"><u>Sensational No-Cost Visual Collaboration Games for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor 90 Pro? | Dr.fone</u></a></li>
 </ul></div>
 

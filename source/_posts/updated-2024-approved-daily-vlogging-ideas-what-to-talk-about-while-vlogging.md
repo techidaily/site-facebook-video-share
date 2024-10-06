@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-09-11T16:03:35.856Z
-updated: 2024-09-18T16:13:16.049Z
+date: 2024-09-29T22:48:06.983Z
+updated: 2024-10-06T02:58:01.638Z
 tags:
   - ai video
   - ai youtube
@@ -45,11 +45,31 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -68,10 +88,10 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What did you learn today?
@@ -95,10 +115,10 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
@@ -124,5 +144,24 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-learn-how-to-add-descriptive-texts-to-your-youtube-videos/"><u>[New] Learn How to Add Descriptive Texts to Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-webcams-unveiled-a-youtube-livestreamers-handbook/"><u>[Updated] 2024 Approved Best Webcams Unveiled A YouTube Livestreamer's Handbook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-channeling-twitter-vids-seamlessly-to-snapchat-for-2024/"><u>[Updated] Channeling Twitter Vids Seamlessly to Snapchat for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enjoy-endless-creativity-discover-the-best-in-cheap-online-video-downloading-for-2024/"><u>[Updated] Enjoy Endless Creativity Discover the Best in Cheap, Online Video Downloading for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-technique-long-term-disabling-of-youtube-shorts/"><u>[Updated] Master Technique Long-Term Disabling of YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-masterful-video-analytics-unlocking-potential-with-social-blade-and-youtube/"><u>[Updated] Masterful Video Analytics Unlocking Potential with Social Blade & YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-style-sleuths-influential-beauty-creators/"><u>[Updated] Style Sleuths Influential Beauty Creators</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/bypass-the-barrier-regain-entry-into-your-facebook-profile-without-emailphone-hurdles/"><u>ByPass the Barrier: Regain Entry Into Your Facebook Profile without Email/Phone Hurdles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/discover-top-affordable-video-editors-of-2023-today-in-2024/"><u>Discover Top Affordable Video Editors of 2023 Today, In 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-no-loss-quality-conversion-transforming-mkv-files-into-mp4-with-handbrake/"><u>Free, No-Loss Quality Conversion: Transforming MKV Files Into MP4 with Handbrake</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-12-pro-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme 12 Pro 5Gwith/without a PC</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mac-hd-video-converter-proficiently-switch-media-types-avchdmkvflv-into-compatible-formats/"><u>Mac HD Video Converter – Proficiently Switch Media Types (AVCHD/MKV/FLV) Into Compatible Formats</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimize-content-collaboration-in-youtube-for-increased-engagement-for-2024/"><u>Optimize Content Collaboration in YouTube for Increased Engagement for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-swede-sounds-a-linguistic-guide/"><u>Quick Swede Sounds: A Linguistic Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/seamlessly-personalize-your-youtube-shorts-with-custom-thumbnails-for-2024/"><u>Seamlessly Personalize Your Youtube Shorts with Custom Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-higher-rankings-essential-tips-to-elevate-your-yt-content-for-2024/"><u>Unlock Higher Rankings Essential Tips to Elevate Your YT Content for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlock-instagram-speed-mastering-video-and-likes/"><u>Unlock Instagram Speed - Mastering Video and Likes</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering YouTube's Feature  Switch Between Commenting States\""
-date: 2024-09-28T19:19:31.495Z
-updated: 2024-10-01T04:24:05.296Z
+date: 2024-10-04T05:28:14.344Z
+updated: 2024-10-05T19:13:13.138Z
 tags:
   - ai video
   - ai youtube
@@ -91,16 +91,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,14 +117,20 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -149,16 +149,16 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531882">
+<span id="2135472">
 					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -176,10 +176,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -197,22 +197,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-from-editing-desk-to-youtube-post-production-processes/"><u>[New] 2024 Approved From Editing Desk to YouTube Post-Production Processes</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-a-comprehensive-approach-to-online-advertising-mastery/"><u>[New] A Comprehensive Approach to Online Advertising Mastery</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-achieve-profitability-on-youtube-embracing-any-device-approach-for-2024/"><u>[New] Achieve Profitability on Youtube Embracing Any Device Approach for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-crafting-stunning-youtubers-imagery-a-comprehensive-walkthrough-for-2024/"><u>[New] Crafting Stunning YouTubers' Imagery A Comprehensive Walkthrough for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-hand-tracking-insights-detailed-exploration/"><u>[New] Hand Tracking Insights Detailed Exploration</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-ideal-screen-capture-apps-for-perfect-android-displays/"><u>[New] In 2024, Ideal Screen Capture Apps for Perfect Android Displays</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-secure-and-efficient-lecture-recording-with-apple-devices/"><u>[Updated] 2024 Approved Secure & Efficient Lecture Recording with Apple Devices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-expressive-commentary-utilizing-emojis-on-youtube/"><u>[Updated] Expressive Commentary Utilizing Emojis on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-voice-altering-apps-for-vloggers/"><u>[Updated] In 2024, Cutting-Edge Voice Altering Apps for Vloggers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-propel-content-to-prominence-leverage-tubebuddys-power/"><u>[Updated] Propel Content to Prominence Leverage TubeBuddy's Power</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-understanding-and-applying-youtube-markup/"><u>[Updated] Understanding & Applying YouTube Markup</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-fixed-shorts-are-now-easily-accessible/"><u>[Updated] YouTube Fixed Shorts Are Now Easily Accessible</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/chatgpt-explained-revealing-its-parent-company-and-founders/"><u>ChatGPT Explained: Revealing Its Parent Company and Founders</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Itel P55+? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Nokia C300? | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mastering-headline-economy-utilizing-slug-lines-smartly/"><u>Mastering Headline Economy Utilizing Slug Lines Smartly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-link-between-video-views-and-youtube-earning-potential-for-2024/"><u>The Link Between Video Views and YouTube Earning Potential for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-income-via-youtube-ads-and-analytics-across-platforms/"><u>[New] 2024 Approved Boosting Income via YouTube Ads & Analytics Across Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-chuckling-chords-and-clever-cuts-10-parody-classics/"><u>[New] 2024 Approved Chuckling Chords & Clever Cuts 10 Parody Classics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-videography-with-top-seo-gadgets/"><u>[New] 2024 Approved Elevate Your Videography with Top SEO Gadgets</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/1715939480083-new-2024-approved-how-to-record-lol-gameplay3-methods/"><u>[New] 2024 Approved How to Record LOL Gameplay?(3 Methods)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-elevating-your-gaming-the-xbox-recorder-playbook-for-2024/"><u>[New] Elevating Your Gaming The Xbox Recorder Playbook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-empowering-audiences-the-playlist-sharing-approach/"><u>[New] In 2024, Empowering Audiences The Playlist Sharing Approach</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-professional-capture-tools-for-pcmac-devices/"><u>[New] In 2024, Professional Capture Tools for PC/Mac Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-info-on-crafting-engaging-yt-shorts/"><u>[Updated] In 2024, Essential Info on Crafting Engaging YT Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-managing-who-accesses-your-youtube-videography/"><u>[Updated] Managing Who Accesses Your YouTube Videography</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-financial-race-between-dailymovement-and-youtube-channels/"><u>[Updated] The Financial Race Between DailyMovement and YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-gastronomes-blueprint-filming-feasts/"><u>[Updated] The Gastronome’s Blueprint Filming Feasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-unveiling-best-underwater-cameras-for-deep-blue-explorations/"><u>2024 Approved Unveiling Best Underwater Cameras for Deep Blue Explorations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-bargains-comparing-cloud-storage-prices-for-2024/"><u>Best Bargains Comparing Cloud Storage Prices for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-tricks-to-revive-your-lenovos-unresponsive-f-key-step-by-step/"><u>Effortless Tricks to Revive Your Lenovo's Unresponsive F Key - Step by Step</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimize-display-performance-with-hp-updates/"><u>Optimize Display Performance with HP Updates</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-20-keywords-for-stellar-marketing-strategies-for-2024/"><u>Top 20 Keywords for Stellar Marketing Strategies for 2024</u></a></li>
 </ul></div>
 
