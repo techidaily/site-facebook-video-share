@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cultivate Creativity  10+ Channel-Driven Video Suggestions for 2024\""
-date: 2024-08-01T11:38:54.282Z
-updated: 2024-08-02T11:38:54.282Z
+date: 2024-10-10T19:29:20.976Z
+updated: 2024-10-12T03:52:52.951Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/425081092e1a679d02f1bd0f9b8040f12a7c3e9a9
 
 # Best YouTube Video Ideas to Spark Inspiration
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,9 +36,6 @@ Wondershare Filmora is a great tool and known for its creativity in video files.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## **1\. Content Idea Resources**
 
 Before we go deeper into the search to find you the best topics for YouTube, let’s take a quick look at some tools that may help you warm up and get your creative juices flowing.
@@ -76,6 +70,19 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Show and Tell:** Like the elementary school exercise, show and tell is a terrific way to show off something interesting you have and talk about the significance of it. An old childhood toy, a new gadget, a gift from a friend: every item has a story, show and tell it.
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Challenge Yourself**
 
 **Leave Your Comfort Zone:** Do something that you didn’t think you can do and film it. It might end up being a [Fail](#Fail), but that is how you learn. Learn a new language and talk to a native speaker. Go bungee jumping. Offer free hugs in public. Do something that makes your heart beat faster everyday and film it.
@@ -86,6 +93,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Show Your Talent**
 
 **Make Music:** An original song, a cover, or a remix, YouTube is a fantastic platform to showcase your musical talents. Don’t forget, some of the world’s top artists began their journey on YouTube. You might be next to join the [discovered on YouTube list](https://www.teenvogue.com/story/best-artists-discovered-on-youtube).
@@ -93,6 +107,19 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Creating:** Are you an artist? Show your process in making a piece. Depending on the speed in which your project takes, use a timelapse to present what you did in the most effective way.
 
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Explore Your Surroundings**
 
@@ -118,9 +145,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **7\. Share Your Beliefs and Lifestyle**
 
 **Motivation:** Whatever you are pursuing, know that there are many on the same path as you. If you are an aspiring dancer create content for those that are with you on the journey. Encourage them and speak authentically about the accomplishments to come. Motivation is the energy that is in circulation. The more you send out into the universe, the more will come back to you.
@@ -144,8 +168,18 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **8\. Nurture Your Curiosity**
 
 **Build Something:** IKEA furniture, a website, a LEGO miniature, a business plan. The best way to get better at something is to just do it. Use your hands and build something and capture it for YouTube.
@@ -175,9 +209,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Timeline of a Topic:** Pick any topic and trace the lineage and better understand how it has gotten to this point. Where did it begin, has it hit critical mass, and how has it evolved over the years?
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **9\. Be a Fan and a Critic**
 
 **Fanfiction:** Continue a story of one of your favorite movie characters or explore the life of some secondary character in a television show that you enjoy. Use their existing storyline to guide where you toward an interesting YouTube video about how they could have evolved.
@@ -200,9 +231,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **“Best of” Video:** Select the best scenes from your favorite actor or the best plays from your favorite athlete and compile it into a video that highlights all the best moments.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **10\. Create Entertainment**
 
 **Fails:** Don’t get embarrassed, get views. Embrace your shortcomings and accept that everybody has failed at something. Be careful and don’t get hurt too bad though.
@@ -233,9 +261,6 @@ Okay! How do you feel?
 
 I bet you are bursting and ready to create your next video. Onwards! Remember, whatever idea you pick, be sure to give it your own flair. That is what YouTube is all about. Got another YouTube video idea you want to share? Let the Filmora.io community know in the comments.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -244,12 +269,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-team-videos-to-foster-viewership-and-following/"><u>[New] 2024 Approved Crafting Team Videos to Foster Viewership and Following</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-evaluating-the-financial-giants-mr-beast/"><u>[New] 2024 Approved Evaluating the Financial Giants Mr. Beast</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-achieving-profitability-at-half-a-million-viewers/"><u>[New] Achieving Profitability at Half a Million Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dive-into-a-stream-of-9-full-length-festive-flicks-no-charge/"><u>[New] In 2024, Dive Into a Stream of 9 Full-Length Festive Flicks - No Charge</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-launch-fb-video-campaigns-utilize-the-gratis-creation-kit-for-2024/"><u>[New] Launch FB Video Campaigns Utilize the Gratis Creation Kit for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-10-finest-fee-free-lut-options-reviewed-and-accessible-here/"><u>[Updated] 10 Finest, Fee-Free LUT Options Reviewed & Accessible Here</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-short-form-content-top-10-edits-for-iosandroid/"><u>[Updated] 2024 Approved Elevate Your Short-Form Content Top 10 Edits for iOS/Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engaging-students-the-power-of-youtube-in-education-for-2024/"><u>[Updated] Engaging Students The Power of YouTube in Education for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-top-ten-of-youtubes-most-engrossing-vr-videos/"><u>[Updated] Exploring the Top Ten of YouTube’s Most Engrossing VR Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-video-to-visual-storytelling-crafting-gifs-with-youtube-content/"><u>[Updated] From Video to Visual Storytelling Crafting GIFs with YouTube Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-digital-doppelganger-drawing-crafting-caricatured-emblems/"><u>[Updated] In 2024, Digital Doppelganger Drawing Crafting Caricatured Emblems</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-keywords-that-catapult-hashtag-hacks-in-gameplay-videos/"><u>[Updated] In 2024, Keywords that Catapult Hashtag Hacks in Gameplay Videos</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-stop-your-computers-sound-system-from-crackling-in-windows-operating-systems-solution/"><u>How to Stop Your Computer's Sound System From Crackling in Windows Operating Systems (Solution)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-t2-pro-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Vivo T2 Pro 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/identifying-inauthentic-connections-a-guide-to-detecting-bogus-friend-requests/"><u>Identifying Inauthentic Connections: A Guide to Detecting Bogus Friend Requests</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/mastering-screencastify-for-easy-video-capture-for-2024/"><u>Mastering Screencastify for Easy Video Capture for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pioneering-film-making-skills-through-youtube-videos-for-2024/"><u>Pioneering Film Making Skills Through YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/sonic-immersion-for-static-snapshots-for-2024/"><u>Sonic Immersion for Static Snapshots for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/zero-price-path-to-enhanced-youtube-video-analysis-for-2024/"><u>Zero-Price Path to Enhanced YouTube Video Analysis for 2024</u></a></li>
+</ul></div>
 

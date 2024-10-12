@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Controlling Who Sees Your Youtube Productions\""
-date: 2024-09-30T06:10:37.499Z
-updated: 2024-10-06T03:29:26.726Z
+date: 2024-10-10T00:40:34.693Z
+updated: 2024-10-12T00:58:45.390Z
 tags:
   - ai video
   - ai youtube
@@ -61,16 +61,10 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -83,18 +77,18 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
@@ -105,17 +99,10 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -123,6 +110,13 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -141,16 +135,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-broadcast-your-curated-playlist-with-ease/"><u>[New] 2024 Approved Broadcast Your Curated Playlist with Ease</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-explore-the-ultimate-list-of-comedy-tears-on-instagram-for-2024/"><u>[New] Explore the Ultimate List of Comedy-Tears On Instagram for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-adjusting-youtubes-viewership-limits-for-content/"><u>[Updated] Adjusting YouTube's Viewership Limits for Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tips-for-incorporating-songs-in-instagram-stories-withwithout/"><u>[Updated] In 2024, Tips for Incorporating Songs in Instagram Stories (With/Without)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-definitive-guide-to-professional-level-youtube-video-edits/"><u>[Updated] The Definitive Guide to Professional-Level YouTube Video Edits</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-uncover-the-top-12-best-flip-screen-vlogging-tools/"><u>[Updated] Uncover the Top 12 Best Flip-Screen Vlogging Tools</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-vivo-v30-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Vivo V30 Phones? | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/installing-the-magic-dragon-addon-for-optimal-performance-a-comprehensive-walkthrough-on-kodi-platforms-nexus-and-matrix/"><u>Installing the Magic Dragon Addon for Optimal Performance: A Comprehensive Walkthrough on Kodi Platforms Nexus & Matrix</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/maximizing-movie-file-saving-6-methods-for-win-11-for-2024/"><u>Maximizing Movie File Saving 6 Methods for Win 11 for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/raising-awareness-with-youtubes-cc-membership-tips-for-view-growth-for-2024/"><u>Raising Awareness with YouTube's CC Membership Tips for View Growth for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unlock-the-secret-to-harmonious-insta-story-posts-for-2024/"><u>Unlock the Secret to Harmonious Insta Story Posts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discovering-the-ultimate-10-free-youtube-artist-collaborators/"><u>[New] 2024 Approved Discovering the Ultimate 10 Free YouTube Artist Collaborators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-insights-on-asmr-videos-unveiled/"><u>[New] 2024 Approved Essential Insights on ASMR Videos Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-above-the-mainstage-significant-youtube-meetings/"><u>[New] In 2024, Above the Mainstage Significant YouTube Meetings</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-transform-viewing-experience-adding-subtitles-on-windows-media-player/"><u>[New] Transform Viewing Experience Adding Subtitles on Windows Media Player</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-compilation-worlds-leading-youtube-mp3-downloaders/"><u>[Updated] 2024 Approved Compilation World's Leading YouTube Mp3 Downloaders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-still-to-moving-adding-animated-effects-to-your-text-ig-stories/"><u>[Updated] From Still to Moving Adding Animated Effects to Your Text IG Stories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-imovie-tips-creating-engaging-youtube-video-intros/"><u>[Updated] IMovie Tips Creating Engaging YouTube Video Intros</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-free-audio-for-youtube-visionaries/"><u>[Updated] In 2024, Cutting-Edge Free Audio for YouTube Visionaries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-guide-to-free-melodies-in-youtube-productions/"><u>[Updated] In 2024, Effortless Guide to Free Melodies in YouTube Productions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essence-of-earnings-a-3-step-expedient-to-measure-your-youtube-profitability/"><u>[Updated] The Essence of Earnings A 3-Step Expedient to Measure Your YouTube Profitability</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-optimal-4-strategies-to-fix-faded-iphone-hdr-in-editing/"><u>2024 Approved [Optimal] 4 Strategies to Fix Faded iPhone HDR in Editing</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-sonys-xbr49x900f-the-pinnacle-of-4k-uhd-display-technology-on-a-49-screen/"><u>Exploring Sony's XBR49X900F: The Pinnacle of 4K UHD Display Technology on a 49 Screen</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-srt-to-txt-translation-the-fastest-guide/"><u>In 2024, Mastering SRT to TXT Translation - The Fastest Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/htful-discussion-on-youtube-keyword-mastery-for-2024/"><u>Insightful Discussion on YouTube Keyword Mastery for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/regain-printers-availability-with-these-tips/"><u>Regain Printer's Availability with These Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-math-behind-making-money-youtubes-viewer-insights-for-2024/"><u>The Math Behind Making Money YouTube’s Viewer Insights for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-macbook-enhancers-professional-evaluation-and-insights-techradar/"><u>Top-Rated MacBook Enhancers : Professional Evaluation & Insights | TechRadar</u></a></li>
+<li><a href="https://extra-information.techidaily.com/tying-the-story-together-expert-techniques-for-inshots-seamless-segments/"><u>Tying the Story Together Expert Techniques for Inshot's Seamless Segments</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlock-entertainment-free-win-compatible-players-reviewed/"><u>Unlock Entertainment: Free Win-Compatible Players Reviewed</u></a></li>
 </ul></div>
 

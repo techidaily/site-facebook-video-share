@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-10-05T06:03:38.959Z
-updated: 2024-10-06T06:00:38.809Z
+date: 2024-10-09T17:46:52.721Z
+updated: 2024-10-11T23:44:00.776Z
 tags:
   - ai video
   - ai youtube
@@ -90,13 +90,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -118,13 +111,20 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -143,10 +143,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -164,10 +164,16 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -185,22 +191,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-boosting-views-with-captivating-intros-filmed-in-imovie-for-2024/"><u>[New] Boosting Views with Captivating Intros Filmed in iMovie for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-impactful-youtube-channel-logo-tips/"><u>[New] In 2024, Crafting Impactful YouTube Channel Logo Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-the-top-30-freefire-hashtags-for-amplifying-video-growth/"><u>[New] In 2024, Discover the Top 30 FreeFire Hashtags for Amplifying Video Growth</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-mastering-sound-clarity-for-youtube-audiences/"><u>[New] Mastering Sound Clarity for YouTube Audiences</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-creating-content-earning-currency-launching-your-vlog/"><u>[Updated] 2024 Approved Creating Content, Earning Currency Launching Your Vlog</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-audible-annotations-choosing-the-top-speech-to-text-apps-for-2024/"><u>[Updated] Audible Annotations Choosing the Top Speech-to-Text Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-eluding-youtube-ban-protective-measures-for-2024/"><u>[Updated] Eluding YouTube Ban Protective Measures for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-pivoting-passions-into-profits-your-vlogs-revenue-roadmap/"><u>[Updated] In 2024, Pivoting Passions Into Profits Your Vlog's Revenue Roadmap</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unveiling-the-secrets-of-fb-video-full-screen/"><u>[Updated] In 2024, Unveiling the Secrets of FB Video Full-Screen</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-ultimate-guide-to-xbox-live-streaming-for-2024/"><u>[Updated] The Ultimate Guide to Xbox Live Streaming for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/download-and-remove-drm-protection-from-azw-azw3-and-azw4-files-free-guide/"><u>Download and Remove DRM Protection From AZW, AZW3 & AZW4 Files: Free Guide</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-tips-for-overcoming-the-update-failed-error-code-0x800f0922-on-windows-10/"><u>Expert Tips for Overcoming the 'Update Failed' Error (Code 0X800f0922) on Windows 10</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/from-the-shooting-range-to-streaming-real-time-dslr-and-pcmac-connection-for-2024/"><u>From the Shooting Range to Streaming Real-Time DSLR & PC/Mac Connection for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-realme-10t-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Realme 10T 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/pioneering-the-past-selecting-top-historical-educational-yts-for-2024/"><u>Pioneering the Past Selecting Top Historical Educational YTs for 2024</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/step-by-step-guide-correcting-the-unforeseen-store-issue-on-windows-11-systems/"><u>Step-by-Step Guide: Correcting the Unforeseen Store Issue on Windows 11 Systems</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlock-the-potential-of-youtube-videos-with-smart-tags-for-2024/"><u>Unlock the Potential of YouTube Videos with Smart Tags for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-10-best-youtube-to-gif-makers-how-to-create-gif-from-youtube-video-for-2024/"><u>[New] 10 Best YouTube To GIF Makers How to Create GIF From YouTube Video for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-guidance-to-youtube-music-mix/"><u>[New] Guidance to YouTube Music Mix</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-inside-the-world-of-xmedia-workshop-a-thorough-examination-for-2024/"><u>[New] Inside the World of XMedia Workshop A Thorough Examination for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-master-the-art-of-cropping-videos-for-instagrams-highest-standards-for-2024/"><u>[New] Master the Art of Cropping Videos for Instagram's Highest Standards for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-visualization-selecting-the-ideal-size-and-placement-for-yt-for-2024/"><u>[Updated] Channel Visualization Selecting the Ideal Size and Placement for YT for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-video-content-youtube-to-igtv-transition-for-2024/"><u>[Updated] Elevating Your Video Content YouTube to IGTV Transition for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-create-a-playlist-on-youtube-a-complete-guide/"><u>[Updated] How to Create a Playlist on Youtube - a Complete Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-hide-your-identity-share-your-life-instagram-live-secrets/"><u>2024 Approved Hide Your Identity, Share Your Life - Instagram Live Secrets</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/cure-for-disconnected-channels-in-obs-for-2024/"><u>Cure for Disconnected Channels in OBS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/dealing-with-non-delivery-of-two-factor-authentication-code-on-fb/"><u>Dealing with Non-Delivery of Two-Factor Authentication Code on FB</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-seamlessly-gather-professional-images-and-vignettes-for-2024/"><u>How to Seamlessly Gather Professional Images & Vignettes for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-z-fold-5-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy Z Fold 5 Location without Installing Software? | Dr.fone</u></a></li>
 </ul></div>
 

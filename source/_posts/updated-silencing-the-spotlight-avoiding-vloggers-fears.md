@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Silencing the Spotlight  Avoiding Vlogger's Fears\""
-date: 2024-09-30T16:44:17.758Z
-updated: 2024-10-05T19:16:27.672Z
+date: 2024-10-08T05:10:03.488Z
+updated: 2024-10-12T02:54:21.993Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,10 @@ My advice is to start with shorter conversations with your camera in public and 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Fear of Being Judged by Others
@@ -54,13 +54,6 @@ As you continue to vlog in public more, you’ll become increasingly comfortable
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Fear of Not Being Interesting Enough
 
@@ -74,22 +67,29 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6. Fear of Your Production Not Being Good Enough
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7. Fear of Failing To Get Big
 
 Getting a lot of subscribers is a common end goal for many who go into vlogging. This goal can seem impossible to reach with how crowded the vlogosphere has become with so many ambitious vloggers who are competing for views and subscribers.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8. Fear of Being Distracted From the Moment
 
@@ -101,18 +101,24 @@ Well, like all hobbies, activities, and passions, vlogging does take time and yo
 
 If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. Fear of Making Others Uncomfortable
 
 Even though you might have learned to enjoy and be comfortable with vlogging, your vlogging might make others uncomfortable. You can still vlog while respecting others’ boundaries by having a conversation first, before you start vlogging, around whether or not they feel comfortable with appearing in your vlog. You can then make sure to exclude those from your vlog who are uncomfortable with appearing in your vlog.
 
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10. Fear of Permanently Leaving a Bad Mark
 
@@ -141,17 +147,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-youtubes-platform-for-content-crafting/"><u>[New] Unraveling YouTube’s Platform for Content Crafting</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-techniques-for-youtube-video-production-with-sony-vegas-for-2024/"><u>[Updated] Cutting-Edge Techniques for YouTube Video Production with Sony Vegas for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-horizon-harmony-best-online-spots-for-high-res-sky-views-for-2024/"><u>[Updated] Horizon Harmony Best Online Spots for High-Res Sky Views for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-copyright-demystified-key-principles-and-practices/"><u>[Updated] YouTube Copyright Demystified Key Principles and Practices</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-make-a-video-from-photo-with-music/"><u>2024 Approved How to Make a Video From Photo with Music</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-redefining-cinematic-boundaries-with-360-video/"><u>2024 Approved Redefining Cinematic Boundaries with 360 Video</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/behind-the-scenes-mastering-cinematic-techniques-in-24/"><u>Behind the Scenes Mastering Cinematic Techniques in '24</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/essential-factors-to-evaluate-when-choosing-your-perfect-dash-camera/"><u>Essential Factors to Evaluate When Choosing Your Perfect Dash Camera</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-oneplus-ace-2-pro-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On OnePlus Ace 2 Pro</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-vimeo-vs-youtube-dissecting-the-streamers-choices/"><u>In 2024, Vimeo vs YouTube Dissecting the Streamers' Choices</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-honor-magic-6-lite-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Honor Magic 6 Lite – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-best-free-ip-camera-software-2023s-top-picks-for-secure-monitoring-for-2024/"><u>New Best Free IP Camera Software 2023S Top Picks for Secure Monitoring for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-calculating-earnings-ad-revenues-in-the-world-of-youtube/"><u>[New] 2024 Approved Calculating Earnings Ad Revenues in the World of YouTube?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-become-a-viral-sensation-maximizing-your-youtube-reach/"><u>[New] In 2024, Become a Viral Sensation Maximizing Your YouTube Reach</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-pioneering-the-art-of-storytelling-top-youtubers-of-year-2023/"><u>[New] In 2024, Pioneering the Art of Storytelling - Top YouTubers of Year 2023</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-tutorial-simplifying-youtube-subscriptions/"><u>[New] Ultimate Tutorial Simplifying YouTube Subscriptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-practices-for-producing-encouragement-driven-vlogs/"><u>[Updated] 2024 Approved Best Practices for Producing Encouragement-Driven Vlogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-efficient-fortnite-imagery-design-quickly/"><u>[Updated] 2024 Approved Efficient Fortnite Imagery Design Quickly</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-video-to-photo-windows-11-methodology/"><u>[Updated] In 2024, Video to Photo Windows 11 Methodology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-maximize-your-gameplay-in-depth-tips-and-tricks-for-freefirers/"><u>[Updated] Maximize Your Gameplay In-Depth Tips & Tricks for FreeFirers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-safe-audio-conversion-techniques-turning-youtube-to-mp3-easily-and-securely/"><u>[Updated] Safe Audio Conversion Techniques Turning YouTube to MP3 Easily & Securely</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-a-deep-dive-into-top-audio-production-tools-is-magix-samplitude-still-king/"><u>2024 Approved A Deep Dive Into Top Audio Production Tools Is MAGIX Samplitude Still King?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/contacts-not-responding-on-iphone-xyz-discover-these-3-effective-fixes/"><u>Contacts Not Responding on iPhone XYZ? Discover These 3 Effective Fixes!</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/cyberpunk-2077-analysis-a-game-of-imperfections-and-untapped-potential/"><u>Cyberpunk 2077 Analysis: A Game of Imperfections and Untapped Potential</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/easy-reverse-video-method-for-android-users/"><u>Easy Reverse Video Method for Android Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-collection-of-youtube-beauty-icons-to-admire-for-2024/"><u>The Ultimate Collection of YouTube Beauty Icons to Admire for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-poco-x5-pro-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Poco X5 Pro Phones</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/3g2-wmv/"><u>제공자가 아니라 무료 3G2에서 WMV의 온라인 대화기 구성</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Setting Up Personalized Video Shots on YouTube"
-date: 2024-10-02T09:48:58.549Z
-updated: 2024-10-06T04:00:24.449Z
+date: 2024-10-09T20:40:58.465Z
+updated: 2024-10-12T00:35:53.890Z
 tags:
   - ai video
   - ai youtube
@@ -40,16 +40,10 @@ We’ve summarized the key points about setting up talking head style video shot
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -67,16 +61,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -93,13 +81,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -107,6 +88,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -130,20 +118,14 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -160,22 +142,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-how-to-make-a-good-podcast-trailer/"><u>[New] How To Make A Good Podcast Trailer</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-making-a-mark-on-youtube-proven-techniques-from-creator-studio-experts/"><u>[New] Making a Mark on YouTube Proven Techniques From Creator Studio Experts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-15-best-free-youtube-introduction-tools-for-2024/"><u>[Updated] 15 Best Free YouTube Introduction Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-10-strategies-for-educators-starting-their-own-youtube-series/"><u>[Updated] 2024 Approved 10 Strategies for Educators Starting Their Own YouTube Series</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-premium-top-ten-nintendo-switch-fighter-games-max-156/"><u>[Updated] 2024 Approved Premium Top Ten Nintendo Switch Fighter Games (Max 156)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-architect-of-audiovisual-brilliance-for-2024/"><u>[Updated] Architect of Audiovisual Brilliance for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-guide-to-youtube-video-distribution-via-facebook-for-2024/"><u>[Updated] Cutting-Edge Guide to YouTube Video Distribution via Facebook for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-dare-greatly-with-these-10-movies-that-matter-most-for-2024/"><u>[Updated] Dare Greatly with These 10 Movies That Matter Most for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-dissecting-the-digital-language-meanings-of-fb-messengers-blue-emoji/"><u>[Updated] Dissecting the Digital Language Meanings of FB Messenger’s Blue Emoji</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-expert-tips-download-youtube-playlists-in-minutes-for-2024/"><u>[Updated] Expert Tips Download YouTube Playlists in Minutes for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-pivotal-point-in-view-count-for-online-earning/"><u>[Updated] The Pivotal Point in View Count for Online Earning</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-transform-clips-into-content-from-premiere-to-youtube/"><u>[Updated] Transform Clips Into Content From Premiere to YouTube</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-13-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock on Mac For Apple iPhone 13?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-personalize-your-channel-with-free-pics/"><u>In 2024, Personalize Your Channel With Free Pics!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/troubleshooting-non-operational-volume-shadow-copies-in-windows/"><u>Troubleshooting Non-Operational Volume Shadow Copies in Windows</u></a></li>
-<li><a href="https://review-topics.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-aesthetics-high-quality-dj-template-videos-downloaded-for-2024/"><u>[New] Audio Aesthetics High-Quality DJ Template Videos Downloaded for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ngaging-tactics-for-increased-subscriber-count/"><u>[New] Engaging Tactics for Increased Subscriber Count</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-11-useful-youtube-seo-tips-to-help-rank-your-video-high/"><u>[New] In 2024, 11 Useful YouTube SEO Tips to Help Rank Your Video High</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-women-at-war-yts-top-10-gamers/"><u>[New] Women at War YT's #Top 10 Gamers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-list-of-free-rippers-for-video-conversion-for-2024/"><u>[Updated] Essential List of Free Rippers For Video Conversion for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/wmvdvdwindows-1011/"><u>高画質ながらも高速でWMVへのDVD変換技術「Windows 10/11用ガイド」</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-realme-11x-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Realme 11X 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/finest-5-cameras-for-low-speed-recording-for-2024/"><u>Finest 5 Cameras for Low Speed Recording for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-itel-p55-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Itel P55 Unlock Without Password</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-future-is-now-insights-from-jaunt-vr-review-for-2024/"><u>The Future Is Now Insights From Jaunt VR Review for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-tutorial-on-editing-youtube-videos-for-2024/"><u>The Ultimate Tutorial on Editing YouTube Videos for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transformacion-facil-y-rapida-de-videos-como-girar-archivos-mp4-mov-usando-movavi-software/"><u>Transformación Fácil Y Rápida De Videos: Cómo Girar Archivos MP4, MOV Usando Movavi Software</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-truth-an-in-depth-viber-out-app-analysis/"><u>Unveiling the Truth: An In-Depth Viber Out App Analysis</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-no-cost-face-generation-top-online-platforms/"><u>Updated 2024 Approved No-Cost Face Generation Top Online Platforms</u></a></li>
 </ul></div>
 

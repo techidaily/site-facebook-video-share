@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Winning Collaboration Plans on YouTube\""
-date: 2024-08-01T11:38:04.763Z
-updated: 2024-08-02T11:38:04.763Z
+date: 2024-10-10T04:42:46.704Z
+updated: 2024-10-12T04:16:59.264Z
 tags:
   - ai video
   - ai youtube
@@ -63,9 +63,6 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -83,8 +80,12 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
 **[Amy Schmittauer](https://www.youtube.com/user/savvysexysocial/featured)** of Savvy Sexy Social does vlogs, lifestyle videos, and provides tips on being a freelancer. After doing several collabs in one week, she posted this video about how collaborations work best and how you should approach people you might want to work with.
@@ -104,8 +105,12 @@ If you appeared in someone else’s video, you would probably appreciate it if t
  _Collab advice starts at around 2:10._
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
 **[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
@@ -124,20 +129,25 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
  Do you have any of your advice on YouTube collaborations?
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Excellent YouTube Video Editor Always Save Your Time
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,12 +155,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-examining-youtubes-workflow-after-content-submission/"><u>[New] 2024 Approved Examining YouTube's Workflow After Content Submission</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-ultimate-guide-to-theta-s-features/"><u>[New] 2024 Approved The Ultimate Guide to Theta S Features</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-crafting-captivating-content-with-correct-dimensions/"><u>[New] Crafting Captivating Content with Correct Dimensions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-the-craft-of-looped-visuals-for-social-media-success/"><u>[Updated] 2024 Approved Mastering the Craft of Looped Visuals for Social Media Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-assembling-channel-summaries-that-attract-for-2024/"><u>[Updated] Assembling Channel Summaries That Attract for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-dynamic-viewership-statistics-platforms-for-2024/"><u>[Updated] Dynamic Viewership Statistics Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-maximizing-content-impact-bypassing-virtual-onlookers/"><u>[Updated] Maximizing Content Impact Bypassing Virtual Onlookers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-plug-free-pleasure-the-ultimate-guide-to-exquisite-offline-ios-gaming/"><u>[Updated] Plug-Free Pleasure The Ultimate Guide to Exquisite Offline iOS Gaming</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-propel-your-content-using-igtv-hashtags-to-expand-audiences-for-2024/"><u>[Updated] Propel Your Content Using IGTV Hashtags to Expand Audiences for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/creating-impactful-twitter-campaigns-for-businesses-for-2024/"><u>Creating Impactful Twitter Campaigns for Businesses for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-honor-x50-gt-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Honor X50 GT Phones? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/leading-voip-and-video-communication-platforms-for-teams/"><u>Leading VoIP and Video Communication Platforms for Teams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-premier-7-apps-transforming-mobile-video-streaming-on-youtube-for-2024/"><u>The Premier 7 Apps Transforming Mobile Video Streaming on YouTube for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unveiling-ai-integration-in-oculus-quest-3-before-vision-pro-your-guide-to-enable-it-zdnet/"><u>Unveiling AI Integration in Oculus Quest 3 Before Vision Pro - Your Guide to Enable It | ZDNET</u></a></li>
+</ul></div>
 

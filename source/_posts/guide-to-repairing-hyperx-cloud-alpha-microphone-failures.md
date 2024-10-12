@@ -1,7 +1,7 @@
 ---
 title: Guide to Repairing HyperX Cloud Alpha Microphone Failures
-date: 2024-09-29T00:16:18.622Z
-updated: 2024-10-06T09:12:12.863Z
+date: 2024-10-10T00:51:52.839Z
+updated: 2024-10-11T19:35:47.696Z
 tags:
   - win11
   - win10
@@ -34,10 +34,16 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 [5: Update your audio driver](https://tools.techidaily.com/drivereasy/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 1: Make sure your microphone connection is solid
@@ -46,26 +52,19 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/hx-product-headset-alpha-s-black-2-lg-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you’ve attached the microphone to your headset correctly but your mic still won’t catch your voice, try the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 2: Enable your headset mic for recording
@@ -85,6 +84,13 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
  If your headset is enabled for recording but the microphone is still not working, move on to the next fix.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 3: Set your headset as the audio input device
 
  Using Cloud Alpha S is quite straightforward – you just need to plug it into your PC and it’s set as the audio output device of your PC automatically. But you may need to manually set it as the audio input device as well for the mic to work. Here’s how:
@@ -93,23 +99,23 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/search-sound-input.jpg)
 2. **Select your headset as the input device** . It could be shown as HyperX Cloud Alpha S or Headset.  
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/set-input-device.jpg)
 3. Test your microphone.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If your headset is set as the input device but the mic still won’t work, try the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 4: Turn on the mic access on your PC
@@ -123,10 +129,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-10-26.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If this doesn’t fix your mic problem, try the next fix.
@@ -172,24 +178,24 @@ If this doesn’t fix your mic problem, try the next fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-achieving-million-sub-milestone-the-youtube-guide/"><u>[New] 2024 Approved Achieving Million-Sub Milestone The YouTube Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-audience-wave-top-hash-tags-to-swell-youtube-views/"><u>[New] 2024 Approved Audience Wave Top Hash Tags to Swell Youtube Views</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-premier-zones-for-cutting-edge-vr-viewing/"><u>[New] 2024 Approved Premier Zones for Cutting-Edge VR Viewing</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-effortless-capture-and-storage-pro-guide-to-digital-sound-recording-for-2024/"><u>[New] Effortless Capture & Storage Pro Guide to Digital Sound Recording for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-exploring-the-perks-and-pitfalls-of-mcn-alliances-for-2024/"><u>[New] Exploring the Perks and Pitfalls of MCN Alliances for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-eye-candy-extravaganza-highest-watched-videos-in-a-day-for-2024/"><u>[New] Eye Candy Extravaganza Highest Watched Videos in a Day for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-create-a-youtube-music-playlist-on-web-and-mobile-a-detailed-guidance/"><u>[Updated] 2024 Approved Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-iphoneandroid-apps-for-aspiring-creators/"><u>[Updated] 2024 Approved Essential iPhone/Android Apps for Aspiring Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-digital-footprint-and-interactive-iconography-honors-for-2024/"><u>[Updated] Digital Footprint and Interactive Iconography Honors for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-3d-entrance-makers-for-youtube-creators/"><u>[Updated] In 2024, Best 3D Entrance Makers for YouTube Creators</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-gaming-galore-top-10-virtual-reality-for-phones/"><u>[Updated] In 2024, Gaming Galore Top 10 Virtual Reality for Phones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-learning-made-easy-utilizing-youtube-for-dynamic-classrooms/"><u>[Updated] Learning Made Easy Utilizing YouTube for Dynamic Classrooms</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-no-download-necessary-youtube-to-gif-conversion-made-easy/"><u>[Updated] No Download Necessary YouTube-to-GIF Conversion Made Easy</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-radiant-faces-mastering-makeup-and-lighting-together/"><u>[Updated] Radiant Faces Mastering Makeup and Lighting Together</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-checklist-for-optimal-yt-brand-aesthetics/"><u>[Updated] The Ultimate Checklist for Optimal YT Brand Aesthetics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-shoot-spectaculr-igtv-videos-using-smartphonedlsr-cameras/"><u>2024 Approved How to Shoot Spectaculr IGTV Videos Using Smartphone/DLSR Cameras</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-8-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 8 to an Older Version? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-you-to-basic-numbers-in-spanish/"><u>Introducing You to Basic Numbers in Spanish</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-top-10-video-chat-sites-to-meet-funny-strangers-for-2024/"><u>New Top 10 Video Chat Sites to Meet Funny Strangers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-steps-for-crafting-video-based-gifs-on-mobiledesktop-for-2024/"><u>[New] Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-explore-the-10-most-inspiring-youtube-makeup-vloggers-ever-for-2024/"><u>[New] Explore the 10 Most Inspiring YouTube Makeup Vloggers Ever for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-comprehending-the-language-of-youtube-seo/"><u>[New] In 2024, Comprehending the Language of YouTube SEO</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-perfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[New] Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cracking-the-code-calculating-your-income-from-youtubes-cpm/"><u>[Updated] 2024 Approved Cracking the Code Calculating Your Income From YouTube's CPM</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-addressing-missing-image-display-in-youtubes-shorts-for-2024/"><u>[Updated] Addressing Missing Image Display in YouTubes Shorts for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-luminances-stand-in-the-hdr-landscape/"><u>[Updated] Luminance's Stand in the HDR Landscape</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-stifled-expression-sudden-copyright-breach-for-2024/"><u>[Updated] Stifled Expression Sudden Copyright Breach for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-banner-tactics-dos-and-donts-for-optimal-visibility/"><u>[Updated] YouTube Banner Tactics Dos and Don'ts for Optimal Visibility</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-master-the-art-of-technological-advancement-with-this-guide/"><u>2024 Approved Master the Art of Technological Advancement with This Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ace-your-content-strategies-to-skyrocket-video-popularity/"><u>Ace Your Content Strategies to Skyrocket Video Popularity</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-samsung-galaxy-xcover-7-by-drfone-android/"><u>How to Show Wi-Fi Password on Samsung Galaxy XCover 7</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-poco-x5-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-madden-nfl-21-pc-gaming-how-to-eliminate-frustrating-game-crashes-for-good/"><u>Mastering Madden NFL 21 PC Gaming: How to Eliminate Frustrating Game Crashes for Good</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/precision-and-flair-tailoring-background-imagery-to-stand-out-on-thumbnails-for-2024/"><u>Precision & Flair Tailoring Background Imagery to Stand Out on Thumbnails for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ring-video-doorbell-2-unveiled-the-quintessential-choice-for-smart-homes/"><u>Ring Video Doorbell 2 Unveiled: The Quintessential Choice for Smart Homes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essentials-of-earning-on-youtube-platforms-for-2024/"><u>The Essentials of Earning on YouTube Platforms for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-the-power-of-claude-3-insights-into-its-functionality-and-use-cases/"><u>Unlocking the Power of Claude 3: Insights Into Its Functionality and Use Cases</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-shorts-fund-how-to-maximize-your-earnings-for-2024/"><u>YouTube Shorts Fund How to Maximize Your Earnings for 2024</u></a></li>
 </ul></div>
 
