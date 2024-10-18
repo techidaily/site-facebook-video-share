@@ -1,7 +1,7 @@
 ---
 title: "Solving the Mystery: Why Your Final USB Gadget Isn't Working on Windows"
-date: 2024-10-04T21:13:37.014Z
-updated: 2024-10-12T02:22:13.316Z
+date: 2024-10-17T00:24:02.246Z
+updated: 2024-10-18T04:11:41.461Z
 tags:
   - win11
   - win10
@@ -31,6 +31,13 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
 
  As mentioned, the exact cause could be very different in different situations, but there are some general resolutions that you should try before you turn to technicians. And one of the solutions below is bound to fix the problem for you. No worries, we’ve got you covered.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How can I fix it?
 
  Here are 4 solutions for you to try. You may not have to try them all; just work your way down until you find the one works for you.
@@ -39,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
  Method 2:[**Update all possible device drivers**](https://bluettifr.pxf.io/bax2bv)
  Method 3: [**Disable USB selective suspend settings**](https://exvist.pxf.io/dkpnky)
  Method 4:[](https://homestyler.sjv.io/y209g3) [**Re-enable USB controller driver**](https://bluettifr.pxf.io/bax2bv)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 1: Try another USB port
 
@@ -63,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a37710b44342.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Click the **Update**  button next to the flagged drivers to automatically download and install the correct versions (you can do this with the **FREE** version).
@@ -89,13 +103,6 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a377758f2bdc.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Click**Change plan settings** next to the plan option you’re having now.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3777c0a811b.png)
@@ -104,13 +111,6 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a377814e701a.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) Click to expand**USB settings** and**USB selective suspend setting** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3778a48905d.png)
@@ -118,6 +118,13 @@ Or click **Update All**  to automatically download and install the correct versi
  5) Select**Disabled** from the drop-down option. Then click**Apply** and**OK** to save the change.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a377b3cef938.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **NOTE** : If you’re using a laptop, click**On battery** , then**Disabled** from the drop-down menu.
 
@@ -137,14 +144,14 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a378723b37b6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click to expand**Universal Serial Bus controllers.**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3.1) If you see any device drivers marked by**yellow exclamation marks** or**question marks:**
 
@@ -158,19 +165,6 @@ Or click **Update All**  to automatically download and install the correct versi
 
  3.1.3) When the uninstall finishes, restart your computer. Then repeat the same procedure with the rest of the USB controllers marked by yellow exclamation marks or question marks one by one.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.2) If you don’t see any drivers marked by yellow exclamation mark or question mark
 
  3.2.1) Right-click the first option you see here and click**Disable device** .
@@ -182,10 +176,10 @@ Or click **Update All**  to automatically download and install the correct versi
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a378e29c15b5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4) Your USB device should be recognized now.
@@ -207,22 +201,24 @@ Or click **Update All**  to automatically download and install the correct versi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-efficient-editing-for-quick-youtube-content/"><u>[New] 2024 Approved Efficient Editing for Quick YouTube Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-10-effortless-tips-for-amplifying-video-engagement-on-facebook/"><u>[Updated] 2024 Approved 10 Effortless Tips for Amplifying Video Engagement on Facebook</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-comparing-digital-platform-profits-dailymovement-to-youtube-revenue/"><u>[Updated] 2024 Approved Comparing Digital Platform Profits DailyMovement to YouTube Revenue</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unraveling-the-mystery-of-selecting-a-virtual-reality-device-tethered-connections-vs-mobility-freedom/"><u>[Updated] 2024 Approved Unraveling the Mystery of Selecting a Virtual Reality Device Tethered Connections vs Mobility Freedom?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-achieving-cohesion-in-content-with-flv-video-integration-for-2024/"><u>[Updated] Achieving Cohesion in Content with FlV Video Integration for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-facetune-deep-dive-elevating-your-photography-game/"><u>[Updated] Facetune Deep Dive Elevating Your Photography Game</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-how-to-add-border-to-instagram-video-3-ways/"><u>[Updated] How to Add Border to Instagram Video? [3 Ways]</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-master-photo-framing-techniques-via-digital-platforms-2-written-by-user-johndoe/"><u>[Updated] Master Photo Framing Techniques via Digital Platforms (2 Written by User JohnDoe</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-channel-building-essentials/"><u>[Updated] Mastering YouTube Channel-Building Essentials</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unraveling-the-complexity-of-youtube-analytics-analysis/"><u>[Updated] Unraveling the Complexity of YouTube Analytics Analysis</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-step-by-step-approach-to-youtube-copyright-mastery/"><u>[Updated] Your Step-by-Step Approach to YouTube Copyright Mastery</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-yts-best-practices-for-choosing-images-that-drive-view-count-updates/"><u>[Updated] YT's Best Practices for Choosing Images That Drive View Count Updates</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/crafting-powerful-narratives-with-these-30-video-plans-for-2024/"><u>Crafting Powerful Narratives with These 30 Video Plans for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-audience-allure-video-marketing-strategies-for-youtube-trailers-via-filmora/"><u>In 2024, Audience Allure Video Marketing Strategies for YouTube Trailers via Filmora</u></a></li>
-<li><a href="https://games-able.techidaily.com/peaceful-pixel-play-idling-worlds/"><u>Peaceful Pixel Play: Idling Worlds</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/recording-with-precision-perfecting-ios-device-features-on-youtube-for-2024/"><u>Recording with Precision Perfecting iOS Device Features on YouTube for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/unleash-potential-essential-windows-10-skills-review/"><u>Unleash Potential Essential Windows 10 Skills Review</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ban-unwanted-youtube-recommended-titles-for-2024/"><u>[New] Ban Unwanted YouTube Recommended Titles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-capturing-the-best-visuals-in-vlogs-for-2024/"><u>[New] Capturing the Best Visuals in Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms-for-2024/"><u>[New] Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-facebook-live-in-action-2023-edition-for-2024/"><u>[New] Facebook Live in Action 2023 Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher/"><u>[New] In 2024, Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-blueprint-strategies-for-authentic-life-enrichment-videos/"><u>[Updated] 2024 Approved Blueprint Strategies for Authentic Life Enrichment Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-content-catchment-area-2024/"><u>[Updated] Content Catchment Area 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-directing-content-flow-uploading-imovie-films-to-youtube-for-2024/"><u>[Updated] Directing Content Flow Uploading IMovie Films to YouTube for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-expert-tips-top-free-tools-to-extract-and-save-instagram-videos-windowsos-x-for-2024/"><u>[Updated] Expert Tips Top Free Tools to Extract and Save Instagram Videos (Windows/OS X) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-accelerated-learning-for-chromakey-artistry/"><u>[Updated] In 2024, Accelerated Learning for Chromakey Artistry</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-perfecting-gameplay-with-steam-switch-pro-controller/"><u>2024 Approved Perfecting Gameplay with Steam Switch Pro Controller</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-vloggers-solution-excellent-camera-stabilization/"><u>2024 Approved Vloggers' Solution Excellent Camera Stabilization</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/advanced-rendering-gpus-for-4k-experience/"><u>Advanced Rendering GPUs for 4K Experience</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/comment-remonter-et-restaurer-une-partition-asus-manquante-methodes-efficaces/"><u>Comment Remonter Et Restaurer Une Partition Asus Manquante - Méthodes Efficaces</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/honorable-highlights-elite-endorsements-for-snapping-alert-songs/"><u>Honorable Highlights Elite Endorsements for Snapping Alert Songs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-budget-conscious-laptop-tools-for-dvd-watchers/"><u>In 2024, Best Budget-Conscious Laptop Tools for DVD Watchers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-realme-12plus-5g-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Realme 12+ 5G</u></a></li>
+<li><a href="https://win11.techidaily.com/tackling-os-anomalies-a-comprehensive-guide-to-finding-and-fixing-windows-errors-through-command-prompt/"><u>Tackling OS Anomalies: A Comprehensive Guide to Finding & Fixing Windows Errors Through Command Prompt</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-producers-playbook-strategies-to-win-over-youtube-viewers-for-2024/"><u>The Producer's Playbook Strategies to Win Over YouTube Viewers for 2024</u></a></li>
 </ul></div>
 

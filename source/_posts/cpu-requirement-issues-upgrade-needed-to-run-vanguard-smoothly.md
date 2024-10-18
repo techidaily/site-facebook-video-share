@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2024-10-07T23:13:02.911Z
-updated: 2024-10-12T00:54:07.148Z
+date: 2024-10-14T02:16:52.123Z
+updated: 2024-10-18T03:07:39.745Z
 tags:
   - win11
   - win10
@@ -43,13 +43,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
  If you’re using a Wi-Fi connection, try using an ethernet cable. An ethernet cable can provide a more stable internet connection. If that’s not an option, you can instead, move your computer closer to your router as the distance between your PC and the Router could also affect your Wi-Fi connection and your gaming performance.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 2: Update your graphics driver
 
  Outdated graphics drivers, of course, are the most common culprit to game issues. Be sure to download and install the correct driver set for your video card.
@@ -79,10 +72,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
  Relaunch the game to test your issue. If it’s still occurring, try the next fix below.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 3: Verify Warframe cache files
@@ -97,11 +90,25 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_15-35-03.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)**  After the process is complete, click**Optimize** .
 
 **4)** Launch the game to test your issue.
 
 Your game still freezes? Try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 4: Lower in-game graphics settings
 
@@ -113,35 +120,22 @@ Your game still freezes? Try the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
 
 If your issue persists, then move on to the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 5: Turn off unnecessary programs
 
@@ -180,22 +174,15 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-direct-from-spotify-to-youtube-best-apps-for-streaming-conversions/"><u>[New] 2024 Approved Direct From Spotify to YouTube Best Apps for Streaming Conversions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-driving-income-from-views-on-youtube/"><u>[New] 2024 Approved Driving Income From Views on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-webm-creation-10-best-youtube-video-transformers/"><u>[New] In 2024, Effortless WebM Creation 10 Best YouTube Video Transformers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-streamlined-strategies-for-joining-your-youtube-videos/"><u>[New] Streamlined Strategies for Joining Your YouTube Videos</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-art-of-virtual-exploration-a-tactical-approach/"><u>[New] The Art of Virtual Exploration A Tactical Approach</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boost-views-strategic-partnerships-on-youtube-for-rapid-growth/"><u>[Updated] 2024 Approved Boost Views Strategic Partnerships on YouTube for Rapid Growth</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-links-for-acquiring-youtube-preview-templates-online/"><u>[Updated] 2024 Approved Essential Links for Acquiring YouTube Preview Templates Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-direct-the-degrees-cutting-edge-youtube-video-manipulation-for-2024/"><u>[Updated] Direct the Degrees Cutting-Edge YouTube Video Manipulation for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-no-barriers-only-creativity-learn-cost-free-background-substitution-with-4-youtube-pros/"><u>[Updated] No Barriers, Only Creativity Learn Cost-Free Background Substitution with 4 YouTube Pros</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-cinema-journey-iphone-users-best-choice-for-films/"><u>2024 Approved Cinema Journey IPhone Users' Best Choice for Films</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-psd-design-transformations/"><u>2024 Approved Superior PSD Design Transformations</u></a></li>
-<li><a href="https://video-capture.techidaily.com/comparing-apowersoft-to-alternatives/"><u>Comparing Apowersoft to Alternatives</u></a></li>
-<li><a href="https://article-files.techidaily.com/earnings-exploration-how-much-does-pewdiepie-earn-for-2024/"><u>Earnings Exploration How Much Does PewDiePie Earn for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free-for-2024/"><u>From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free. For 2024</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-xs-max-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone XS Max without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavi-flac-ogg-mp4/"><u>Movavi FLAC에서 OGG로 원형 손상 없이 MP4로 변환하기 - 무료 인터넷 연결을 사용한다</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/undo-youtubes-timeline-with-our-4-key-methods-for-2024/"><u>Undo YouTube's Timeline with Our 4 Key Methods for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-comprehensive-insights-mastering-lenovo-screenshot-techniques/"><u>[New] 2024 Approved Comprehensive Insights Mastering Lenovo Screenshot Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-comprehensive-tutorial-for-youtube-customization-tools/"><u>[New] In 2024, A Comprehensive Tutorial for YouTube Customization Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-a-sports-highlight-step-by-step-tutorial/"><u>[New] In 2024, Crafting a Sports Highlight Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-translating-views-into-dollars-on-youtube-via-cpm/"><u>[New] Translating Views Into Dollars on YouTube via CPM</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-beginner-to-expert-a-comprehensive-guide-to-looping-your-favorite-vids/"><u>[Updated] From Beginner to Expert A Comprehensive Guide to Looping Your Favorite Vids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-guide-to-producing-hysterical-youtube-video-reactions-3-key-techniques/"><u>[Updated] In 2024, The Ultimate Guide to Producing Hysterical YouTube Video Reactions (3 Key Techniques)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-financial-flip-understanding-1-million-views-payoff/"><u>[Updated] The Financial Flip Understanding 1 Million Views Payoff</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/remove-device-supervision-from-your-iphone-xs-by-drfone-ios/"><u>Remove Device Supervision From your iPhone XS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-fusion-of-sleek-design-and-dynamic-power-on-the-apple-215-4k-imac/"><u>Reviewing the Fusion of Sleek Design and Dynamic Power on the Apple 21.5 4K iMac</u></a></li>
+<li><a href="https://win-blog.techidaily.com/valorant-fixed-tackling-pc-gaming-latency-problems/"><u>Valorant Fixed: Tackling PC Gaming Latency Problems</u></a></li>
 </ul></div>
 

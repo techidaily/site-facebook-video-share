@@ -1,7 +1,7 @@
 ---
 title: Guide to Repairing HyperX Cloud Alpha Microphone Failures
-date: 2024-10-10T00:51:52.839Z
-updated: 2024-10-11T19:35:47.696Z
+date: 2024-10-16T16:49:36.880Z
+updated: 2024-10-17T18:15:42.288Z
 tags:
   - win11
   - win10
@@ -33,19 +33,6 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
 [5: Update your audio driver](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 1: Make sure your microphone connection is solid
 
  HyperX Cloud Alpha S continues the design of the detachable microphone from the regular Cloud Alpha. If your microphone is not connected firmly, you may still hear sounds from your headset but can’t use the microphone.
@@ -55,16 +42,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  If you’ve attached the microphone to your headset correctly but your mic still won’t catch your voice, try the next fix.
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 2: Enable your headset mic for recording
@@ -75,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_16-48-56.jpg)
 2. Go to the**Recording** tab and you should see your headset. If you can’t find it, it could be hidden or disabled. You can right-click an empty area then select Show**Disabled Devices** .  
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_16-57-37.jpg)
 3. Right-click your headset, then click**Enable** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-05-17.jpg)
@@ -82,14 +70,14 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-06-58.jpg)
 
- If your headset is enabled for recording but the microphone is still not working, move on to the next fix.
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ If your headset is enabled for recording but the microphone is still not working, move on to the next fix.
 
 ## Fix 3: Set your headset as the audio input device
 
@@ -100,23 +88,16 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 2. **Select your headset as the input device** . It could be shown as HyperX Cloud Alpha S or Headset.  
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/set-input-device.jpg)
 3. Test your microphone.
 
  If your headset is set as the input device but the mic still won’t work, try the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 4: Turn on the mic access on your PC
 
@@ -129,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-10-26.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If this doesn’t fix your mic problem, try the next fix.
@@ -151,6 +132,13 @@ If this doesn’t fix your mic problem, try the next fix.
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-35.jpg)
 3. Click the **Update**  button next to the flagged audio driver to automatically download the correct version of the driver, then you can manually install it (you can do this with the FREE version).  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the [Pro version](https://tools.techidaily.com/drivereasy/download/) which comes with full support and a 30-day money-back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-43.jpg)
@@ -178,24 +166,18 @@ If this doesn’t fix your mic problem, try the next fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-steps-for-crafting-video-based-gifs-on-mobiledesktop-for-2024/"><u>[New] Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-explore-the-10-most-inspiring-youtube-makeup-vloggers-ever-for-2024/"><u>[New] Explore the 10 Most Inspiring YouTube Makeup Vloggers Ever for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-comprehending-the-language-of-youtube-seo/"><u>[New] In 2024, Comprehending the Language of YouTube SEO</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-perfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[New] Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cracking-the-code-calculating-your-income-from-youtubes-cpm/"><u>[Updated] 2024 Approved Cracking the Code Calculating Your Income From YouTube's CPM</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-addressing-missing-image-display-in-youtubes-shorts-for-2024/"><u>[Updated] Addressing Missing Image Display in YouTubes Shorts for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-luminances-stand-in-the-hdr-landscape/"><u>[Updated] Luminance's Stand in the HDR Landscape</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-stifled-expression-sudden-copyright-breach-for-2024/"><u>[Updated] Stifled Expression Sudden Copyright Breach for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-banner-tactics-dos-and-donts-for-optimal-visibility/"><u>[Updated] YouTube Banner Tactics Dos and Don'ts for Optimal Visibility</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-master-the-art-of-technological-advancement-with-this-guide/"><u>2024 Approved Master the Art of Technological Advancement with This Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ace-your-content-strategies-to-skyrocket-video-popularity/"><u>Ace Your Content Strategies to Skyrocket Video Popularity</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-samsung-galaxy-xcover-7-by-drfone-android/"><u>How to Show Wi-Fi Password on Samsung Galaxy XCover 7</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-poco-x5-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-madden-nfl-21-pc-gaming-how-to-eliminate-frustrating-game-crashes-for-good/"><u>Mastering Madden NFL 21 PC Gaming: How to Eliminate Frustrating Game Crashes for Good</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/precision-and-flair-tailoring-background-imagery-to-stand-out-on-thumbnails-for-2024/"><u>Precision & Flair Tailoring Background Imagery to Stand Out on Thumbnails for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/ring-video-doorbell-2-unveiled-the-quintessential-choice-for-smart-homes/"><u>Ring Video Doorbell 2 Unveiled: The Quintessential Choice for Smart Homes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-essentials-of-earning-on-youtube-platforms-for-2024/"><u>The Essentials of Earning on YouTube Platforms for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-the-power-of-claude-3-insights-into-its-functionality-and-use-cases/"><u>Unlocking the Power of Claude 3: Insights Into Its Functionality and Use Cases</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-shorts-fund-how-to-maximize-your-earnings-for-2024/"><u>YouTube Shorts Fund How to Maximize Your Earnings for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-tips-on-calculating-your-youtube-traffic-and-earnings/"><u>[New] 2024 Approved Essential Tips on Calculating Your YouTube Traffic & Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-videos-with-these-proven-seo-tools-for-more-clicks/"><u>[New] Elevate Your Videos with These Proven SEO Tools for More Clicks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-captivating-visuals-with-diy-filming-methods/"><u>[New] In 2024, Creating Captivating Visuals with DIY Filming Methods</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-the-seamless-transition-from-obs-to-facebook-live-for-2024/"><u>[New] Mastering the Seamless Transition From OBS to Facebook Live for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-create-professional-movies-on-youtube-quickly/"><u>[Updated] 2024 Approved Create Professional Movies on YouTube Quickly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-download-youtube-videos-without-any-software-for-2024/"><u>[Updated] How to Download YouTube Videos without Any Software for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-a-profitable-youtube-content-strategy/"><u>[Updated] In 2024, Crafting a Profitable YouTube Content Strategy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-a-trending-sensation-with-these-effective-youtube-seo-strategies-for-2024/"><u>Become a Trending Sensation with These Effective YouTube SEO Strategies for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/half-life-alyx-resolved-issues-with-frame-drops-and-lags-on-pc/"><u>Half-Life: Alyx - Resolved Issues with Frame Drops & Lags on PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/premier-composer-of-media-experience-for-2024/"><u>Premier Composer of Media Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/safe-video-extraction-from-youtube-tips-on-downloading-to-mp4-for-2024/"><u>Safe Video Extraction From YouTube - Tips on Downloading to MP4 for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-realme-narzo-60-pro-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Realme Narzo 60 Pro 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-honor-play-40c-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Honor Play 40C Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
 

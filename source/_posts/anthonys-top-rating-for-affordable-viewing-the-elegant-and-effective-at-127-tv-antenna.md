@@ -1,7 +1,7 @@
 ---
 title: "Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
-date: 2024-10-06T18:51:49.494Z
-updated: 2024-10-11T22:52:26.198Z
+date: 2024-10-11T00:33:23.876Z
+updated: 2024-10-18T04:36:15.331Z
 categories:
   - BestProducts
 description: "This Article Describes Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
@@ -38,6 +38,13 @@ Lifewire / Jeremy Laukkonen
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Extollo LANSocket 1500 Powerline Adapter
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
@@ -71,10 +78,10 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
@@ -91,20 +98,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Pain-free plug and play**
@@ -121,6 +121,13 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: MIMO with beamforming**
 
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
@@ -128,13 +135,6 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
 
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network Performance: Blazing fast and low latency**
 
@@ -193,10 +193,10 @@ Lifewire / Jeremy Laukkonen
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -229,16 +229,19 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-top-zero-charge-web-tools-to-craft-videos/"><u>[New] 2024 Approved 10 Top Zero-Charge Web Tools to Craft Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-channel-ranking-with-these-11-seo-secrets-for-2024/"><u>[New] Elevate Your Channel Ranking with These 11 SEO Secrets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-template-tips-for-efficient-and-effective-youtube-intros/"><u>[New] Template Tips for Efficient and Effective YouTube Intros</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-successful-videos-on-youtube-for-beginners-for-2024/"><u>[Updated] Crafting Successful Videos on YouTube for Beginners for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-charting-a-path-to-youtube-wealth-cpm-analysis/"><u>[Updated] In 2024, Charting a Path to YouTube Wealth CPM Analysis</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-vanish-obscuring-elements-and-sharpen-your-images-in-affinity-photo/"><u>2024 Approved How to Vanish Obscuring Elements and Sharpen Your Images in Affinity Photo</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-xiaomi-civi-3-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Xiaomi Civi 3 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/got-swf-download-the-latest-version-11-of-wonderfox-for-easy-conversion-to-gif-format/"><u>Got SWF? Download the Latest Version 1.1 of WonderFox for Easy Conversion to GIF Format!</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-download-4k-videos-in-mp4-the-most-reliable-conversion-method/"><u>New Download 4K Videos in MP4 The Most Reliable Conversion Method</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-set-up-stable-diffusion-for-desktop-use-in-windows-through-gui/"><u>Step-by-Step Tutorial: Set Up Stable Diffusion for Desktop Use in Windows Through GUI</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/three-paths-to-harnessing-gpt-4-for-free/"><u>Three Paths to Harnessing GPT-4 for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-eco-effect-filmmaking-youtubes-guide-to-green-magic/"><u>[New] 2024 Approved Eco-Effect Filmmaking YouTube's Guide to Green Magic</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-broadcast-elegance-gamers-guide-to-using-obs-for-2024/"><u>[New] Broadcast Elegance Gamers' Guide to Using OBS for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breaking-the-mold-unique-post-vidcon-events/"><u>[New] In 2024, Breaking the Mold Unique Post-VidCon Events</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastery-in-captioning-a-youtube-creators-handbook/"><u>[New] Mastery in Captioning A YouTube Creator's Handbook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-youtubes-small-screen-image-magic/"><u>[New] Unlock YouTube's Small Screen Image Magic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-charting-a-course-through-youtubes-copyright-maze/"><u>[Updated] 2024 Approved Charting a Course Through YouTube's Copyright Maze</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ideal-audio-solution-for-iphone-find-the-best-6-free-apps-for-youtube-to-mp3/"><u>[Updated] Ideal Audio Solution for iPhone Find the Best 6 Free Apps for YouTube-to-MP3</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-how-to-start-a-channel-a-beginners-guide-to-reviewing-books-and-ebooks/"><u>2024 Approved How To Start a Channel A Beginner's Guide to Reviewing Books & Ebooks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unveiling-major-modifications-in-windows-movie-maker/"><u>2024 Approved Unveiling Major Modifications in Windows Movie Maker</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/complete-solution-for-fixing-avcodecdll-not-detected-or-lost-errors-in-windows/"><u>Complete Solution for Fixing Avcodec.dll Not Detected or Lost Errors in Windows</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-full-insight-demystifying-dji-inspire-2/"><u>In 2024, Full Insight Demystifying DJI Inspire 2</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/windows-10-webcam-recording-essentials-top-10-software-picks/"><u>Windows 10 Webcam Recording Essentials Top 10 Software Picks</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-energy-requirement-monitoring-machine-might/"><u>Windows Energy Requirement: Monitoring Machine Might</u></a></li>
 </ul></div>
 

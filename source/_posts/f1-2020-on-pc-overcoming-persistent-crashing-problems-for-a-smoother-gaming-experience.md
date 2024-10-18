@@ -1,7 +1,7 @@
 ---
 title: F1 2020 on PC - Overcoming Persistent Crashing Problems for a Smoother Gaming Experience
-date: 2024-10-07T02:18:22.221Z
-updated: 2024-10-11T16:38:04.108Z
+date: 2024-10-12T03:22:15.356Z
+updated: 2024-10-18T02:07:43.759Z
 tags:
   - win11
   - win10
@@ -34,6 +34,13 @@ System Requirements for Hyper Scape
 
  If your PC gear is good to go, check out the following fixes to get your game running perfectly again.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  Hyper Scape crashing can be caused by**faulty game files** ,**background apps** ,**outdated operating systems/drivers** , or**overclocking** , etc.
@@ -50,13 +57,6 @@ System Requirements for Hyper Scape
 8. [Run your game in windowed mode](https://tools.techidaily.com/drivereasy/download/)
 9. [Reinstall Uplay](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Verify your game files
 
  Missing game files can make your Hyper Scape unplayable, especially after a new update. Many Hyper Scape players managed to fix the crashing by verifying their game files. Here’s how to exactly do it:
@@ -71,6 +71,13 @@ System Requirements for Hyper Scape
 
  If it helps you restore some missing/corrupted game files, you can play the game without any crashing now. But if this fix doesn’t work, don’t worry, for there’re more fixes to try.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 2: Run Hyper Scape as an administrator
 
  Sometimes you may need to grant administrative rights to Hyper Scape to make sure your game has full rights to do anything it needs to do. Here’s how to run your game as an administrator permanently.
@@ -84,22 +91,8 @@ System Requirements for Hyper Scape
 ![run Hyper Scape as admin](https://images.drivereasy.com/wp-content/uploads/2020/09/run-as-admin.jpg)
 4. You can also run your game launcher i.e. Uplay as an administrator.  
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![run uplay as admin](https://images.drivereasy.com/wp-content/uploads/2020/09/Run-Uplay-as-admin.jpg)
 5. Try playing Hyper Scape again to see if the crashes persist.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If you would like to grant administrative permissions only temporarily, right-click on the desktop icon of the game (or the executable file in the[installation directory](https://support.ubisoft.com/en-US/Faqs/000038997) ) and select**Run as Administrator** .
 
@@ -123,6 +116,13 @@ System Requirements for Hyper Scape
 
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 4: Disable background apps
 
  Some apps running in the background may interfere with your games. To check if this is the culprit of your game crashing, here’s how to do it:
@@ -133,8 +133,28 @@ System Requirements for Hyper Scape
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-1.jpg)
 2. Under the**General** tab, choose**Selective startup** , and uncheck**Load startup items** . Then click**Apply** \>**OK** .  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/start-up-service.jpg)
 3. When you’re prompted to restart your PC. Make sure you’ve saved your files and click**Restart** .  
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/restart.jpg)
 
@@ -148,38 +168,38 @@ System Requirements for Hyper Scape
 2. Type**msconfig** into the box and hit **Enter** .![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-1.jpg)
 3. Go to the **Services** tab and check the **Hide all Microsoft services** box. Then click **Disable all** .  
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![open system configuration](https://images.drivereasy.com/wp-content/uploads/2020/09/system-config.jpg)
 4. Select the **Startup** tab and click **Open Task Manager** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![task manager](https://images.drivereasy.com/wp-content/uploads/2020/09/Open-task-manager.jpg)
 5. Select each startup item and click**Disable** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![disable start up](https://images.drivereasy.com/wp-content/uploads/2020/09/disable-start-up-item.jpg)
 6. Go back to**System Configuration** window, and click**Apply > OK** .  
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/strat-up-apps.jpg)
 7. Restart your device, and play your game. You can repeat this process (enabling one service/app every time) until you find the problematic one.
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Check for Windows updates
 
@@ -189,25 +209,11 @@ System Requirements for Hyper Scape
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/check-for-updates.jpg)
 2. Click the**Check for updates** button. Windows will start checking for available updates and download them if there’re any.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/start-checking.jpg)
 
  Once the download is complete, follow the on-screen instructions to install all the updates.
 
 If your Hyper Scape keeps crashing, you can head to the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 6: Lower your graphics settings
 
@@ -296,20 +302,24 @@ Best graphics settings for Hyper Scape
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-detailed-study-of-frozen-delights-playback-gadgets-for-2024/"><u>[New] Detailed Study of Frozen Delights Playback Gadgets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-hashtags-role-in-elevating-your-youtube-gaming-experience/"><u>[New] In 2024, Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-mastering-online-image-cropping-techniques-for-2024/"><u>[New] Mastering Online Image Cropping Techniques for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-roadmap-to-mastering-your-youtube-video-editing-skills/"><u>[New] The Ultimate Roadmap to Mastering Your YouTube Video Editing Skills</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-top-10-histology-streams-for-academics/"><u>[New] Top 10 Histology Streams for Academics</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discover-your-favorite-6-premier-youtube-short-downloaders/"><u>[Updated] 2024 Approved Discover Your Favorite 6 Premier YouTube Short Downloaders</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-erase-unwanted-black-fringes-on-youtube-tracks-for-2024/"><u>[Updated] Erase Unwanted Black Fringes on YouTube Tracks for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-fraps-screen-recorder-review/"><u>[Updated] In 2024, Fraps Screen Recorder Review</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-farm-frenzy-fun-pack-the-ultimate-agritainment-guide/"><u>In 2024, Farm Frenzy Fun-Pack The Ultimate Agritainment Guide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/is-ai-assistance-from-chatgpt-lifesaving-in-outdoor-emergencies/"><u>Is AI Assistance From ChatGPT Lifesaving in Outdoor Emergencies?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-german-made-easy-the-ultimate-25-idiom-collection-guide/"><u>Learning German Made Easy: The Ultimate 25 Idiom Collection Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/proven-pathways-to-profit-with-youtube-short-videos-for-2024/"><u>Proven Pathways to Profit with YouTube Short Videos for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/step-by-step-guide-perfecting-voiceovers-in-filming/"><u>Step-by-Step Guide Perfecting Voiceovers in Filming</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-complete-voice-change-blueprint-using-morphvox/"><u>The Complete Voice Change Blueprint Using MorphVOX</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlock-the-power-of-partnerships-youtube-ads-with-a-famebit-edge-for-2024/"><u>Unlock the Power of Partnerships YouTube Ads with a FameBit Edge for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-clearing-process-for-youtubes-pending-video-list/"><u>[New] In 2024, Clearing Process for YouTube's Pending Video List</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-lessons-in-motion-mastering-classroom-editing/"><u>[New] Lessons in Motion Mastering Classroom Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tips-for-constructing-motivating-daily-routine-vids/"><u>[New] Tips for Constructing Motivating Daily Routine Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-accelerate-thumbnail-designs-for-professional-valorant-portraits/"><u>[Updated] 2024 Approved Accelerate Thumbnail Designs for Professional Valorant Portraits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-add-neon-border-to-youtube-thumbnail/"><u>[Updated] 2024 Approved Add Neon Border to YouTube Thumbnail</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-boosting-tiktok-quality-with-smart-zoom-use/"><u>[Updated] Boosting TikTok Quality with Smart Zoom Use</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-decoding-revenue-how-much-do-creators-earn-on-youtube-for-2024/"><u>[Updated] Decoding Revenue How Much Do Creators Earn on Youtube for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-transferring-youtube-shorts-from-pcandroid-or-ios-for-2024/"><u>[Updated] How-To Transferring YouTube Shorts From PC/Android or iOS for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-digital-deck-of-cards-youtubes-milestone-challenges/"><u>[Updated] In 2024, Digital Deck of Cards YouTube's Milestone Challenges</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mapping-your-marketing-journey-on-youtube/"><u>[Updated] Mapping Your Marketing Journey on YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/brightening-tactics-for-android-video-enthusiasts-for-2024/"><u>Brightening Tactics for Android Video Enthusiasts for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/evaluating-the-once-popular-netgear-c3000-does-its-tech-still-hold-up-in-todays-internet-age/"><u>Evaluating the Once-Popular Netgear C3000: Does Its Tech Still Hold Up in Today's Internet Age?</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-x-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone X to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-why-choose-youtubes-av1-for-impeccable-video-playback/"><u>In 2024, Why Choose YouTube's AV1 for Impeccable Video Playback?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolved-unraveling-the-mystery-of-rusts-screen-distortion-issue/"><u>Resolved: Unraveling the Mystery of Rust's Screen Distortion Issue</u></a></li>
+<li><a href="https://windows11.techidaily.com/sudos-arrival-in-windows-os-explained/"><u>Sudo's Arrival in Windows OS Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/superior-microphones-for-livestreaming-for-2024/"><u>Superior Microphones for Livestreaming for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-major-technological-gaffes-of-22/"><u>Unraveling the Major Technological Gaffes of '22</u></a></li>
 </ul></div>
 

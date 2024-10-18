@@ -1,7 +1,7 @@
 ---
 title: "Llama 2: The Key to Streamlined Processes and Productivity"
-date: 2024-10-04T21:48:44.290Z
-updated: 2024-10-11T23:25:44.907Z
+date: 2024-10-10T21:30:57.294Z
+updated: 2024-10-17T18:28:38.769Z
 tags:
   - chatgpt
   - open-ai
@@ -22,10 +22,10 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
 * [Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#is-it-worth-upgrading-to-chatgpt-plus-to-use-custom-gpts)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Key Takeaways
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
  OpenAI has finally unveiled its highly anticipated GPT Store, offering users a selection of ChatGPT community-created custom GPTs featuring specialized chatbots ranging from writing and design to programming and productivity. The launch marks OpenAI's latest move to capitalize on the runaway popularity of its AI creation ChatGPT, which took the world by storm after its launch in November 2022.
 
  ChatGPT's custom GPT Store is open right now, and this is how you can use it to find the pre-programmed AI tools you need.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Access the GPT Store
 
@@ -57,41 +64,28 @@ How do you know when you've been granted access?
 ![Screenshot of the GPT store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store.jpg)
 3. You can also use the search bar to find GPTs by keyword or related terms.  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![GPT Store search screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store-search-screen.jpg)
 4. When you find a GPT you want to try, click on it to open the individual GPT page.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5. On the GPT page, you will see information about what that model offers.
 6. After testing a GPT that solves your problem well, take one important extra step—click on the GPT name in the top left corner of the page, then click**Keep in sidebar** . This saves that GPT to the sidebar along with your chat history for easy future access.  
 ![Adding a GPT to sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/adding-a-gpt-to-sidebar.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  However, you should note that at the time of writing, the GPT Store isn't reviewed, and there is no rating system or otherwise. We're hoping that OpenAI will introduce some type of rating system in the near future, as currently, without any system in place, you're effectively on your own when it comes to figuring out what works well. By extension, it seems likely that some form of rating or review system will be implemented once GPT Store revenue sharing is launched, but OpenAI hasn't given any fixed timeline for this.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?
 
@@ -116,22 +110,19 @@ How do you know when you've been granted access?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-youtube-productions-best-mac-mp4-editors-guide/"><u>[New] 2024 Approved Boosting YouTube Productions Best Mac MP4 Editors Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-boxes-that-speak-love-the-top-10-websites-offering-custom-wrapped-treasures/"><u>[New] Boxes That Speak Love The Top 10 Websites Offering Custom Wrapped Treasures</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-guides-to-the-top-10-student-focused-history-vlogs-for-2024/"><u>[New] Essential Guides to the Top 10 Student-Focused History Vlogs for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-exploring-earning-potential-revenue-from-youtube-advertisements-for-2024/"><u>[New] Exploring Earning Potential Revenue From YouTube Advertisements for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhancing-video-impact-interpreting-youtube-metrics-wisely/"><u>[New] In 2024, Enhancing Video Impact Interpreting YouTube Metrics Wisely</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-vr-application-in-entertainment/"><u>[New] VR Application in Entertainment</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-your-content-quality-essential-tips-for-youtube-users-for-2024/"><u>[Updated] Boosting Your Content Quality Essential Tips for YouTube Users for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-video-quality-mastering-aspect-ratio-and-size-settings-on-youtube-for-2024/"><u>[Updated] Elevate Video Quality Mastering Aspect Ratio and Size Settings on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-ignite-views-effective-strategies-for-optimizing-youtube-collaborations/"><u>[Updated] Ignite Views Effective Strategies for Optimizing YouTube Collaborations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-income-insights-a-triple-step-technique-for-tracking-youtube-revenue/"><u>[Updated] Unveiling Income Insights A Triple Step Technique for Tracking YouTube Revenue</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/elite-gamers-guide-5-crucial-webcams-to-master/"><u>Elite Gamers' Guide 5 Crucial Webcams to Master</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-tecno-pop-7-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Tecno Pop 7 Pro Phone | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Itel P40+ | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-lean-cloud-archive-efficient-low-cost-large-data/"><u>In 2024, Lean Cloud Archive Efficient, Low-Cost Large Data</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/navigating-complex-projects-on-magix-video-pro-x-for-2024/"><u>Navigating Complex Projects on Magix Video Pro X for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/navigating-the-path-free-and-safe-vlc-installer-for-macos-users/"><u>Navigating the Path Free and Safe VLC Installer for macOS Users</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unlock-the-full-potential-of-group-video-conferencing-on-your-android-device-zoom/"><u>Unlock the Full Potential of Group Video Conferencing on Your Android Device (Zoom)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-quick-guide-to-chroma-key-background/"><u>[New] 2024 Approved A Quick Guide to Chroma Key Background</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-step-by-step-guide-how-to-add-video-filters-in-zoom/"><u>[New] Step-by-Step Guide How to Add Video Filters in Zoom</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-combining-zoom-and-fb-live/"><u>[New] The Ultimate Guide to Combining ZOOM & FB Live</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-confirm-monetization-accuracy-essential-steps-for-your-yt-channels/"><u>[Updated] 2024 Approved Confirm Monetization Accuracy Essential Steps for Your YT Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-freefall-into-success-top-hashtags-and-vlogging-techniques/"><u>[Updated] FreeFall Into Success Top Hashtags and Vlogging Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-youtube-snippets-can-boost-your-financial-goals/"><u>[Updated] How YouTube Snippets Can Boost Your Financial Goals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tactical-multitasking-a-guide-to-co-watching-on-yt/"><u>[Updated] Tactical Multitasking A Guide to Co-Watching on YT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-video-potential-youtube-to-igtv/"><u>[Updated] Unlocking Video Potential YouTube to IGTV</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-poco-m6-pro-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Poco M6 Pro 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descargue-el-software-gratuito-de-movavi-para-convertir-rapidamente-sus-mxf-a-mp3-en-linea/"><u>Descargue El Software Gratuito De Movavi Para Convertir Rápidamente Sus MXF a MP3 en Línea</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-strategies-for-effective-online-image-trimming/"><u>In 2024, Expert Strategies for Effective Online Image Trimming</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-advanced-features-of-zoom-on-windows-11-systems/"><u>In 2024, Exploring Advanced Features of Zoom on Windows 11 Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-harnessing-online-platforms-beyond-youtube-to-30plus-communities/"><u>In 2024, Harnessing Online Platforms Beyond YouTube to 30+ Communities</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-monitor-adjustments-tips-and-tricks-to-alter-screen-display-accurately/"><u>Mastering Monitor Adjustments: Tips & Tricks to Alter Screen Display Accurately</u></a></li>
 </ul></div>
 

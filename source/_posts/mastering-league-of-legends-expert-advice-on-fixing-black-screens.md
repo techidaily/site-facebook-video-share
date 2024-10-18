@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-10-05T06:24:09.656Z
-updated: 2024-10-11T20:36:54.278Z
+date: 2024-10-10T23:50:04.816Z
+updated: 2024-10-18T01:29:42.819Z
 tags:
   - win11
   - win10
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 * [Fix 5: Enable low spec mode](https://tools.techidaily.com/drivereasy/download/)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 1: Make sure your PC meets meets the system requirements for League of Legends
 
@@ -83,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
@@ -94,13 +101,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-84.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
 
@@ -114,15 +114,36 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-62-1024x796.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) Click**Download** if Windows detects any new updates. If not, then click**Check for updates** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3) Wait until Windows downloaded and installed all the updates.
 
 4) Restart Windows and run League of Legends again.
 
  See if you can play the game without crashes. If so, you’ve fixed this issue! If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 4: Repair corrupted game files
 
@@ -134,34 +155,13 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click**Initiate Full Repair** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) Click**Yes** to continue. This may take a while.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
 
@@ -203,15 +203,19 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-3-unconventional-tactics-for-subscriber-growth/"><u>[New] In 2024, 3 Unconventional Tactics for Subscriber Growth</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unleash-creativity-with-the-right-camera-lenses/"><u>[New] Unleash Creativity with the Right Camera Lenses</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-audible-savings-the-essential-guide-to-using-these-24-no-cost-splitters-on-youtube-for-2024/"><u>[Updated] Audible Savings The Essential Guide to Using These 24 No-Cost Splitters on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-quick-cut-channel-sequences/"><u>[Updated] In 2024, Crafting Quick-Cut Channel Sequences</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-syncing-your-browser-with-auto-play-feature-in-facebook/"><u>[Updated] Syncing Your Browser with Auto-Play Feature in Facebook</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-reviews-on-visionx-pro-prescription-strength-anti-blue-light-eyewear/"><u>Expert Reviews on VisionX Pro: Prescription-Strength Anti-Blue Light Eyewear</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/free-windows-11-upgrade-period-ended-update-now-with-zdnet/"><u>Free Windows 11 Upgrade Period Ended - Update Now with ZDNet</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-best-value-top-6-discounted-4k-hd-projectors/"><u>In 2024, Best Value Top 6 Discounted 4K HD Projectors</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/transferring-photos-and-videos-from-one-idevice-to-another-for-2024/"><u>Transferring Photos & Videos From One iDevice to Another for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/transforming-vids-10-leading-apps-for-instagram-video-editing/"><u>Transforming Vids 10 Leading Apps for Instagram Video Editing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-boosting-channel-success-scaling-for-a-million-viewers/"><u>[New] 2024 Approved Boosting Channel Success Scaling for a Million Viewers</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-speeding-up-tiktoks-simple-techniques-for-faster-videos/"><u>[New] 2024 Approved Speeding Up TikToks Simple Techniques for Faster Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-charting-social-media-trends-with-data-graphics-for-2024/"><u>[New] Charting Social Media Trends with Data Graphics for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/liminate-cacophony-perfecting-sound-quality-for-youtube-for-2024/"><u>[New] Eliminate Cacophony Perfecting Sound Quality for YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-innovative-photo-tips-for-exquisite-iphone-close-ups-and-macros-for-2024/"><u>[New] Innovative Photo Tips for Exquisite iPhone Close-Ups & Macros for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-turning-beauty-blogging-into-cash/"><u>[New] Turning Beauty Blogging Into Cash</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10-ultimate-immersive-vr-video-hits-for-2024/"><u>[Updated] 10 Ultimate Immersive VR Video Hits for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-tips-adding-captions-in-youtube-videos/"><u>[Updated] Quick Tips Adding Captions in YouTube Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-boost-your-gaming-presence-with-easy-and-cost-effective-character-voice-alteration-in-free-fire/"><u>2024 Approved Boost Your Gaming Presence with Easy and Cost-Effective Character Voice Alteration in Free Fire</u></a></li>
+<li><a href="https://win-studio.techidaily.com/best-of-the-batch-updated-list-of-top-13-premium-mkv-converter-apps-for-seamless-format-switching/"><u>Best of the Batch: Updated List of Top 13 Premium MKV Converter Apps for Seamless Format Switching!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/explore-our-top-5-preferred-video-editing-programs-for-creatives/"><u>Explore Our Top 5 Preferred Video Editing Programs for Creatives</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/metaverse-laughter-25plus-humorous-meme-ideas-to-share-online-for-2024/"><u>Metaverse Laughter 25+ Humorous Meme Ideas to Share Online for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-fostering-viewer-commitment-in-youtube-videos-for-2024/"><u>The Ultimate Guide to Fostering Viewer Commitment in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-creativity-with-youtube-clips-make-animation-gifs-easily-for-2024/"><u>Unleash Creativity with YouTube Clips - Make Animation GIFs Easily for 2024</u></a></li>
 </ul></div>
 

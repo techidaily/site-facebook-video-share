@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Streamline Your YouTube Presentations with Captions"
-date: 2024-08-01T11:27:44.853Z
-updated: 2024-08-02T11:27:44.853Z
+date: 2024-10-16T19:01:26.086Z
+updated: 2024-10-17T18:39:40.212Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 
 # How To Add Captions to YouTube Videos
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,17 +28,10 @@ By captioning your YouTube videos you help to make them accessible to more poten
 
 This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## How To Turn On Captions on YouTube
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
@@ -52,8 +41,12 @@ If the creator of the video has not added captions then you can enable automatic
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Adding YouTube Captions in 4 Steps
 
 1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
@@ -76,11 +69,20 @@ If you want to change the language of the subtitles click on the settings icon (
 
 The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -88,12 +90,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[New] 2024 Approved Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-guide-top-freefire-streams-and-strategies-on-youtube/"><u>[New] Ultimate Guide Top FreeFire Streams & Strategies on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-to-gif-magic-your-ultimate-guide-to-animated-images/"><u>[New] Youtube to Gif Magic Your Ultimate Guide to Animated Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-streamline-your-cloud-strategy-expert-recommendations-for-top-20-free-providers-for-2024/"><u>[Updated] Streamline Your Cloud Strategy Expert Recommendations for Top 20 Free Providers for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/flv-and-wma-movavi/"><u>無料で高速FLV & WMA動画変換サービス | Movaviプロの迅速な解決方法</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728487042434-ez-gig-iv/"><u>EZ Gig IVクローン成功事例：完了報告</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-version-of-logitechs-mk710-driver-easy-download-and-installation-tutorial/"><u>Get the Newest Version of Logitech's MK710 Driver – Easy Download and Installation Tutorial</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-reliable-strategy-to-infuse-direct-urls-in-tiktok-bio/"><u>In 2024, Reliable Strategy to Infuse Direct URLs in TikTok Bio</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/journey-through-virtuality-youtubes-best-10-for-2024/"><u>Journey Through Virtuality YouTube's Best 10 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-playlist-streaming-your-mp3-music-library-online-for-2024/"><u>Quick Playlist Streaming Your MP3 Music Library Online for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-fit2-the-ideal-companion-for-everyday-fitness-tracking/"><u>Samsung Galaxy Fit2: The Ideal Companion for Everyday Fitness Tracking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamline-your-youtube-experience-shareable-playlists-for-2024/"><u>Streamline Your YouTube Experience Shareable Playlists for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-numbers-game-estimating-income-from-viral-content-for-2024/"><u>The Numbers Game Estimating Income From Viral Content for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/ultimate-audio-harvesters-in-learning-spaces-for-2024/"><u>Ultimate Audio Harvesters in Learning Spaces for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/who-rules-the-realm-of-youtube-for-2024/"><u>Who Rules the Realm of YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-most-lucrative-star-title-for-2024/"><u>YouTube's Most Lucrative Star Title for 2024</u></a></li>
+</ul></div>
 

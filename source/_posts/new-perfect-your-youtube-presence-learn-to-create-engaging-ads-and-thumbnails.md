@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfect Your YouTube Presence  Learn to Create Engaging Ads & Thumbnails\""
-date: 2024-08-01T11:25:02.782Z
-updated: 2024-08-02T11:25:02.782Z
+date: 2024-10-12T19:08:27.013Z
+updated: 2024-10-17T22:57:46.923Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/fiE92Oaxlcmib5fU1IKpQazcl_8=/210x138/fi
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://www.lifewire.com/thmb/fiE92Oaxlcmib5fU1IKpQazcl_8=/210x138/fi
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,24 +63,14 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -95,12 +79,46 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-link-driven-success-a-backlink-blueprint-for-channels-for-2024/"><u>[New] Crafting Link-Driven Success A Backlink Blueprint for Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-gear-picking-the-very-best-among-top-9-free-logomakers-for-2024/"><u>[New] Essential Gear Picking the Very Best Among Top 9 Free Logomakers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-youtube-earnings-master-the-art-with-500-subscribers/"><u>[New] Maximizing YouTube Earnings Master the Art with 500 Subscribers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-free-youtube-comment-finder-you-should-try/"><u>[Updated] 2024 Approved Best Free YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-tools-ranking-the-best-mobile-videography-apps/"><u>[Updated] 2024 Approved Essential Tools Ranking the Best Mobile Videography Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-5-top-link-minimizers-transforming-youtube-watchability-for-2024/"><u>[Updated] 5-Top Link Minimizers Transforming YouTube Watchability for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-boosting-fb-video-engagement-and-audience-reach/"><u>[Updated] Boosting FB Video Engagement & Audience Reach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-decode-your-youtube-preferences-with-these-6-fan-favorite-questionnaires-for-2024/"><u>[Updated] Decode Your YouTube Preferences with These 6 Fan-Favorite Questionnaires for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-explore-the-limitless-potential-of-fb-vr-upload-tips/"><u>[Updated] Explore the Limitless Potential of FB VR Upload Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-amplify-your-vlog-presence-with-tubebuddys-tools/"><u>[Updated] In 2024, Amplify Your Vlog Presence with TubeBuddy's Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-optimizing-your-xbox-experience-with-advanced-screen-capture-methods/"><u>[Updated] In 2024, Optimizing Your Xbox Experience with Advanced Screen Capture Methods</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-facebook-streaming-on-roku-devices-for-2024/"><u>[Updated] Navigating Facebook Streaming on Roku Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-earning-ajeys-success-story-in-video-income/"><u>[Updated] The Art of Earning Ajey's Success Story in Video Income</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-secrets-to-efficient-frame-viewing-free/"><u>2024 Approved YouTube's Secrets to Efficient Frame Viewing (FREE!)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/glow-up-your-android-footage/"><u>Glow Up Your Android Footage</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Vivo Y27 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-audio-accentuation-tunes-for-visual-projects/"><u>In 2024, Audio Accentuation Tunes for Visual Projects</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/lively-discourse-evaluation-iteration-8-for-2024/"><u>Lively Discourse Evaluation - Iteration 8 for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcome-laptop-charging-problems-expert-advice-to-revive-your-battery-fast/"><u>Overcome Laptop Charging Problems: Expert Advice to Revive Your Battery Fast</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

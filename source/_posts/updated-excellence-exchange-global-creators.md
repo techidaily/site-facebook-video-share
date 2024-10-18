@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Excellence Exchange  Global Creators\""
-date: 2024-10-05T21:46:09.485Z
-updated: 2024-10-11T19:10:07.977Z
+date: 2024-10-13T00:21:20.869Z
+updated: 2024-10-17T23:09:16.770Z
 tags:
   - ai video
   - ai youtube
@@ -59,23 +59,9 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -87,11 +73,38 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -107,20 +120,19 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,15 +150,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-echoes-of-amusement-comical-tune-transformations/"><u>[Updated] In 2024, Echoes of Amusement Comical Tune Transformations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-insights-into-average-gain-from-each-watched-online-content/"><u>[Updated] Insights Into Average Gain From Each Watched Online Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-sparking-inspiration-outstanding-youtube-content-themes/"><u>[Updated] Sparking Inspiration Outstanding YouTube Content Themes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-secrets-of-effective-free-youtube-video-transcriptions-revealed/"><u>[Updated] The Secrets of Effective, FREE YouTube Video Transcriptions Revealed</u></a></li>
-<li><a href="https://fox-where.techidaily.com/gegevensverliezenloze-herstelpartitietable-voor-windows-10-en-11-scherp-aan-weetelijke-handleiding/"><u>Gegevensverliezenloze Herstelpartitietable Voor Windows 10 en 11: Scherp Aan Weetelijke Handleiding</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-seamless-tiktok-to-high-quality-mp4-format/"><u>In 2024, Seamless TikTok to High-Quality MP4 Format</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-updated-list-of-conversation-catalysts-for-listener-retention/"><u>In 2024, Updated List of Conversation Catalysts for Listener Retention</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/kyocera-printer-drivers-for-windows-download-and-easy-installation-process/"><u>KYOCERA Printer Drivers for Windows - Download and Easy Installation Process</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-pc-screenshots-step-by-step-instructions/"><u>Mastering the Art of PC Screenshots – Step-by-Step Instructions</u></a></li>
-<li><a href="https://win-answers.techidaily.com/quick-fix-guide-how-to-prevent-deathloop-from-continuously-crashing-on-pc-systems/"><u>Quick Fix Guide: How to Prevent Deathloop From Continuously Crashing on PC Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-affordable-mic-picks-for-aspiring-yt-bands/"><u>[New] In 2024, Affordable Mic Picks for Aspiring YT Bands</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-lightning-fast-windows-evaluation-path/"><u>[New] Lightning-Fast Windows Evaluation Path</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-picture-editor-tutorial/"><u>[New] The Ultimate Picture Editor Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-user-friendly-guide-iphoneipad-video-submissions/"><u>[New] User-Friendly Guide IPhone/iPad Video Submissions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-earnings-average-income-per-video-ad/"><u>[New] YouTube Earnings Average Income per Video Ad?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-charting-a-path-to-monthly-earnings-from-youtube/"><u>[Updated] 2024 Approved Charting a Path to Monthly Earnings From YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-youtube-presence-through-famebit-inspired-sponsorships-for-2024/"><u>[Updated] Elevating Your YouTube Presence Through FameBit-Inspired Sponsorships for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-visibility-the-art-of-crafting-youtube-channel-backlinks/"><u>[Updated] In 2024, Boosting Visibility The Art of Crafting YouTube Channel Backlinks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-viral-potential-in-tiktok-unboxer-videos/"><u>[Updated] Mastering Viral Potential in TikTok Unboxer Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-opposite-end-video-retrospective-techniques/"><u>2024 Approved YouTube's Opposite End Video Retrospective Techniques</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/converse-face-to-face-w-chatgpt/"><u>Converse Face-to-Face W/ ChatGPT</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/curating-best-tiktok-scenes-as-pixel-art/"><u>Curating Best TikTok Scenes as Pixel Art</u></a></li>
+<li><a href="https://facebook.techidaily.com/dynamic-user-defined-avatars-hit-oculus-market/"><u>Dynamic, User-Defined Avatars Hit Oculus Market</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How to Change Your Location on Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-complete-guide-to-compliant-twitter-videos/"><u>In 2024, The Complete Guide to Compliant Twitter Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-fixes-what-to-do-when-microsoft-edge-fails-to-start/"><u>Quick Fixes: What to Do When Microsoft Edge Fails to Start</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tailoring-transitional-terminations-for-2024/"><u>Tailoring Transitional Terminations for 2024</u></a></li>
 </ul></div>
 

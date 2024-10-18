@@ -1,7 +1,7 @@
 ---
 title: "Scrutinizing YouTubes' Comment Clusters for 2024"
-date: 2024-08-01T11:23:57.354Z
-updated: 2024-08-02T11:23:57.354Z
+date: 2024-10-13T17:20:08.254Z
+updated: 2024-10-17T16:16:24.834Z
 tags:
   - ai video
   - ai youtube
@@ -57,9 +57,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
@@ -74,11 +71,14 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -106,9 +106,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -116,8 +113,12 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -126,16 +127,24 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -165,12 +174,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-cyber-celebrity-surge-2024/"><u>[New] Cyber Celebrity Surge 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-darkened-snapshots-skilled-dos-and-donts-of-low-light-photos-for-2024/"><u>[New] Darkened Snapshots Skilled Do's & Don'ts of Low Light Photos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exquisite-couple-clips-the-best-weddings-online-8-picks-for-2024/"><u>[New] Exquisite Couple Clips The Best Weddings Online (8 Picks) for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-lifecast-your-show-a-basic-podcast-streaming-strategy/"><u>[New] Lifecast Your Show A Basic Podcast Streaming Strategy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-list-editors-for-android-pics-for-2024/"><u>[Updated] A-List Editors for Android Pics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-accelerate-mac-youtube-video-matching-aspect-ratio-for-2024/"><u>[Updated] Accelerate Mac Youtube Video Matching Aspect Ratio for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-dismantling-the-shadowy-video-barrier-on-youtube-for-2024/"><u>[Updated] Dismantling the Shadowy Video Barrier on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-depths-of-video-talks-on-youtube-for-2024/"><u>[Updated] Exploring the Depths of Video Talks on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gamers-sound-selection-top-5-noise-canceling-earbuds/"><u>[Updated] Gamers’ Sound Selection Top 5 Noise-Canceling Earbuds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-practices-for-organizing-online-video-stories/"><u>[Updated] In 2024, Best Practices for Organizing Online Video Stories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-comprehensive-instructions-for-disposing-of-video-downloads/"><u>[Updated] In 2024, Comprehensive Instructions for Disposing of Video Downloads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-guide-overcoming-youtube-short-hurdles/"><u>[Updated] Quick Guide Overcoming YouTube Short Hurdles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-key-to-immersive-roleplay-zooming-into-roblox-worlds-for-2024/"><u>[Updated] The Key to Immersive Roleplay Zooming Into Roblox Worlds for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/correcting-screen-line-parity/"><u>Correcting Screen Line Parity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-performance-tools-youtube-meets-twitter-for-2024/"><u>High-Performance Tools YouTube Meets Twitter for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-apple-iphone-6-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From Apple iPhone 6 How to Bypass?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Honor 100? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-music-after-samsung-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Samsung has been deleted</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/simplify-your-path-to-youtube-short-mastery-for-2024/"><u>Simplify Your Path to YouTube Short Mastery for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Solve Your PC Problems with These Easy Fixes for the Football Manager 2E 22 Game Crash
-date: 2024-10-06T23:50:34.077Z
-updated: 2024-10-12T06:00:51.019Z
+date: 2024-10-16T01:37:41.062Z
+updated: 2024-10-18T03:09:06.951Z
 tags:
   - win11
   - win10
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 8. **[Repair your system files](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 1\. Check your PC specs
@@ -55,19 +55,6 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 
  Or you can uninstall your antivirus temporarily (note that disabling it won’t work) and be very careful about the websites you’re visiting.
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 3\. Update your graphics driver
 
  If you are using the wrong or outdated graphics driver, it can cause launch issues especially in new game titles such as Football Manager 2022\. So, it is recommended to keep your graphics driver up to date. The updated driver should solve the crashing at launch issues and it can also help to boost up the overall game’s performance.
@@ -83,30 +70,10 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 
 ![update all drivers](https://images.drivereasy.com/wp-content/uploads/2021/10/update-all.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
 After updating your drivers, restart your PC and test the gameplay.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4\. Verify the integrity of game files
 
@@ -120,13 +87,20 @@ After updating your drivers, restart your PC and test the gameplay.
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Once complete, launch the game to check if your game is working again.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5\. Delete the Caches and Preferences folder
@@ -139,14 +113,14 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-8-1200x758.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 6\. Run the game executable file as admin
 
@@ -162,6 +136,13 @@ Once complete, launch the game to check if your game is working again.
 
  3) Locate the game’s executable and run the game as an administrator.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 7\. Open the game in windowed mode
 
  If Football Manager keeps getting stuck at the loading screen, you can run it in windowed mode, which has helped many other players.
@@ -173,13 +154,6 @@ Once complete, launch the game to check if your game is working again.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
 
  Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 8\. Repair your system files
 
@@ -207,6 +181,13 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) You’ll see the summary of detected issues on your PC. Click **START REPAIR** and all the issues will be fixed automatically. (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
@@ -222,6 +203,13 @@ Once complete, launch the game to check if your game is working again.
  1) On your keyboard, press the Windows logo key and R at the same time to open the Run box. Type**cmd** and press**Ctrl+Shift+Enter** to run Command Prompt as administrator.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/cmd-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Click**Yes** when prompted for permission to make changes to your device.
 
@@ -290,22 +278,22 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-behind-the-scenes-with-intova-edge-x/"><u>[New] Behind the Scenes with Intova Edge X</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-compelling-content-with-powerful-youtube-titles/"><u>[New] In 2024, Creating Compelling Content with Powerful YouTube Titles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boost-your-video-impact-expert-tips-on-using-wm-maker/"><u>[Updated] 2024 Approved Boost Your Video Impact Expert Tips on Using WM Maker</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-explore-top-12-gear-best-on-the-go-flip-screen-cameras/"><u>[Updated] Explore Top 12 Gear Best On-the-Go Flip-Screen Cameras</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-15-best-free-youtube-introduction-tools/"><u>[Updated] In 2024, 15 Best Free YouTube Introduction Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-approach-to-mastering-free-youtube-video-transcription/"><u>[Updated] In 2024, A Step-by-Step Approach to Mastering Free YouTube Video Transcription</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-iphones-audio-upgrade-discover-best-software-for-youtube-to-mp3/"><u>[Updated] IPhone's Audio Upgrade Discover Best Software for YouTube-to-MP3</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-pro-gif-maker-software-that-wins-every-time/"><u>[Updated] Pro-Gif Maker Software That Wins Every Time</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-10-mac-exclusive-free-drawing-platforms-for-2024/"><u>[Updated] Top 10 Mac-Exclusive Free Drawing Platforms for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/essential-update-installing-intel-irisplus-graphics-plus-hd-655-drivers-in-windows-11/"><u>Essential Update: Installing Intel Iris+ Graphics + HD 655 Drivers in Windows 11</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-apples-latest-visionos-enhancements-a-transformation-of-user-personalization-and-more-insights/"><u>Exploring Apple's Latest VisionOS Enhancements: A Transformation of User Personalization and More | Insights</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/get-back-to-seamless-transfers-fixing-faulty-airdrop-links-for-2024/"><u>Get Back to Seamless Transfers Fixing Faulty Airdrop Links for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-y27-4g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Vivo Y27 4G?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unleash-pure-content-how-to-block-youtube-ads-effectively-for-2024/"><u>Unleash Pure Content How to Block YouTube Ads Effectively for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ling-top-freefire-strategies-on-youtube/"><u>Unveiling Top FreeFire Strategies on YouTube</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-photo-collage-on-maciphone-using-iphoto-in-2024/"><u>Updated How to Make a Photo Collage on Mac/iPhone Using iPhoto, In 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/video-innovators-showcase-15-leading-youtube-unboxing-sites-for-2024/"><u>Video Innovators Showcase 15 Leading YouTube Unboxing Sites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app/"><u>[New] 2024 Approved Create Harmonious Hits A Step-by-Step Guide to Making YouTube Playlists Online & App</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-cutting-edge-title-design-in-after-effects/"><u>[New] Cutting-Edge Title Design in After Effects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximize-engagement-a-comprehensive-thumbnail-guidebook/"><u>[New] Maximize Engagement A Comprehensive Thumbnail Guidebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-pathway-to-advanced-hd-video-on-windows-pcs/"><u>[New] The Ultimate Pathway to Advanced HD Video on Windows PCs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-choice-for-capturing-quality-content-on-youtube/"><u>[New] Top Choice for Capturing Quality Content on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-avoid-piracy-safe-youtube-to-mp4-conversion-tips/"><u>[Updated] In 2024, Avoid Piracy Safe YouTube to MP4 Conversion Tips</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-charm-with-cost-free-visual-aids/"><u>[Updated] In 2024, Channel Charm with Cost-Free Visual Aids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-youtubes-intricate-view-count-mechanics/"><u>[Updated] In 2024, Decoding YouTube's Intricate View Count Mechanics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-tactical-co-creation-youtube-and-brand-joint-efforts/"><u>[Updated] In 2024, Tactical Co-Creation YouTube and Brand Joint Efforts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-precision-and-perfection-a-guide-to-youtube-studio-video-edits/"><u>[Updated] Precision and Perfection A Guide to YouTube Studio Video Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-scrutinizing-the-economics-behind-short-video-earnings/"><u>[Updated] Scrutinizing the Economics Behind Short Video Earnings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-competitor-cameras-rising-the-ultimate-guide-to-substitutes-for-samsungs-gear-360/"><u>2024 Approved Competitor Cameras Rising The Ultimate Guide to Substitutes for Samsung's Gear 360</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/guide-simple-et-facile-pour-diviser-votre-fichier-mp3-avec-le-couteau-mp3-de-movavi/"><u>Guide Simple Et Facile Pour Diviser Votre Fichier MP3 Avec Le Couteau MP3 De Movavi</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimize-youtube-submission-swift-rendering-and-uploading-methods-for-2024/"><u>Optimize YouTube Submission - Swift Rendering and Uploading Methods for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-issues-stop-wukong-from-freezing-during-gameplay-on-your-computer/"><u>Resolving Issues: Stop Wukong From Freezing During Gameplay on Your Computer</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-top-10-video-animation-apps-for-mobile-devices/"><u>Updated Top 10 Video Animation Apps for Mobile Devices</u></a></li>
 </ul></div>
 
