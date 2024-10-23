@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-10-10T23:50:04.816Z
-updated: 2024-10-18T01:29:42.819Z
+date: 2024-10-22T19:07:39.028Z
+updated: 2024-10-23T21:07:26.378Z
 tags:
   - win11
   - win10
@@ -30,10 +30,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 1: Make sure your PC meets meets the system requirements for League of Legends
@@ -90,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
@@ -114,36 +114,15 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-62-1024x796.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Click**Download** if Windows detects any new updates. If not, then click**Check for updates** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3) Wait until Windows downloaded and installed all the updates.
 
 4) Restart Windows and run League of Legends again.
 
  See if you can play the game without crashes. If so, you’ve fixed this issue! If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Repair corrupted game files
 
@@ -159,11 +138,25 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  4) Click**Yes** to continue. This may take a while.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
 
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5: Enable low spec mode
 
@@ -180,6 +173,13 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap778.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Run League of Legends to see if you resolved this issue.
 
@@ -203,19 +203,24 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-boosting-channel-success-scaling-for-a-million-viewers/"><u>[New] 2024 Approved Boosting Channel Success Scaling for a Million Viewers</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-speeding-up-tiktoks-simple-techniques-for-faster-videos/"><u>[New] 2024 Approved Speeding Up TikToks Simple Techniques for Faster Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-charting-social-media-trends-with-data-graphics-for-2024/"><u>[New] Charting Social Media Trends with Data Graphics for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/liminate-cacophony-perfecting-sound-quality-for-youtube-for-2024/"><u>[New] Eliminate Cacophony Perfecting Sound Quality for YouTube for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-innovative-photo-tips-for-exquisite-iphone-close-ups-and-macros-for-2024/"><u>[New] Innovative Photo Tips for Exquisite iPhone Close-Ups & Macros for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-turning-beauty-blogging-into-cash/"><u>[New] Turning Beauty Blogging Into Cash</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-10-ultimate-immersive-vr-video-hits-for-2024/"><u>[Updated] 10 Ultimate Immersive VR Video Hits for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-quick-tips-adding-captions-in-youtube-videos/"><u>[Updated] Quick Tips Adding Captions in YouTube Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-boost-your-gaming-presence-with-easy-and-cost-effective-character-voice-alteration-in-free-fire/"><u>2024 Approved Boost Your Gaming Presence with Easy and Cost-Effective Character Voice Alteration in Free Fire</u></a></li>
-<li><a href="https://win-studio.techidaily.com/best-of-the-batch-updated-list-of-top-13-premium-mkv-converter-apps-for-seamless-format-switching/"><u>Best of the Batch: Updated List of Top 13 Premium MKV Converter Apps for Seamless Format Switching!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/explore-our-top-5-preferred-video-editing-programs-for-creatives/"><u>Explore Our Top 5 Preferred Video Editing Programs for Creatives</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/metaverse-laughter-25plus-humorous-meme-ideas-to-share-online-for-2024/"><u>Metaverse Laughter 25+ Humorous Meme Ideas to Share Online for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-fostering-viewer-commitment-in-youtube-videos-for-2024/"><u>The Ultimate Guide to Fostering Viewer Commitment in YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unleash-creativity-with-youtube-clips-make-animation-gifs-easily-for-2024/"><u>Unleash Creativity with YouTube Clips - Make Animation GIFs Easily for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-audiences-crafting-youtube-trailers-via-filmora/"><u>[New] 2024 Approved Engaging Audiences Crafting YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-unlocking-the-potential-of-valheims-seed-varieties/"><u>[New] 2024 Approved Unlocking the Potential of Valheim's Seed Varieties</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-step-by-step-breakdown-creating-your-best-yt-shorts/"><u>[New] In 2024, A Step-by-Step Breakdown Creating Your Best YT Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-how-to-add-youtube-annotations-and-cards/"><u>[New] In 2024, How to Add YouTube Annotations and Cards?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlisted-youtube-explained-beyond-the-main-channels/"><u>[New] Unlisted YouTube Explained Beyond the Main Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-engineering-endgame-echoes/"><u>[Updated] 2024 Approved Engineering Endgame Echoes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-affordable-tactics-for-combining-media-with-literature-for-2024/"><u>[Updated] Affordable Tactics for Combining Media with Literature for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/1722113037243-can-interacting-with-chatgpt-on-the-job-lead-to-termination-a-closer-look-at-10-situations/"><u>Can Interacting with ChatGPT on the Job Lead to Termination? A Closer Look at 10 Situations</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/erase-iphone-data-on-your-own-easy-diy-techniques-unveiled/"><u>Erase iPhone Data on Your Own: Easy DIY Techniques Unveiled</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-vivo-s18-pro-devices-by-drfone-android/"><u>How to Reset Gmail Password on Vivo S18 Pro Devices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-asus-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Asus Phone Screen?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-samsung-galaxy-m34-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Samsung Galaxy M34 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-ultimate-watchlist-youtubes-greatest-hits/"><u>In 2024, Ultimate Watchlist YouTube's Greatest Hits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-how-iphoneipad-users-can-upload-youtube-videos-for-2024/"><u>The Ultimate Guide How iPhone/iPad Users Can Upload YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-playbook-for-earning-via-youtube-shorts-for-2024/"><u>The Ultimate Playbook for Earning via YouTube Shorts for 2024</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/top-screen-recorder-para-windows-11-8-y-7-como-capturar-totalmente-su-pantalla/"><u>Top Screen Recorder Para Windows 11, 8 Y 7: Cómo Capturar Totalmente Su Pantalla</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-x-without-passcode-easily-drfone-by-drfone-ios/"><u>Unlock iPhone X Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-ultimate-adobe-premiere-guide-6-tips-for-smoother-faster-edits/"><u>Updated In 2024, The Ultimate Adobe Premiere Guide 6 Tips for Smoother, Faster Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/visionary-storytelling-for-video-viewers-growth-for-2024/"><u>Visionary Storytelling for Video Viewers' Growth for 2024</u></a></li>
 </ul></div>
 

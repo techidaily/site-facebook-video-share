@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Creating Heartfelt YouTube Journeys for 2024"
-date: 2024-10-11T16:26:11.738Z
-updated: 2024-10-18T04:40:48.546Z
+date: 2024-10-17T16:27:18.749Z
+updated: 2024-10-23T18:03:56.709Z
 tags:
   - ai video
   - ai youtube
@@ -49,13 +49,6 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
@@ -65,10 +58,10 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
@@ -83,26 +76,26 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 10\.  YouTube Live/Webinar
@@ -114,6 +107,13 @@ YouTube live videos are probably the best ways to interact and share your story 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,18 +130,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-action-herogo-black-vs-star-sj7-camera/"><u>[New] 2024 Approved Action HeroGo Black Vs Star SJ7 Camera</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-2024-approved-from-setting-up-to-broadcasting-a-discoguide/"><u>[New] 2024 Approved From Setting Up to Broadcasting A DiscoGuide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earning-insights-average-adsense-earning-for-every-1000-youtube-views/"><u>[New] In 2024, Earning Insights Average AdSense Earning for Every 1,000 YouTube Views</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-camcraze-evaluation-excellence-beyond-one-brand/"><u>[Updated] In 2024, CamCraze Evaluation Excellence Beyond One Brand</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cementing-your-place-in-youtube-by-mastering-creative-studio-techniques/"><u>[Updated] In 2024, Cementing Your Place in YouTube by Mastering Creative Studio Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dismantling-the-shadowy-video-barrier-on-youtube/"><u>[Updated] In 2024, Dismantling the Shadowy Video Barrier on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-easiest-way-to-shorten-youtube-links-here-are-the-top-5-choices/"><u>[Updated] The Easiest Way to Shorten YouTube Links? Here Are the Top 5 Choices</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/champion-steadicams-for-uav-filmmaking-excellence/"><u>Champion Steadicams for UAV Filmmaking Excellence</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/create-visual-wonders-with-top-notch-video-enhancements-and-filter-tricks/"><u>Create Visual Wonders with Top-Notch Video Enhancements & Filter Tricks</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/fix-unidentified-graphics-device/"><u>Fix: Unidentified Graphics Device</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/funf-problemlosungen-wie-sie-zugang-zu-den-windows-sicherheitsfunktionen-auf-windows-11-gewinnen/"><u>Fünf Problemlösungen: Wie Sie Zugang Zu Den Windows-Sicherheitsfunktionen Auf Windows 11 Gewinnen</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-htc-u23-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove HTC U23 Pro Fingerprint Lock</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/transform-your-asmr-experience-into-proficiently-produced-videos-for-2024/"><u>Transform Your ASMR Experience Into Proficiently Produced Videos for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-advanced-techniques-for-voice-to-text-transcription-in-whatsapp/"><u>[New] 2024 Approved Advanced Techniques for Voice-to-Text Transcription in WhatsApp</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breaking-the-mold-pushing-a-video-into-hot-water/"><u>[New] In 2024, Breaking the Mold Pushing a Video Into Hot Water</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-shorts-a-beginners-guide/"><u>[New] YouTube Shorts A Beginner's Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-backwards-play-mastering-youtube-video-reversals-for-2024/"><u>[Updated] Backwards Play Mastering YouTube Video Reversals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-tos-selecting-free-powerful-iphoneipad-edits/"><u>[Updated] How-To's Selecting Free, Powerful iPhone/iPad Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-high-fidelity-webcams-for-professional-podcasting/"><u>[Updated] In 2024, High-Fidelity Webcams for Professional Podcasting</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-master-the-art-of-attraction-8-proven-techniques-for-reel-success/"><u>[Updated] In 2024, Master the Art of Attraction 8 Proven Techniques for Reel Success</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gamers-graphically-glorious-reviews/"><u>In 2024, GAMER'S GRAPHICALLY GLORIOUS REVIEWS</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/panasonic-hx-a1-wearable-action-camera-review/"><u>Panasonic HX-A1 Wearable Action Camera Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unleashing-creativity-writing-scripts-for-youtube-content-excellence/"><u>Unleashing Creativity Writing Scripts for YouTube Content Excellence</u></a></li>
 </ul></div>
 

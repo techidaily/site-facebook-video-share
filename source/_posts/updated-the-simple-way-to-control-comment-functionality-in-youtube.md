@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-10-15T19:59:10.196Z
-updated: 2024-10-17T20:39:08.250Z
+date: 2024-10-19T23:04:06.186Z
+updated: 2024-10-23T19:08:22.353Z
 tags:
   - ai video
   - ai youtube
@@ -91,10 +91,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -117,20 +117,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -150,10 +143,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -170,6 +163,13 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -185,18 +185,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-tips-for-professional-youtube-content-creation/"><u>[New] 2024 Approved Cutting-Edge Tips for Professional YouTube Content Creation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-streams-using-youtubes-av1-settings/"><u>[Updated] 2024 Approved Elevate Streams Using YouTube's AV1 Settings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-captivating-yt-cover-art-for-maximum-traffic/"><u>[Updated] In 2024, Captivating YT Cover Art for Maximum Traffic</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-illustrator-guide-to-dynamic-text-art/"><u>2024 Approved The Illustrator Guide to Dynamic Text Art</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/expert-advice-top-6-solutions-to-increase-game-speed-on-escape-from-tarkov/"><u>Expert Advice: Top 6 Solutions to Increase Game Speed on Escape From Tarkov</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/flv-to-mjpeg-free-online-converter-by-movavi/"><u>FLV to MJPEG: Free Online Converter by Movavi</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-instagram-storytelling-using-videos-effectively/"><u>In 2024, Instagram Storytelling Using Videos Effectively</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-tricks-for-snagging-youtube-dialogues/"><u>In 2024, Tricks for Snagging YouTube Dialogues</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-how-to-slice-3gp-videos-into-smaller-clips-2023-tutorial/"><u>New 2024 Approved How to Slice 3GP Videos Into Smaller Clips 2023 Tutorial</u></a></li>
-<li><a href="https://win-blog.techidaily.com/pc-troubleshooting-for-fireteam-elite-stabilizing-the-alien-adventure-experience/"><u>PC Troubleshooting for 'Fireteam Elite': Stabilizing the Alien Adventure Experience</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/personalize-with-free-youtube-profile-designs-for-2024/"><u>Personalize With FREE YouTube Profile Designs for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-10-soundscape-enhancers-for-all-os-types-for-2024/"><u>Top 10 Soundscape Enhancers for All OS Types for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtubers-unleashed-a-guide-to-creating-memorable-music-reaction-vids-for-2024/"><u>Youtubers Unleashed A Guide to Creating Memorable Music Reaction Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-look-expert-tutorials-for-everyone-for-2024/"><u>[New] Elevating Your Look Expert Tutorials for Everyone for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-your-gameplay-on-youtube-with-these-essential-tags/"><u>[Updated] 2024 Approved Elevating Your Gameplay on YouTube with These Essential Tags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-avoiding-files-enjoying-animated-gifs-youtube-video-mastery-for-2024/"><u>[Updated] Avoiding Files, Enjoying Animated GIFs YouTube Video Mastery for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-beginning-your-blog-journey-for-financial-gain-for-2024/"><u>[Updated] Beginning Your Blog Journey for Financial Gain for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-epic-entertainment-a-rundown-of-hilarious-youtuber-hits/"><u>2024 Approved Epic Entertainment A Rundown of Hilarious YouTuber Hits</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capturing-stunning-hdr-portraits-step-by-step-instructions-for-2024/"><u>Capturing Stunning HDR Portraits Step-by-Step Instructions for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/effortless-visual-transitions-using-instagram-chroma-keying/"><u>Effortless Visual Transitions Using Instagram Chroma Keying</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-13-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer Data from Apple iPhone 13 to New iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-motorola-moto-g24-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Motorola Moto G24 FRP</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Phone Now with These Tips</u></a></li>
 </ul></div>
 

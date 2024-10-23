@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Free Templates for Dynamic YouTube Channel Closures"
-date: 2024-10-14T02:00:25.432Z
-updated: 2024-10-17T17:02:55.049Z
+date: 2024-10-18T18:14:08.235Z
+updated: 2024-10-23T19:02:26.905Z
 tags:
   - ai video
   - ai youtube
@@ -85,25 +85,11 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -115,6 +101,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -124,10 +117,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
@@ -143,13 +136,20 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,20 +166,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-convert-your-streaming-top-free-video-to-audio-tools/"><u>[New] 2024 Approved Convert Your Streaming Top Free Video to Audio Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-innovative-naming-strategies-elevating-your-filmora-channels-identity/"><u>[New] Innovative Naming Strategies Elevating Your Filmora Channels' Identity</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discover-the-top-8-cost-free-videography-suites-for-digital-filmmakers/"><u>[Updated] 2024 Approved Discover the Top 8 Cost-Free Videography Suites for Digital Filmmakers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-pixel-prodigies-top-10-gaming-ladies-on-yt/"><u>[Updated] Pixel Prodigies Top 10 Gaming Ladies on YT</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-tailored-broadcasting-strategies-for-various-platforms-yt-fb-twitch/"><u>[Updated] Tailored Broadcasting Strategies for Various Platforms (YT, FB, Twitch)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-youtubes-top-unboxing-houses-and-their-fanbase/"><u>[Updated] YouTube’s Top Unboxing Houses and Their Fanbase</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-zippy-zenith-the-quickest-youtube-playlist-share/"><u>2024 Approved Zippy Zenith The Quickest Youtube Playlist Share</u></a></li>
-<li><a href="https://extra-information.techidaily.com/achieving-fluidity-in-audio-blending-using-audacity-tools-for-2024/"><u>Achieving Fluidity in Audio Blending Using Audacity Tools for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-12-mini-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone 12 mini in Lost Mode</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-use-android-phones-in-watching-vr-or-360-videos/"><u>In 2024, How to Use Android Phones in Watching VR or 360 Videos</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-ultimate-iphone-selfie-sticks-8/"><u>In 2024, Unveiling the Ultimate IPhone Selfie Sticks (#8)</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mastering-nier-automata-on-your-computer-overcome-stutter-and-lag-problems-today/"><u>Mastering Nier: Automata on Your Computer - Overcome Stutter and Lag Problems Today!</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/safe-techniques-for-extracting-and-converting-youtube-audio-into-mp3-for-2024/"><u>Safe Techniques for Extracting and Converting YouTube Audio Into MP3 for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-infinix-zero-30-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Infinix Zero 30 5G</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-havit-5-in-one-laptop-cooler-evaluation-effective-heat-management-with-five-dynamic-fans/"><u>Ultimate HAVIT 5-In-One Laptop Cooler Evaluation: Effective Heat Management with Five Dynamic Fans</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-beginners-essential-guide-to-youtube-video-editing-magic/"><u>[New] 2024 Approved Beginner’s Essential Guide to YouTube Video Editing Magic</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-adding-pictures-to-instagram-with-ease/"><u>[New] Adding Pictures to Instagram with Ease</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-innovative-shooting-the-best-cinematographic-tips-and-ideas/"><u>[New] In 2024, Innovative Shooting The Best Cinematographic Tips & Ideas</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-strategic-use-of-tags-a-guide-to-youtube-success/"><u>[New] The Strategic Use of Tags A Guide to YouTube Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transforming-viewers-experience-best-youtube-end-screens/"><u>[New] Transforming Viewers' Experience Best Youtube End Screens</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-an-intro-to-discovering-youtube-studio-content-creators-dreamland/"><u>[Updated] 2024 Approved An Intro to Discovering YouTube Studio Content Creator's Dreamland</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-guide-to-youtube-video-resolutions-and-aspects/"><u>[Updated] 2024 Approved Essential Guide to YouTube Video Resolutions & Aspects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-youtube-creativity-ideal-concepts-and-themes-for-channels-for-2024/"><u>[Updated] Elevating YouTube Creativity Ideal Concepts and Themes for Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-chart-a-course-to-higher-views-with-top-optimization-tactics/"><u>[Updated] In 2024, Chart a Course to Higher Views with Top Optimization Tactics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-premium-cloud-storage-services-a-guides-choice/"><u>2024 Approved Premium Cloud Storage Services A Guide's Choice</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-vivo-v29-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-within.techidaily.com/comprehensive-service-offerings-overview/"><u>Comprehensive Service Offerings Overview</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elite-quad-pack-of-superior-4k-video-gear/"><u>Elite Quad Pack of Superior 4K Video Gear</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-power-play-joining-a-music-company-network-in-the-age-of-streaming-for-2024/"><u>The Power Play Joining a Music Company Network in the Age of Streaming for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-computer-chronicles-a-journey-through-hardware-excellence/"><u>Tom's Computer Chronicles: A Journey Through Hardware Excellence</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723211510886-video-not-showing-follow-these-simple-steps-to-solve-the-problem/"><u>Video Not Showing? Follow These Simple Steps to Solve the Problem!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/vlog-versus-channels-choosing-between-obs-and-twitch/"><u>Vlog Versus Channels Choosing Between OBS & Twitch</u></a></li>
 </ul></div>
 

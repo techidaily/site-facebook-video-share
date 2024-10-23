@@ -1,7 +1,7 @@
 ---
 title: Common Causes and Solutions for Metro Exodus Game Crashes on Desktops
-date: 2024-10-16T02:02:19.931Z
-updated: 2024-10-17T17:23:58.825Z
+date: 2024-10-17T18:14:37.343Z
+updated: 2024-10-23T17:22:18.649Z
 tags:
   - win11
   - win10
@@ -57,10 +57,10 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/3-2-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Launch Hearthstone to see if the problem reappears. If yes, continue to the next fix.
@@ -83,13 +83,6 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/7-1-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)** Click the**Update** button next to the flagged graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the**FREE version** ).
 
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)
@@ -104,6 +97,13 @@ There are two ways you can update the graphics driver:
  Now check if your Hearthstone runs normally. If not, proceed to the next solution.
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3 – Scan and repair game files
 
@@ -136,10 +136,10 @@ There are two ways you can update the graphics driver:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5 – Delete the Hearthstone folder
@@ -154,16 +154,22 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/8-2-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Relaunch Hearthstone to see if you get rid of the crashing issue. If not, keep reading the next fix.
 
 ---
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 6 – Perform a clean boot
 
@@ -172,6 +178,13 @@ There are two ways you can update the graphics driver:
 **1)** Type**system configuration** in the search bar, and click**System Configuration** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-1-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **2)** Select the**Services** tab. Then, check**Hide all Microsoft services** , and click**Disable all** .
 
@@ -183,15 +196,22 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-2-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **4)** Select the**Startup** tab. Then, right click each enabled startup item and click**Disable** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **5)** Go back to the System Configuration window, and click**OK** .
@@ -220,16 +240,16 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/9-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Your computer will start normally after you finish this step. If the crashing issue persists, we’ve got a last fix for you.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 7 – Reinstall Hearthstone
 
@@ -239,23 +259,9 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/6-1-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **2)** Select**Yes, Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/6-2-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **3)** Download the latest version of Hearthstone and double click the downloaded file to install it.
 
@@ -282,19 +288,17 @@ There are two ways you can update the graphics driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-audio-visual-caption-builder/"><u>[New] 2024 Approved Audio Visual Caption Builder</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-a-comprehensive-guide-to-the-12-superior-vlogging-cameras-for-2024/"><u>[New] A Comprehensive Guide to the 12 Superior Vlogging Cameras for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-8-youtube-fitness-hacks-that-energize-audiences/"><u>[Updated] In 2024, Exploring 8 YouTube Fitness Hacks That Energize Audiences</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-masterclass-in-length-management-youtube-vids/"><u>[Updated] Masterclass in Length Management YouTube Vids</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-stepwise-strategies-to-make-a-stellar-youtube-opening-sequence/"><u>[Updated] Stepwise Strategies to Make a Stellar YouTube Opening Sequence</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-master-your-media-on-vimeo-with-top-ranked-editors/"><u>2024 Approved Master Your Media on Vimeo with Top-Ranked Editors</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-outro-crafting-made-easy-the-best-free-guide-top-6/"><u>2024 Approved Outro Crafting Made Easy - The Best Free Guide (Top 6)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/hevc-h2/"><u>HEVC H.2</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-note-30-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Note 30 Pro to New Android? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Vivo V29? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/securing-your-videos-on-facebook-pc-plus-android-methods-for-2024/"><u>Securing Your Videos on Facebook PC + Android Methods for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-essential-guide-to-high-quality-audio-capture-sans-microphone-for-2024/"><u>The Essential Guide to High-Quality Audio Capture Sans Microphone for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-apple-ipad-pro-11-screen-201e-top-tablet-picks-for-tech-enthusiasts/"><u>Ultimate Guide: Apple iPad Pro (11 Screen) 201E - Top Tablet Picks for Tech Enthusiasts</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/whats-new-in-ipados-18-official-release-dates-cost-free-accessibility-enhanced-capabilities-and-fresh-announcements-revealed/"><u>What's New in iPadOS 18? - Official Release Dates, Cost-Free Accessibility, Enhanced Capabilities & Fresh Announcements Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-20-essentials-every-new-creator-should-own-for-2024/"><u>[New] 20 Essentials Every New Creator Should Own for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/iggle-gallery-exploring-the-best-15-hilarious-video-picks/"><u>[New] Giggle Gallery Exploring the Best 15 Hilarious Video Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cost-effective-strategies-to-combine-videos-with-text/"><u>[New] In 2024, Cost-Effective Strategies to Combine Videos with Text</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-mastering-nba-livestream-a-list-of-15-essentials/"><u>[New] Mastering NBA Livestream A List of 15 Essentials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-free-youtube-playlist-downloaders-onlinepcandroidios2/"><u>[Updated] In 2024, 10 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]2</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dominate-youtube-with-effective-content-strategies/"><u>[Updated] In 2024, Dominate YouTube with Effective Content Strategies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-layer-chords-over-ppt-slides/"><u>[Updated] Layer Chords over PPT Slides</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-11-economical-cameras-for-professional-vloggers/"><u>[Updated] Top 11 Economical Cameras for Professional Vloggers</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/choosing-a-sound-companion-how-google-nest-audio-stands-up-to-apples-homepod/"><u>Choosing a Sound Companion: How Google Nest Audio Stands Up to Apple's HomePod</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-invisible-realities-of-stories-a-closer-look-for-viewers/"><u>In 2024, Invisible Realities of Stories A Closer Look for Viewers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-multimedia-adding-apple-music-to-videos/"><u>Mastering Multimedia Adding Apple Music to Videos</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-the-ultimate-guide-to-motion-tracking-apps-on-mobile/"><u>New The Ultimate Guide to Motion Tracking Apps on Mobile</u></a></li>
 </ul></div>
 
