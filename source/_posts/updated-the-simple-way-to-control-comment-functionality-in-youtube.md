@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-10-19T23:04:06.186Z
-updated: 2024-10-23T19:08:22.353Z
+date: 2024-10-25T18:46:47.578Z
+updated: 2024-10-29T16:31:51.472Z
 tags:
   - ai video
   - ai youtube
@@ -91,10 +91,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -120,10 +120,10 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -143,10 +143,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -164,10 +164,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -185,15 +185,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-look-expert-tutorials-for-everyone-for-2024/"><u>[New] Elevating Your Look Expert Tutorials for Everyone for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-your-gameplay-on-youtube-with-these-essential-tags/"><u>[Updated] 2024 Approved Elevating Your Gameplay on YouTube with These Essential Tags</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-avoiding-files-enjoying-animated-gifs-youtube-video-mastery-for-2024/"><u>[Updated] Avoiding Files, Enjoying Animated GIFs YouTube Video Mastery for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-beginning-your-blog-journey-for-financial-gain-for-2024/"><u>[Updated] Beginning Your Blog Journey for Financial Gain for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-epic-entertainment-a-rundown-of-hilarious-youtuber-hits/"><u>2024 Approved Epic Entertainment A Rundown of Hilarious YouTuber Hits</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/capturing-stunning-hdr-portraits-step-by-step-instructions-for-2024/"><u>Capturing Stunning HDR Portraits Step-by-Step Instructions for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/effortless-visual-transitions-using-instagram-chroma-keying/"><u>Effortless Visual Transitions Using Instagram Chroma Keying</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-13-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer Data from Apple iPhone 13 to New iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-motorola-moto-g24-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Motorola Moto G24 FRP</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Phone Now with These Tips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-amd-gpu-update-analysis-and-installation/"><u>[New] 2024 Approved AMD GPU Update Analysis & Installation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-banishing-unwanted-green-in-mac-recorded-youtube-content/"><u>[New] 2024 Approved Banishing Unwanted Green in Mac-Recorded YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-10-yoga-channels-to-elevate-your-health-game-for-2024/"><u>[New] Essential 10 Yoga Channels to Elevate Your Health Game for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nside-the-worlds-most-successful-business-youtube-sites/"><u>[New] Inside the World's Most Successful Business YouTube Sites</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-soundscapes-for-phones-how-to-curate-tamil-ringtone-tracks/"><u>[New] Soundscapes for Phones How to Curate Tamil Ringtone Tracks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-by-step-3d-lut-application-in-photoshop-mastery/"><u>[New] Step-by-Step 3D LUT Application in Photoshop Mastery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-traversing-youtube-dialogue-pathways/"><u>[New] Traversing YouTube Dialogue Pathways</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-yt-loop-technique-for-the-digital-content-wanderer/"><u>[New] YT Loop Technique for the Digital Content Wanderer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-accelerating-engagement-with-optimized-youtube-video-speeds-for-2024/"><u>[Updated] Accelerating Engagement with Optimized YouTube Video Speeds for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-earning-on-youtube-a-step-by-step-guide-for-newbies/"><u>[Updated] In 2024, Earning on YouTube A Step-by-Step Guide for Newbies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-expert-tips-for-converting-your-favorite-videos-into-animated-shareable-gifs/"><u>[Updated] In 2024, Expert Tips for Converting Your Favorite Videos Into Animated, Shareable GIFs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-more-watchers-simple-youtube-growth-hacks/"><u>[Updated] Unlock More Watchers Simple YouTube Growth Hacks</u></a></li>
+<li><a href="https://win-web3.techidaily.com/windows-11-ssd-c/"><u>安全地将 Windows 11 系统在 SSD 上部署: 通过 C 驱动器克隆技术</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/amd-ryzen-nuc-ultra-compact-mini-pc-revolution-crystal-clear-4k-zenith-cpu-ryzen-amz-9-and-expansive-memorystorage-options/"><u>AMD Ryzen NUC Ultra-Compact Mini PC Revolution: Crystal Clear 4K, Zenith CPU (Ryzen Amz 9), and Expansive Memory/Storage Options!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-mini-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 13 mini 3 Ways To Unlock</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oneplus-open-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of OnePlus Open Phone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/leading-key-locator-gadgets-reviewed-2024-edition/"><u>Leading Key Locator Gadgets Reviewed: 2024 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/obs-and-youtube-a-beginners-live-stream-blueprint-for-2024/"><u>OBS and Youtube A Beginner's Live Stream Blueprint for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/talking-heads-visual-techniques-to-engage-audiences-for-2024/"><u>Talking Heads Visual Techniques to Engage Audiences for 2024</u></a></li>
 </ul></div>
 
