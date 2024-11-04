@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Countering Harshness  Maintaining Poise Online\""
-date: 2024-08-01T11:04:08.484Z
-updated: 2024-08-02T11:04:08.484Z
+date: 2024-10-27T19:25:06.423Z
+updated: 2024-11-03T16:49:54.801Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/7b53187b4430cc2c3cbe56db79b5743ab13bdfc8c
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/7b53187b4430cc2c3cbe56db79b5743ab13bdfc8c
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/7b53187b4430cc2c3cbe56db79b5743ab13bdfc8c
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,12 +60,43 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhance-visibility-editing-igtv-video-texts/"><u>[New] 2024 Approved Enhance Visibility Editing IGTV Video Texts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-digestible-vid-info-quick-start-for-2024/"><u>[New] Digestible Vid Info Quick Start for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-obs-and-shadowplay-which-streams-better-for-2024/"><u>[New] Obs and ShadowPlay - Which Streams Better for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-privacy-focused-instagram-story-insight-methodology/"><u>[New] Privacy-Focused Instagram Story Insight Methodology</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-streaming-tweets-on-whatsapp-a-2023-guide-for-2024/"><u>[New] Streaming Tweets on WhatsApp A 2023 Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-checklist-of-key-elements-in-tagging-a-video/"><u>[New] The Ultimate Checklist of Key Elements in Tagging a Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-erasing-extra-borders-for-smooth-youtube-playback/"><u>[Updated] 2024 Approved Erasing Extra Borders for Smooth YouTube Playback</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-dissecting-tseries-profits-from-youtube-platforms-for-2024/"><u>[Updated] Dissecting TSeries Profits From YouTube Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-go-global-with-music-transform-your-spotify-lists-into-youtube-videos/"><u>[Updated] Go Global with Music Transform Your Spotify Lists Into YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-first-steps-in-high-quality-youtubing/"><u>[Updated] Your First Steps in High-Quality YouTubing</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/enhanced-user-experience-with-the-integration-of-cookiebot-technology/"><u>Enhanced User Experience with the Integration of Cookiebot Technology</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-oppo-a56s-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Oppo A56s 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-mini-without-swiping-up-6-ways-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 12 mini Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-spice-up-viewers-innovative-cooking-channel-naming-tips/"><u>In 2024, Spice Up Viewers Innovative Cooking Channel Naming Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-pivotal-point-in-view-count-for-online-earning-for-2024/"><u>The Pivotal Point in View Count for Online Earning for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ultimate-guide-11-seo-strategies-for-youtube-video-ranking-for-2024/"><u>Ultimate Guide 11 SEO Strategies for YouTube Video Ranking for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

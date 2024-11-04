@@ -1,7 +1,7 @@
 ---
 title: "[New] YouTube's User Interface for Comment Management"
-date: 2024-09-30T16:18:07.967Z
-updated: 2024-10-05T22:28:56.984Z
+date: 2024-10-27T18:47:23.692Z
+updated: 2024-11-03T23:06:46.268Z
 tags:
   - ai video
   - ai youtube
@@ -91,10 +91,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -118,25 +118,31 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -156,10 +162,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -191,19 +197,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-your-content-best-practices-in-collaborative-youtube-outros/"><u>[New] 2024 Approved Amplify Your Content Best Practices in Collaborative YouTube Outros</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-discovering-the-least-expensive-cloud-storage-plans/"><u>[New] 2024 Approved Discovering the Least Expensive Cloud Storage Plans</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-optimal-cameras-for-puppet-film-projects/"><u>[New] 2024 Approved Optimal Cameras for Puppet Film Projects</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-who-youre-watching-6-quizzes-for-youtube-fans/"><u>[New] In 2024, Discover Who You're Watching 6 Quizzes for YouTube Fans</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audiophiles-guide-techniques-to-elevate-sound-recording/"><u>[Updated] 2024 Approved Audiophile's Guide Techniques to Elevate Sound Recording</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-comprehensive-guide-to-minecraft-live-streaming/"><u>[Updated] 2024 Approved Comprehensive Guide to Minecraft Live Streaming</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-building-your-youtube-empire-kit-overview-for-2024/"><u>[Updated] Building Your YouTube Empire Kit Overview for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-solvedhow-to-blur-faces-or-objects-in-youtube-videos-for-2024/"><u>[Updated] Solved How to Blur Faces or Objects in YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-sharing-showdown-20-decoding-the-platform-preferences-vimeo-youtubes-and-dailymotions/"><u>2024 Approved Video Sharing Showdown 2.0 Decoding the Platform Preferences - Vimeo, YouTubes & DailyMotions</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-to-oppo-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Oppo FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-detailed-dissection-straightforward-hdr-methods/"><u>In 2024, Detailed Dissection Straightforward HDR Methods</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-13-mini-drfone-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/joining-the-metaverse-comedy-club-top-20plus-memes-and-techniques-for-2024/"><u>Joining the Metaverse Comedy Club Top 20+ Memes & Techniques for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/transform-your-channels-views-with-strategic-insights-for-2024/"><u>Transform Your Channels Views with Strategic Insights for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-budget-conscious-broadcayers-guide-to-cheap-mics/"><u>[New] 2024 Approved Budget-Conscious Broadcayer's Guide to Cheap Mics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-many-videos-fit-in-64128gb-data-insight/"><u>[New] How Many Videos Fit In 64/128GB? Data Insight</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-quick-steps-to-nostalgic-facebook-story-viewing/"><u>[New] In 2024, Quick Steps to Nostalgic Facebook Story Viewing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-understanding-youtube-shorts-earning-potential/"><u>[New] Understanding YouTube Shorts Earning Potential</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-masterclass-crafting-engaging-openers-technique-1-and-2/"><u>[New] YouTube Masterclass Crafting Engaging Openers (Technique 1 & 2)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dive-into-the-world-of-youtuber-shorts/"><u>[Updated] 2024 Approved Dive Into the World of Youtuber Shorts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-best-free-screen-recorder-programs-with-no-trial-period/"><u>[Updated] Best Free Screen Recorder Programs with No Trial Period</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-finding-the-highlighted-online-discourse/"><u>[Updated] Finding the Highlighted Online Discourse</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-vmix-mover-for-apple-and-pcs/"><u>[Updated] VMix Mover for Apple and PCs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-meizu-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Meizu</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnose-and-fix-when-your-logitech-g430-mic-wont-work-anymore/"><u>Diagnose and Fix: When Your Logitech G430 Mic Won't Work Anymore</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/premium-screen-capturer-non-lagging-efficiency/"><u>Premium Screen Capturer Non-Lagging Efficiency</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-your-digital-footprint-efficient-channels-monikers-for-2024/"><u>Prime Your Digital Footprint Efficient Channels' Monikers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rank-higher-on-youtube-essential-seo-tips-unveiled-for-2024/"><u>Rank Higher on YouTube Essential SEO Tips Unveiled for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/reverse-charge-system-for-winx-dvd-tools-by-digitarty/"><u>Reverse Charge System for WinX DVD Tools by DigitArty</u></a></li>
+<li><a href="https://windows11.techidaily.com/techniques-to-unblock-application-packages-on-windows-servers/"><u>Techniques to Unblock Application Packages on Windows Servers</u></a></li>
 </ul></div>
 

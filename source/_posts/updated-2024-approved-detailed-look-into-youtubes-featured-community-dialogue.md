@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Detailed Look Into YouTube's Featured Community Dialogue\""
-date: 2024-10-06T06:45:28.679Z
-updated: 2024-10-11T17:55:38.589Z
+date: 2024-11-02T20:09:37.687Z
+updated: 2024-11-03T17:50:23.109Z
 tags:
   - ai video
   - ai youtube
@@ -55,10 +55,10 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: What Does The Highlighted Comment Look Like?
@@ -67,15 +67,22 @@ YouTube has been working on improving the navigation of the comment section for 
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -94,21 +101,7 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -162,6 +155,13 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -177,18 +177,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-comprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility/"><u>[New] 2024 Approved Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rafting-the-ideal-youtube-playlist-an-easy-step-by-step-method-for-2024/"><u>[New] Crafting the Ideal YouTube Playlist An Easy, Step-by-Step Method for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-the-jargon-what-mcns-mean-for-you/"><u>[New] In 2024, Decoding the Jargon What MCNs Mean for You</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-selfie-validation-is-it-essential-for-instagram-users-for-2024/"><u>[New] Selfie Validation Is It Essential for Instagram Users for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-powerful-path-to-stellar-videos-top-free-intro-makers/"><u>[New] The Powerful Path to Stellar Videos Top Free Intro Makers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-hottest-fifa-football-content-on-youtube/"><u>[Updated] Unveiling Hottest FIFA Football Content on YouTube</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/audio-malfunction-post-windows-11-update-easy-solutions-unveiled/"><u>Audio Malfunction Post-Windows 11 Update? Easy Solutions Unveiled!</u></a></li>
-<li><a href="https://article-files.techidaily.com/best-tablet-gear-beyond-the-hype-a-must-try-photo-editing-list-for-2024/"><u>Best Tablet Gear Beyond the Hype A Must-Try Photo Editing List for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-dynamic-youtube-music-chains-for-2024/"><u>Building Dynamic YouTube Music Chains for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-cookiebot-drives-engagement-through-dynamic-web-customization/"><u>How Cookiebot Drives Engagement Through Dynamic Web Customization</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-meizu-21-pro-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Meizu 21 Pro Phone without Any Data Loss</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Vivo Y100? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/praktik-restorasi-data-drive-c-step-by-step-for-windows-operating-systems-7-8-10-11/"><u>Praktik Restorasi Data Drive C Step by Step for Windows Operating Systems (7, 8, 10, 11)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-tips-for-turning-off-automatic-podcast-adds-on-spotify/"><u>[New] 2024 Approved Tips for Turning Off Automatic Podcast Adds on Spotify</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-voices-for-change-highlighting-influential-ladies-on-youtube/"><u>[New] Voices for Change Highlighting Influential Ladies on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-best-mac-programming-options-excluding-bandicam/"><u>[Updated] Best Mac Programming Options Excluding Bandicam</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-disrupt-bot-patterns-for-natural-viewer-increase-for-2024/"><u>[Updated] Disrupt Bot Patterns for Natural Viewer Increase for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-flavor-leaders-must-watch-culinary-youtube-stars/"><u>[Updated] Flavor Leaders Must-Watch Culinary YouTube Stars</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insta-growth-hacks-todays-essential-hashtags-guide/"><u>[Updated] Insta Growth Hacks Today's Essential Hashtags Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-must-have-programs-for-youtube-video-downloads/"><u>[Updated] Must-Have Programs for YouTube Video Downloads</u></a></li>
+<li><a href="https://techtrends.techidaily.com/best-6-educational-apps-for-boosting-your-childs-learning-experience-and-helping-parents/"><u>Best 6 Educational Apps for Boosting Your Child's Learning Experience & Helping Parents</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stepwise-strategies-for-unique-youtube-openers-for-2024/"><u>Stepwise Strategies for Unique YouTube Openers for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/ultimate-guide-extracting-high-quality-audio-from-videos/"><u>Ultimate Guide: Extracting High-Quality Audio From Videos</u></a></li>
 </ul></div>
 
