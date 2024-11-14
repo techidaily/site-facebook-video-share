@@ -1,7 +1,7 @@
 ---
 title: "Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
-date: 2024-10-31T02:18:53.568Z
-updated: 2024-11-03T17:03:07.279Z
+date: 2024-11-12T02:57:40.709Z
+updated: 2024-11-13T01:55:01.610Z
 categories:
   - BestProducts
 description: "This Article Describes Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
@@ -39,15 +39,22 @@ Lifewire / Jeremy Laukkonen
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Extollo LANSocket 1500 Powerline Adapter
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -75,14 +82,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/RdkUagNDw_OXvrfwGOGMOW0T13A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215_06-4afb73694c464ec8a21e45d7f8ad3327.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
@@ -97,6 +104,13 @@ Lifewire / Jeremy Laukkonen
  Despite their large size, the LANSocket 1500 adapters are relatively plain in design. They include three indicator lights on the front, an Ethernet jack on the bottom, and a sync button on one side. They also include a lot of vents due to how hot these units tend to run during operation.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -119,6 +133,13 @@ Lifewire / Jeremy Laukkonen
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -150,25 +171,11 @@ Lifewire / Jeremy Laukkonen
 
  The embedded Linux distro does open up some security concerns, but they can be mostly erased if you connect through a firewalled router. You can find cheaper options, but the bottom line is that you won’t find a cheaper alternative that provides the same high speed, low latency, video buffering, and pass-through socket that you get with the LANSocket 1500.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Decent price for such good performance**
 
  The Extollo LANSocket 1500 has an MSRP of $90 for a set of two. That places these adapters right in the same general price range as other similar devices. You can find HomePlug AV2 compatible adapters for a little less, but they typically don’t perform quite as well.
 
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Wins on transfer speeds with some security concerns**
 
@@ -191,19 +198,6 @@ Lifewire / Jeremy Laukkonen
  **Buy this powerline adapter kit, but secure it behind a firewall.**
 
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -235,22 +229,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-youtube-end-screen-templates-for-content-makers/"><u>[New] 2024 Approved Essential YouTube End Screen Templates for Content Makers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-audio-upheavals-top-rhythmic-disruptors-for-devices-for-2024/"><u>[New] Audio Upheavals Top Rhythmic Disruptors for Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>[New] Best 10 YouTube Volume Boosters for Windows, MacOS, Android and iPhone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/issolving-details-techniques-to-anonymize-youtube-media/"><u>[New] Dissolving Details Techniques to Anonymize YouTube Media</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-expert-tips-for-optimizing-your-srt-setup/"><u>[New] Expert Tips for Optimizing Your SRT Setup</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-troubleshooting-pip-connectivity-on-apple-gadgets-for-2024/"><u>[New] Troubleshooting PIP Connectivity on Apple Gadgets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-youtube-live-with-high-quality-webcam-cameras/"><u>[Updated] 2024 Approved Elevating YouTube Live with High-Quality Webcam Cameras</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-strategies-for-profitable-youtube-videos/"><u>[Updated] 2024 Approved Essential Strategies for Profitable YouTube Videos</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-highlight-hubs-choosing-the-right-online-aids/"><u>[Updated] Highlight Hubs Choosing the Right Online Aids</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-affordable-methods-for-video-and-text-synergy/"><u>[Updated] In 2024, Affordable Methods for Video and Text Synergy</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-step-into-the-world-of-chroma-keying-youtubes-guide-to-green-screens/"><u>[Updated] Step Into the World of Chroma Keying – YouTube's Guide to Green Screens</u></a></li>
-<li><a href="https://fox-that.techidaily.com/effective-techniques-for-draining-moisture-in-iphone-audio-ports/"><u>Effective Techniques for Draining Moisture in iPhone Audio Ports</u></a></li>
-<li><a href="https://techtrends.techidaily.com/explore-our-picks-7-prime-alarm-clock-software-for-your-device/"><u>Explore Our Picks: 7 Prime Alarm Clock Software for Your Device</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-beginners-guide-to-joining-facebook/"><u>In 2024, The Beginner's Guide to Joining Facebook</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-infinix-note-30i-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Infinix Note 30i</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-hilarious-side-of-iphones/"><u>The Hilarious Side of iPhones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlocking-profitability-on-youtube-shorts-essentials-and-future-earning-prospects-for-2024/"><u>Unlocking Profitability on Youtube Shorts Essentials and Future Earning Prospects for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cut-the-cord-clutter-simultaneous-playthrough-of-videos/"><u>[New] 2024 Approved Cut the Cord Clutter Simultaneous Playthrough of Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-boost-online-presence-innovative-youtube-channel-names/"><u>[New] In 2024, Boost Online Presence Innovative YouTube Channel Names</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-your-channels-ranking-simple-strategies-unveiled/"><u>[New] In 2024, Elevating Your Channel's Ranking Simple Strategies Unveiled</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-how-to-cut-off-and-terminate-your-tiktok-identity/"><u>[New] In 2024, How to Cut Off and Terminate Your TikTok Identity</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-streamlining-your-gaming-experience-windows-11-edition/"><u>[New] Streamlining Your Gaming Experience Windows 11 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-path-to-youtube-stardom-3-strategies-for-captivating-reaction-videos/"><u>[New] Your Path to YouTube Stardom 3 Strategies for Captivating Reaction Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-steps-to-directly-share-videos-from-iphoneipad/"><u>[Updated] 2024 Approved Easy Steps to Directly Share Videos From iPhone/iPad</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-downloading-standardized-youtube-images-with-ease-and-precision-for-2024/"><u>[Updated] Downloading Standardized Youtube Images with Ease & Precision for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expose-your-guide-to-finding-censored-youtube-clips-for-2024/"><u>[Updated] Exposé Your Guide to Finding Censored YouTube Clips for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tweeted-to-fame-identifying-2023s-most-shared-content/"><u>[Updated] In 2024, Tweeted to Fame Identifying 2023'S Most Shared Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-learn-youtube-video-ad-building-at-no-cost/"><u>[Updated] Learn YouTube Video Ad Building at No Cost</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-high-visibility-features-mastering-snapchats-star/"><u>2024 Approved High-Visibility Features Mastering Snapchat's Star</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-the-ultimate-comparison-top-screen-recorders-focusing-on-recmeister/"><u>2024 Approved The Ultimate Comparison Top Screen Recorders, Focusing on Recmeister</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beat-the-competition-macs-7-best-speech-to-text-apps-explored/"><u>Beat the Competition Mac's 7 Best Speech-to-Text Apps Explored</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-zte-axon-40-lite-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best ZTE Axon 40 Lite Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-through-the-world-of-patch-tuesday-insights-into-monthly-security-fixes/"><u>Navigating Through the World of Patch Tuesday: Insights Into Monthly Security Fixes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transforming-your-videos-for-igtv-excellence-3-methods-for-2024/"><u>Transforming Your Videos for IGTV Excellence (3 Methods) for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/unlock-your-view-best-bargain-cam-recording-apps/"><u>Unlock Your View Best Bargain Cam Recording Apps</u></a></li>
 </ul></div>
 

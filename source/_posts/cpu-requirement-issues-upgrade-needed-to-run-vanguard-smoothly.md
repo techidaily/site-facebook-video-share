@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2024-11-01T00:08:41.000Z
-updated: 2024-11-03T23:13:23.901Z
+date: 2024-11-10T19:56:42.571Z
+updated: 2024-11-12T21:08:18.823Z
 tags:
   - win11
   - win10
@@ -37,6 +37,19 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 4. [**Lower in-game graphics settings**](https://tools.techidaily.com/drivereasy/download/)
 5. [**Turn off unnecessary programs**](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 1: Check your home network
 
  A bad network connection can often cause your game to freeze, lag or even crash, so you may want to**restart your network** by turning off your modem and router for at least 20 seconds then turning them back on.
@@ -58,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 **2)** Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
@@ -84,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_15-35-03.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **3)**  After the process is complete, click**Optimize** .
@@ -107,35 +127,21 @@ Your game still freezes? Try the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
 
 If your issue persists, then move on to the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 5: Turn off unnecessary programs
 
@@ -174,18 +180,19 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-compact-obs-setup-for-underpriced-pcs/"><u>[New] Compact OBS Setup for Underpriced PCs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-student-focused-historical-yt-series/"><u>[New] In 2024, Best Student-Focused Historical YT Series</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-lg-27ud88-w-4k-usb-type-c-monitor-complete-review/"><u>[New] LG 27UD88-W 4K USB Type-C Monitor Complete Review</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-intova-x-visionary-action-camera-unveiled-today/"><u>[Updated] 2024 Approved Intova X Visionary Action Camera Unveiled Today</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-ever-fading-memories-revived-youtubes-lost-content-hunt-for-2024/"><u>[Updated] Ever-Fading Memories Revived YouTube's Lost Content Hunt for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-add-text-to-youtube-video-before-or-after-uploading/"><u>[Updated] How to Add Text to YouTube Video Before or After Uploading</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-common-issues-with-youtube-shorts-thumbnails/"><u>[Updated] In 2024, Common Issues with YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unveiling-secrets-for-instagram-chat-success/"><u>[Updated] Unveiling Secrets for Instagram Chat Success</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-use-luts-in-premiere-pro/"><u>2024 Approved How To Use LUTs In Premiere Pro</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-originality-is-chatgpt-prone-to-copying-content/"><u>Exploring Originality: Is ChatGPT Prone to Copying Content?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-yields-mastering-the-art-of-viral-hashtag-use/"><u>In 2024, YouTube Yields Mastering the Art of Viral Hashtag Use</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/sustainable-growth-developing-a-long-term-personal-brand-on-youtube-for-2024/"><u>Sustainable Growth Developing a Long-Term Personal Brand on YouTube for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-podcasts-of-22-comprehensive-review-and-ratings/"><u>Top Podcasts of '22 - Comprehensive Review & Ratings</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-adventure-essentials-ultimate-guide-to-1-10-gopro-protectors/"><u>[New] In 2024, Adventure Essentials - Ultimate Guide to #1-10 GoPro Protectors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-ultimate-video-guide-from-youtube-to-twitter/"><u>[New] In 2024, Ultimate Video Guide From YouTube to Twitter</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-year-of-infographics-top-social-trends-explored/"><u>[New] The Year of Infographics Top Social Trends Explored</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-ultimate-instagram-photography-guide-for-crafting-perfect-covers/"><u>[Updated] 2024 Approved The Ultimate Instagram Photography Guide for Crafting Perfect Covers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-advice-incorporating-narrative-elements-into-youtube-videos-for-2024/"><u>[Updated] Expert Advice Incorporating Narrative Elements Into YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-youtube-earning-predictors/"><u>[Updated] Free YouTube Earning Predictors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>[Updated] Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubers-edge-the-ultimate-guide-to-apps-for-short-form-edits/"><u>[Updated] Youtubers' Edge The Ultimate Guide to Apps for Short Form Edits</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-beyond-ustream-live-streaming-choices/"><u>2024 Approved Beyond Ustream Live Streaming Choices</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/comparing-amd-and-intel-cpus-top-picks-for-running-efficient-virtual-machines/"><u>Comparing AMD and Intel CPUs – Top Picks for Running Efficient Virtual Machines</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-y36-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y36 Phone that is Locked?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-6s-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 6s</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-webm-to-mp4-conversion-made-simple-top-10-software-for-2024/"><u>Updated WebM to MP4 Conversion Made Simple Top 10 Software for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/zero-cost-downloads-for-high-quality-audios-discover-this-list-of-23-tools-for-2024/"><u>Zero Cost Downloads for High-Quality Audios Discover This List of 23 Tools for 2024</u></a></li>
 </ul></div>
 

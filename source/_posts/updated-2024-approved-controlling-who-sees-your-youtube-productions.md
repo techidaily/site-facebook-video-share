@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Controlling Who Sees Your Youtube Productions\""
-date: 2024-10-30T20:06:57.559Z
-updated: 2024-11-03T23:46:07.072Z
+date: 2024-11-06T00:39:38.275Z
+updated: 2024-11-13T12:09:04.965Z
 tags:
   - ai video
   - ai youtube
@@ -60,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -77,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -85,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -92,16 +99,10 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -110,20 +111,13 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,20 +135,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-best-practices-for-designing-an-engaging-youtube-teaser-for-2024/"><u>[New] Best Practices for Designing an Engaging YouTube Teaser for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-mobilizing-money-a-complete-guide-to-youtubes-revenue-features/"><u>[New] Mobilizing Money A Complete Guide to YouTube's Revenue Features</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-zippy-zenith-the-quickest-youtube-playlist-share/"><u>[New] Zippy Zenith The Quickest Youtube Playlist Share</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-fortnite-thumbnail-in-30-seconds/"><u>[Updated] How to Make Fortnite Thumbnail in 30 Seconds</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-youtube-tips-for-teachers/"><u>[Updated] In 2024, 10 YouTube Tips for Teachers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-guide-for-creating-channel-trailers-that-convert-viewers-into-customers/"><u>[Updated] In 2024, A Step-by-Step Guide for Creating Channel Trailers that Convert Viewers Into Customers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-your-visual-language-with-these-youtube-theme-makers/"><u>[Updated] Unleash Your Visual Language with These YouTube Theme Makers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-insights-on-how-youtube-handles-uploaded-videos/"><u>2024 Approved Insights on How YouTube Handles Uploaded Videos</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-realme-c67-5g-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-vivo-y200-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comparing-conversational-ai-chatgpt-vs-googles-bard-who-wins/"><u>Comparing Conversational AI: ChatGPT Vs. Google's Bard - Who Wins?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/enhance-post-strategy-with-these-top-8-ios-and-android-planners/"><u>Enhance Post Strategy with These Top 8 iOS & Android Planners</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/guide-pratique-comment-fermer-correctement-un-fichier-en-codevant-dun-logiciel/"><u>Guide Pratique : Comment Fermer Correctement Un Fichier En Codévant D'un Logiciel</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-apple-iphone-14-pro-max-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your Apple iPhone 14 Pro Max Apple ID and Apple Pay</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ever-fading-memories-revived-youtubes-lost-content-hunt-for-2024/"><u>[New] Ever-Fading Memories Revived YouTube's Lost Content Hunt for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-flip-the-script-ios-method-to-reverse-vids-for-2024/"><u>[New] Flip the Script IOS Method to Reverse Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-10-best-mobile-edits-youtube-shorts-clips-on-iosandroid/"><u>[New] In 2024, 10 Best Mobile Edits YouTube Shorts Clips on iOS/Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-video-freedom-top-8-tools-transforming-youtube-into-avis/"><u>[New] Video Freedom Top 8 Tools Transforming YouTube Into Avis</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-understanding-facebook-reels-and-their-production-techniques/"><u>[Updated] 2024 Approved Understanding Facebook Reels and Their Production Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-asmr-videos-all-you-need-to-know-for-2024/"><u>[Updated] How to Make ASMR Videos All You Need to Know for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhance-video-reach-strategic-insights-into-youtubes-tag-system/"><u>[Updated] In 2024, Enhance Video Reach Strategic Insights Into YouTube's Tag System</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-scrutinizing-youtubes-top-viewed-community-inputs/"><u>[Updated] Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-subscriber-boost-the-4-simplest-tricks-to-grow-your-channel-faster/"><u>[Updated] YouTube Subscriber Boost – The 4 Simplest Tricks to Grow Your Channel Faster</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-discover-10-secret-followers-on-stories/"><u>2024 Approved Discover 10 Secret Followers on Stories</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-in-depth-oculus-quest-2-virtual-reality-experience/"><u>Affordable Excellence: In-Depth Oculus Quest 2 Virtual Reality Experience</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-samsung-galaxy-xcover-6-pro-tactical-edition-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Samsung Galaxy XCover 6 Pro Tactical Edition? Try These Fixes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-6s-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 6s Apple ID and Apple Pay</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-the-ultimate-list-efficient-mac-screen-recording-tools/"><u>In 2024, The Ultimate List Efficient Mac Screen Recording Tools</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-infinix-smart-7-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Infinix Smart 7 Device</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ultimate-viditech-review-for-2024/"><u>Ultimate VidiTech Review for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-path-to-beaming-beauty-expertise-starting-an-online-show-for-2024/"><u>Your Path to Beaming Beauty Expertise Starting an Online Show for 2024</u></a></li>
 </ul></div>
 

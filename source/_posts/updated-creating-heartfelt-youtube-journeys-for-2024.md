@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Creating Heartfelt YouTube Journeys for 2024"
-date: 2024-11-02T05:32:55.430Z
-updated: 2024-11-03T23:13:55.048Z
+date: 2024-11-09T09:37:40.087Z
+updated: 2024-11-13T05:36:25.417Z
 tags:
   - ai video
   - ai youtube
@@ -45,30 +45,37 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
@@ -79,22 +86,16 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -114,13 +115,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -136,14 +130,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-evaluating-camstudios-latest-screen-recording-features/"><u>[New] 2024 Approved Evaluating CamStudio's Latest Screen Recording Features</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-best-practices-for-maximum-impact-thumbnails/"><u>[New] YouTube's Best Practices for Maximum Impact Thumbnails</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-empowered-by-numbers-decoding-youtube-analytics/"><u>[Updated] 2024 Approved Empowered by Numbers Decoding YouTube Analytics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-flip-your-video-frames-effortlessly-with-vlc/"><u>[Updated] 2024 Approved Flip Your Video Frames Effortlessly with VLC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-journey-to-discovering-your-personal-youtube-musical-realm/"><u>[Updated] Journey to Discovering Your Personal Youtube Musical Realm</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-reset-and-regain-navigating-the-2023-fb-hack-scenario-for-2024/"><u>[Updated] Reset & Regain Navigating the 2023 FB Hack Scenario for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/best-free-apple-iphone-6-imei-checker-by-drfone-ios/"><u>Best Free Apple iPhone 6 IMEI Checker</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/perfecting-the-pulse-news-outro-techniques/"><u>Perfecting the Pulse News Outro Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-elite-5-youtube-channel-power-players-for-2024/"><u>The Elite 5 YouTube Channel Power Players for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-expert-video-editing-techniques-for-instagram-success/"><u>[New] 2024 Approved Expert Video Editing Techniques for Instagram Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ural-and-visual-summary-synthesizer/"><u>[New] Aural and Visual Summary Synthesizer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-audio-extraction-youtube-to-mp3-in-macos/"><u>[New] Mastering Audio Extraction YouTube to MP3 in MacOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-go-backwards-a-step-by-step-for-reversing-youtube-videos/"><u>[Updated] Go Backwards A Step-by-Step for Reversing YouTube Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-4-effective-ways-to-snip-screens-on-chromebook/"><u>[Updated] In 2024, 4 Effective Ways to Snip Screens On Chromebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-spin-the-story-right-youtube-video-angles-demystified-guide/"><u>[Updated] Spin the Story Right YouTube Video Angles Demystified (Guide)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-soundtracks-at-your-fingertips-for-online-creators/"><u>[Updated] The Best Soundtracks at Your Fingertips for Online Creators</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-leading-brands-car-compatible-viewing-devices/"><u>2024 Approved Leading Brands' Car-Compatible Viewing Devices</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-disable-the-news-widget-in-windows-11/"><u>How to Disable the News Widget in Windows 11</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-xiaomi-redmi-note-13-pro-5g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Xiaomi Redmi Note 13 Pro 5G Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-understanding-line-a-detailed-review-for-users/"><u>The Ultimate Guide to Understanding Line - A Detailed Review for Users</u></a></li>
 </ul></div>
 

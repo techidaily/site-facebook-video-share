@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-10-27T22:28:38.382Z
-updated: 2024-11-03T21:47:51.301Z
+date: 2024-11-06T17:27:56.282Z
+updated: 2024-11-13T02:36:06.998Z
 tags:
   - ai video
   - ai youtube
@@ -45,24 +45,18 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -79,13 +73,6 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -104,10 +91,10 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## EVERYTHING
@@ -115,10 +102,10 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
@@ -130,6 +117,13 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,20 +140,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-blocking-unwanted-youtube-channels-pc-and-mobile-edition/"><u>[New] 2024 Approved Blocking Unwanted Youtube Channels PC & Mobile Edition</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-cutting-edge-tools-free-youtube-intro-creators/"><u>[New] 2024 Approved Cutting-Edge Tools Free YouTube Intro Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-building-a-brand-building-income-youtube-edition-for-2024/"><u>[New] Building a Brand, Building Income YouTube Edition for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unleashing-hidden-media-from-your-connected-friends/"><u>[New] In 2024, Unleashing Hidden Media From Your Connected Friends</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-pro-techniques-for-professional-iphone-shots-for-2024/"><u>[New] Pro Techniques for Professional Iphone Shots for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-techniques-for-private-yt-content-dissemination-in-gmail/"><u>[Updated] 2024 Approved Cutting-Edge Techniques for Private YT Content Dissemination in Gmail</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-download-youtube-music-to-your-android-phone-top-6-free-apps/"><u>[Updated] 2024 Approved Download YouTube Music to Your Android Phone Top 6 Free Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-endless-entertainment-loop-youtube-content-on-tv/"><u>[Updated] 2024 Approved Endless Entertainment Loop YouTube Content on TV</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-metaverse-and-omniverse-a-detailed-breakdown/"><u>[Updated] 2024 Approved The Metaverse & Omniverse A Detailed Breakdown</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-discovering-8-prime-video-advancement-aids-for-2024/"><u>[Updated] Discovering 8 Prime Video Advancement Aids for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-your-potential-with-these-elite-12-vlogger-friendly-cameras/"><u>[Updated] Unleash Your Potential with These Elite 12 Vlogger-Friendly Cameras</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-2023s-premier-action-cameras-on-motorcycle-gear-guide/"><u>2024 Approved 2023'S Premier Action Cameras on Motorcycle Gear Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/efficient-techniques-ios-screenshots-and-youtube-content-creation-for-2024/"><u>Efficient Techniques IOS Screenshots and YouTube Content Creation for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-f54-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy F54 5G to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/robust-disk-health-monitoring-tool/"><u>Robust Disk Health Monitoring Tool</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-engineering-engaging-media-excerpts-for-2024/"><u>[New] Engineering Engaging Media Excerpts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-youtube-equipment-for-starting-your-channel-for-2024/"><u>[New] Essential YouTube Equipment For Starting Your Channel for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-filters-through-windows-10-photos-extracting-picture-moments/"><u>[New] Filters Through Windows 10 Photos Extracting Picture Moments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-youtube-viewership-6-proven-methods/"><u>[New] Mastering the Art of YouTube Viewership 6 Proven Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-channel-profitability-famebit-powered-sponsorship-tactics-for-2024/"><u>[Updated] Boosting Channel Profitability FameBit-Powered Sponsorship Tactics for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-no-money-down-best-free-video-chat-platforms/"><u>[Updated] In 2024, No Money Down? Best Free Video Chat Platforms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-a-guide-to-elevating-your-obs-video-projects/"><u>2024 Approved A Guide to Elevating Your OBS Video Projects</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-live-action-to-toon-town-how-to-turn-videos-into-cartoons/"><u>2024 Approved From Live-Action to Toon Town How to Turn Videos Into Cartoons</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-practices-zooming-into-fb-live-excellence-for-2024/"><u>Best Practices Zooming Into FB Live Excellence for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/no-need-for-apps-download-youtube-files-for-2024/"><u>No Need for Apps Download YouTube Files for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/schritt-fur-schritt-anleitung-zum-erstellen-eines-windows-7-installationsabbilds-iso-fur-reparaturzwecke/"><u>Schritt-Für-Schritt Anleitung Zum Erstellen Eines Windows 7 Installationsabbilds (ISO) Für Reparaturzwecke</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/sponsoring-made-simple-boosting-your-channel-budget-efficiently-for-2024/"><u>Sponsoring Made Simple Boosting Your Channel Budget Efficiently for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-up-to-spectacle-adding-neon-borderlines-to-youtubes-for-2024/"><u>Step Up to Spectacle Adding Neon Borderlines to YouTubes for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-tutorial-enabling-and-streaming-ultra-hd-content-on-ios-devices/"><u>Step-by-Step Tutorial: Enabling and Streaming Ultra HD Content on iOS Devices</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-the-potential-of-chatgpt-with-its-native-modules-and-uses/"><u>Unlocking the Potential of ChatGPT with Its Native Modules and Uses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/which-video-sharing-giant-suits-your-content-best-igtv-or-youtube-analysis-for-2024/"><u>Which Video-Sharing Giant Suits Your Content Best? - IGTV or YouTube Analysis for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/yuneec-typhoon-h-deep-dive-aerial-expert-review/"><u>Yuneec Typhoon H Deep Dive Aerial Expert Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Insight Into Highlighted Video Discussion Threads"
-date: 2024-08-01T10:54:41.330Z
-updated: 2024-08-02T10:54:41.330Z
+date: 2024-11-07T10:08:55.383Z
+updated: 2024-11-12T20:07:05.750Z
 tags:
   - ai video
   - ai youtube
@@ -37,9 +37,6 @@ If you own a YouTube channel or are starting one, even you can do this. Without 
 * [Part 7: Tips for Writing a Comment](#part7)
 * [Part 8: Benefits of Highlighted Comments](#part8)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Part 1: What Does The Highlighted Comment Mean On YouTube?
 
 Before you get on with highlighting your comments, you must understand what it means exactly. You may follow comments on the videos posted by several YouTubers, but the highlighted ones are always making it to the top of the list.
@@ -57,25 +54,23 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Part 3: How to Make My Comment Highlighted?
 
 Now, making YouTube highlight your comment on a popular video is nothing less than an art. YouTube doesn't make it easy for you. The advantage of getting your comment highlighted on YouTube is limitless.
@@ -85,18 +80,26 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Get the URL of Highlighted Comments?
 
 The ways to acquire the URL or link for a highlighted comment are different for both parties- viewer and host.
 
 Suppose you are a viewer who is going through the comments section of a video. If you want to get the highlighted URL for the comment, simply click on the timestamp (e.g., 2 weeks ago) beside the commentator's username.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
@@ -152,13 +155,18 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -166,4 +174,27 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dive-deep-10-immersive-youtube-videos-for-vr-enthusiasts/"><u>[New] 2024 Approved Dive Deep 10 Immersive YouTube Videos for VR Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-spice-up-social-media-create-memes-on-kapwing/"><u>[New] 2024 Approved Spice Up Social Media - Create Memes on Kapwing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-beauty-bard-in-depth-gear-and-tutorial-roundups/"><u>[New] The Beauty Bard In-Depth Gear & Tutorial Roundups</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-advanced-game-monitoring-tools-for-diverse-formats-for-2024/"><u>[Updated] Advanced Game Monitoring Tools for Diverse Formats for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-expansion-sharing-your-show-across-30-platforms-for-2024/"><u>[Updated] Channel Expansion Sharing Your Show Across 30 Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-prime-valorant-video-thumbnails-on-youtube-for-2024/"><u>[Updated] Crafting Prime Valorant Video Thumbnails on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-demystifying-the-art-behind-live-video-thumbnails-for-2024/"><u>[Updated] Demystifying the Art Behind Live Video Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-free-online-music-libraries-15-picks/"><u>[Updated] In 2024, Essential Free Online Music Libraries 15 Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategies-to-avoid-pitfalls-in-designing-youtube-thumbnails/"><u>[Updated] Strategies to Avoid Pitfalls in Designing YouTube Thumbnails</u></a></li>
+<li><a href="https://article-tips.techidaily.com/drone-mainteninas-and-care-for-syma-x8c/"><u>Drone Mainteninas and Care for Syma X8C</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-restore-macbook-screen-capture-functionality-top-11-remedies-explored/"><u>How to Restore Macbook Screen Capture Functionality - Top 11 Remedies Explored</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-a-thorough-exploration-of-kinesthetic-controls/"><u>In 2024, A Thorough Exploration of Kinesthetic Controls</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-essential-virtual-reality-cinema-experiences/"><u>In 2024, Essential Virtual Reality Cinema Experiences</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastery-in-gaming-3-methods-for-directory-unlock/"><u>Mastery in Gaming: 3 Methods for Directory Unlock</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/superior-sound-collector-top-10-tools-on-spotify-for-2024/"><u>Superior Sound Collector Top 10 Tools on Spotify for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/transcodificar-un-archivo-wav-a-flac-gratis-online-con-convertidor-de-audio-movavi/"><u>Transcodificar Un Archivo WAV a FLAC Gratis Online Con Convertidor De Audio - Movavi</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/trick-automated-audiences-into-authentic-engagement-for-2024/"><u>Trick Automated Audiences Into Authentic Engagement for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveil-creative-potential-top-7-free-sound-effects-for-youtubers-for-2024/"><u>Unveil Creative Potential Top 7 Free Sound Effects for YouTubers for 2024</u></a></li>
+</ul></div>
 
