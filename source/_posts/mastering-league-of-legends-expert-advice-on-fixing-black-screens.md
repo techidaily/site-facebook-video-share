@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-11-09T23:39:05.054Z
-updated: 2024-11-13T13:59:30.979Z
+date: 2024-11-12T19:01:24.244Z
+updated: 2024-11-14T06:41:48.723Z
 tags:
   - win11
   - win10
@@ -82,13 +82,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
 
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee.
@@ -96,15 +89,22 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-84.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
 
  If you need assistance, please contact**Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Install the latest Windows Updates
 
@@ -115,10 +115,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-62-1024x796.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2) Click**Download** if Windows detects any new updates. If not, then click**Check for updates** .
@@ -130,6 +130,13 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 4) Restart Windows and run League of Legends again.
 
  See if you can play the game without crashes. If so, you’ve fixed this issue! If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 4: Repair corrupted game files
 
@@ -149,21 +156,7 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Enable low spec mode
 
@@ -176,6 +169,13 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 2) In the upper-right corner, click**the gear button**  to open the game settings.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
@@ -203,21 +203,24 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-compact-content-leading-5-services-to-compress-video-urls/"><u>[New] 2024 Approved Compact Content Leading 5 Services to Compress Video URLs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-360-camera-buying-guide-how-to-choose-a-suitable-360-camera/"><u>[New] 360 Camera Buying Guide How to Choose a Suitable 360 Camera</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-eliminate-background-noise-from-online-video-content/"><u>[New] In 2024, Eliminate Background Noise From Online Video Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-conveniently-connect-with-others-via-your-playlist/"><u>[Updated] 2024 Approved Conveniently Connect with Others via Your Playlist</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-exceptional-freefire-content-on-youtube-platforms-for-2024/"><u>[Updated] Crafting Exceptional FreeFire Content on YouTube Platforms for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-advanced-techniques-for-educators-lecture-capture-on-mac/"><u>2024 Approved Advanced Techniques for Educator's Lecture Capture on Mac</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-heard-words-spoken-ideas-no-price/"><u>2024 Approved Heard Words, Spoken Ideas – No Price</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1722997340831-apex-legends-loading-error-resolved-speedy-tips-inside/"><u>Apex Legends Loading Error Resolved? Speedy Tips Inside!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/eliminating-dcom-errors-in-directinputdll-techniques-and-best-practices/"><u>Eliminating DCOM Errors in Directinput.dll: Techniques and Best Practices</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-11-pro-stuck-at-attempting-data-recovery-loop-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 11 Pro Stuck at attempting data recovery Loop | Stellar</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-successfully-concoct-awkward-potions-in-minecraft-without-a-hitch/"><u>How to Successfully Concoct Awkward Potions in Minecraft Without a Hitch</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-storytelling-made-simple-with-premiere-pro-tips/"><u>In 2024, YouTube Storytelling Made Simple - With Premiere Pro Tips</u></a></li>
-<li><a href="https://win-bits.techidaily.com/1728472057840-microsoft-word/"><u>Microsoft Word文件歸還後重建節錄方法</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/self-animated-wonders-cutting-edge-techniques-for-you-for-2024/"><u>Self-Animated Wonders Cutting Edge Techniques for You for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/why-portable-games-may-not-always-win/"><u>Why Portable Games May Not Always Win</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-live-thumbnails-the-ultimate-guide-for-2024/"><u>YouTube Live Thumbnails The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-breaking-down-why-syma-x5c-is-top-notch-for-new-dronists/"><u>[New] 2024 Approved Breaking Down Why Syma X5C Is Top-Notch for New Dronists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>[New] 2024 Approved Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-bridging-content-creators-how-to-join-youtube-and-tiktok-for-2024/"><u>[New] Bridging Content Creators How to Join YouTube & TikTok for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-zero-cost-youtube-intros-essential-tips-and-templates-for-2024/"><u>[New] Mastering Zero-Cost YouTube Intros Essential Tips & Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-ranked-youtube-extractors-pc-mobile-and-more-tips/"><u>[New] Top-Ranked YouTube Extractors - PC, Mobile, and More Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-voice-transformation-tools-for-social-media-stars/"><u>[New] Ultimate Voice Transformation Tools for Social Media Stars</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-creating-powerful-teacher-content-on-youtube-top-10-insights/"><u>[Updated] 2024 Approved Creating Powerful Teacher Content on YouTube Top 10 Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-editing-a-roadmap-for-high-quality-youtube-sounds/"><u>[Updated] 2024 Approved Cutting-Edge Editing A Roadmap for High-Quality YouTube Sounds</u></a></li>
+<li><a href="https://win-able.techidaily.com/comprehensive-tutorial-for-capturing-viber-calls-on-all-your-gadgets-including-windows-and-ios-devices/"><u>Comprehensive Tutorial for Capturing Viber Calls on All Your Gadgets Including Windows and iOS Devices!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/do-electric-vehicles-hold-their-own-against-conventional-car-lifespans/"><u>Do Electric Vehicles Hold Their Own Against Conventional Car Lifespans?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-8-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone 8 Passcode Easily Video Inside</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-recover-lost-system-files-in-windows-without-losing-data/"><u>How to Recover Lost System Files in Windows Without Losing Data</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-oppo-k11x-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Oppo K11x</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabled-iphone-13-pro-how-to-unlock-a-disabled-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, Disabled iPhone 13 Pro How to Unlock a Disabled iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/professional-shooters-guide-to-stability/"><u>Professional Shooters' Guide to Stability</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/safe-mp4-extraction-from-youtube-videos-for-2024/"><u>Safe MP4 Extraction From YouTube Videos for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2057562-9781609259884-the-complete-book-of-aquarian-magic/"><u>The Complete Book of Aquarian Magic | Free Book</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-collection-of-top-ranked-cost-free-youtube-short-video-downloader-apps-for-2024/"><u>The Ultimate Collection of Top-Ranked, Cost-Free YouTube Short Video Downloader Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleashing-creativity-mastering-the-art-of-360-degree-videography-for-youtube-for-2024/"><u>Unleashing Creativity Mastering the Art of 360-Degree Videography for YouTube for 2024</u></a></li>
 </ul></div>
 

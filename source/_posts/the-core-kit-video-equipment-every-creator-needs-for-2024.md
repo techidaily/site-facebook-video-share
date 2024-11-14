@@ -1,7 +1,7 @@
 ---
 title: "\"The Core Kit  Video Equipment Every Creator Needs for 2024\""
-date: 2024-08-01T10:52:43.128Z
-updated: 2024-08-02T10:52:43.128Z
+date: 2024-11-12T06:46:38.440Z
+updated: 2024-11-13T16:37:41.745Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Tripods and Camera Stands](#tripod)
 * [Smartphone Camera Gear](#phone)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -63,9 +60,6 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -78,9 +72,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -91,12 +82,23 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -106,17 +108,24 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -125,12 +134,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-step-by-step-guide-to-youtube-to-igtv-conversion/"><u>[New] 2024 Approved A Step-by-Step Guide to YouTube to IGTV Conversion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-your-youtube-presence-key-tips-for-popularity/"><u>[New] 2024 Approved Boosting Your YouTube Presence Key Tips for Popularity</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-brilliance-in-display-top-5-for-grading-professionals/"><u>[New] Brilliance in Display TOP 5 for Grading Professionals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-video-animation-tools-and-techniques-for-efficient-gif-making/"><u>[New] YouTube Video Animation Tools and Techniques for Efficient Gif Making</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10-strategies-to-make-money-on-youtube-shorts-easily-for-2024/"><u>[Updated] 10 Strategies to Make Money on YouTube Shorts Easily for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-captivating-yt-cover-art-for-maximum-traffic-for-2024/"><u>[Updated] Captivating YT Cover Art for Maximum Traffic for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-laughs-at-your-service-web-for-2024/"><u>[Updated] Laughs at Your Service (Web) for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-renaming-your-podcast-leading-ai-generators-explored/"><u>[Updated] Renaming Your Podcast Leading AI Generators Explored</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/2024-solutions-eliminate-popping-sounds-from-logitech-g-pro-x-for-crystal-clear-pc-audio/"><u>2024 Solutions: Eliminate Popping Sounds From Logitech G Pro X for Crystal Clear PC Audio</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-update-instructions-bring-your-computer-to-peak-performance-with-the-latest-intel-wireless-ac-3160-driver/"><u>Easy Update Instructions: Bring Your Computer to Peak Performance with the Latest Intel Wireless-AC 3160 Driver</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-obscurity-to-influence-5-strategies-to-dominate-reddit-advertising/"><u>In 2024, From Obscurity to Influence 5 Strategies to Dominate Reddit Advertising</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/limpieza-eficiente-de-ventanas-11-deshacerse-del-adware-y-pop-ups-con-herramientas-profesionales-de-malwarefox/"><u>Limpieza Eficiente De Ventanas 11: Deshacerse Del Adware Y Pop-Ups Con Herramientas Profesionales De MalwareFox</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/professional-video-edits-at-zero-price-discover-these-tools-for-2024/"><u>Professional Video Edits at Zero Price - Discover These Tools for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-10-techniques-optimal-live-cricket-broadcasting/"><u>Top 10 Techniques Optimal Live Cricket Broadcasting</u></a></li>
+</ul></div>
 

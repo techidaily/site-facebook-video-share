@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2024-11-10T19:56:42.571Z
-updated: 2024-11-12T21:08:18.823Z
+date: 2024-11-07T01:07:21.317Z
+updated: 2024-11-13T22:01:31.150Z
 tags:
   - win11
   - win10
@@ -38,16 +38,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 5. [**Turn off unnecessary programs**](https://tools.techidaily.com/drivereasy/download/)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 1: Check your home network
@@ -72,17 +66,17 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
 
@@ -103,13 +97,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_15-35-03.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)**  After the process is complete, click**Optimize** .
 
 **4)** Launch the game to test your issue.
@@ -127,15 +114,22 @@ Your game still freezes? Try the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
 
@@ -180,19 +174,15 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-adventure-essentials-ultimate-guide-to-1-10-gopro-protectors/"><u>[New] In 2024, Adventure Essentials - Ultimate Guide to #1-10 GoPro Protectors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-ultimate-video-guide-from-youtube-to-twitter/"><u>[New] In 2024, Ultimate Video Guide From YouTube to Twitter</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-year-of-infographics-top-social-trends-explored/"><u>[New] The Year of Infographics Top Social Trends Explored</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-ultimate-instagram-photography-guide-for-crafting-perfect-covers/"><u>[Updated] 2024 Approved The Ultimate Instagram Photography Guide for Crafting Perfect Covers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-expert-advice-incorporating-narrative-elements-into-youtube-videos-for-2024/"><u>[Updated] Expert Advice Incorporating Narrative Elements Into YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-free-youtube-earning-predictors/"><u>[Updated] Free YouTube Earning Predictors</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>[Updated] Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtubers-edge-the-ultimate-guide-to-apps-for-short-form-edits/"><u>[Updated] Youtubers' Edge The Ultimate Guide to Apps for Short Form Edits</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-beyond-ustream-live-streaming-choices/"><u>2024 Approved Beyond Ustream Live Streaming Choices</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/comparing-amd-and-intel-cpus-top-picks-for-running-efficient-virtual-machines/"><u>Comparing AMD and Intel CPUs – Top Picks for Running Efficient Virtual Machines</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-y36-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y36 Phone that is Locked?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-6s-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 6s</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-webm-to-mp4-conversion-made-simple-top-10-software-for-2024/"><u>Updated WebM to MP4 Conversion Made Simple Top 10 Software for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/zero-cost-downloads-for-high-quality-audios-discover-this-list-of-23-tools-for-2024/"><u>Zero Cost Downloads for High-Quality Audios Discover This List of 23 Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>[New] 2024 Approved 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-speak-and-stun-on-snapchat-voice-change-made-simple/"><u>[New] 2024 Approved Speak and Stun on Snapchat Voice Change Made Simple</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-your-brand-making-money-with-vids/"><u>[New] In 2024, Building Your Brand Making Money with Vids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-engineering-engaging-media-excerpts/"><u>[Updated] Engineering Engaging Media Excerpts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-clicks-to-cash-how-jake-paul-leveraged-youtube/"><u>[Updated] From Clicks to Cash How Jake Paul Leveraged YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-smart-guide-to-procuring-premium-image-banners/"><u>[Updated] The Smart Guide to Procuring Premium Image Banners</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-the-nvidia-geforce-experience-error-code-0x0003/"><u>How to Fix the Nvidia GeForce Experience Error - Code 0X0003</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-realme-narzo-n53-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Realme Narzo N53 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-perfect-playback-top-strategies-for-gameplay-videos/"><u>The Perfect Playback Top Strategies for Gameplay Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-creativity-with-free-templates-essential-for-video-makers-for-2024/"><u>Unleash Creativity with FREE Templates – Essential for Video Makers for 2024</u></a></li>
 </ul></div>
 

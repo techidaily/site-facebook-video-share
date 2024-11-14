@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Creating Heartfelt YouTube Journeys for 2024"
-date: 2024-11-09T09:37:40.087Z
-updated: 2024-11-13T05:36:25.417Z
+date: 2024-11-09T16:58:45.908Z
+updated: 2024-11-13T19:39:55.435Z
 tags:
   - ai video
   - ai youtube
@@ -45,13 +45,6 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
@@ -60,46 +53,53 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
@@ -130,16 +130,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-expert-video-editing-techniques-for-instagram-success/"><u>[New] 2024 Approved Expert Video Editing Techniques for Instagram Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ural-and-visual-summary-synthesizer/"><u>[New] Aural and Visual Summary Synthesizer</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-mastering-audio-extraction-youtube-to-mp3-in-macos/"><u>[New] Mastering Audio Extraction YouTube to MP3 in MacOS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-go-backwards-a-step-by-step-for-reversing-youtube-videos/"><u>[Updated] Go Backwards A Step-by-Step for Reversing YouTube Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-4-effective-ways-to-snip-screens-on-chromebook/"><u>[Updated] In 2024, 4 Effective Ways to Snip Screens On Chromebook</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-spin-the-story-right-youtube-video-angles-demystified-guide/"><u>[Updated] Spin the Story Right YouTube Video Angles Demystified (Guide)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-soundtracks-at-your-fingertips-for-online-creators/"><u>[Updated] The Best Soundtracks at Your Fingertips for Online Creators</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-leading-brands-car-compatible-viewing-devices/"><u>2024 Approved Leading Brands' Car-Compatible Viewing Devices</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-disable-the-news-widget-in-windows-11/"><u>How to Disable the News Widget in Windows 11</u></a></li>
-<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-xiaomi-redmi-note-13-pro-5g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Xiaomi Redmi Note 13 Pro 5G Unresponsive Screen | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-understanding-line-a-detailed-review-for-users/"><u>The Ultimate Guide to Understanding Line - A Detailed Review for Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-adding-emojis-in-youtube-discussions/"><u>[New] 2024 Approved Adding Emojis in YouTube Discussions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-blast-from-the-past-top-1980s-vhs-techniques-to-infect-your-edits-with-flair/"><u>[New] 2024 Approved Blast From the Past Top 1980S VHS Techniques to Infect Your Edits with Flair</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-breaking-down-the-monetization-barriers/"><u>[New] 2024 Approved Breaking Down the Monetization Barriers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-accelerate-your-youtube-upload-with-effective-rendering/"><u>[Updated] How to Accelerate Your YouTube Upload with Effective Rendering</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-video-privacy-directly-share-yt-clips-using-googleid/"><u>[Updated] Mastering Video Privacy Directly Share YT Clips Using GoogleID</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-zero-price-path-to-enhanced-youtube-video-analysis/"><u>2024 Approved Zero-Price Path to Enhanced YouTube Video Analysis</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-htc-u23-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your HTC U23 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-audiovisual-excellence-zooming-into-exceptional-podcast-recordings/"><u>In 2024, Audiovisual Excellence Zooming Into Exceptional Podcast Recordings</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-realme-12-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Realme 12 5G Phones</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mystical-video-pause-hints/"><u>Mystical Video Pause Hints</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/profit-proliferation-through-effective-youtube-short-video-creation-for-2024/"><u>Profit Proliferation Through Effective YouTube Short Video Creation for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/wintv-guide-effective-techniques-in-windows-based-live-recording-for-2024/"><u>WinTV Guide Effective Techniques in Windows-Based Live Recording for 2024</u></a></li>
 </ul></div>
 

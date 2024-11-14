@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Building Mental Armor Against Online Critics\""
-date: 2024-08-01T10:48:35.176Z
-updated: 2024-08-02T10:48:35.176Z
+date: 2024-11-12T08:01:59.743Z
+updated: 2024-11-14T07:31:59.699Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/e6d973791325054ad0d7f0fcd99fd3ff0a56a4431
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/e6d973791325054ad0d7f0fcd99fd3ff0a56a4431
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/e6d973791325054ad0d7f0fcd99fd3ff0a56a4431
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -70,12 +60,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-boosting-income-with-effective-youtube-short-strategies-for-2024/"><u>[New] Boosting Income with Effective Youtube Short Strategies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-picks-of-the-year-premium-google-cardboard-vr-gaming/"><u>[New] Picks of the Year Premium Google Cardboard VR Gaming</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-perfect-playback-top-strategies-to-record-and-share-your-vr-experiences-for-2024/"><u>[New] The Perfect Playback Top Strategies to Record and Share Your VR Experiences for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-and-dailymotion-unveiling-core-variations-for-2024/"><u>[New] YouTube & Dailymotion Unveiling Core Variations for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tools-and-methods-how-to-resize-youtube-thumbnail/"><u>[Updated] [Tools & Methods] How To Resize YouTube Thumbnail</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-blur-the-borders-enhancing-your-videos-appeal-on-yt/"><u>[Updated] Blur the Borders Enhancing Your Video's Appeal on YT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-integrating-comments-in-youtube-videos/"><u>[Updated] Step-by-Step Integrating Comments in YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-channel-art-how-to-make-banners-icons-and-thumbnails/"><u>[Updated] YouTube Channel Art How to Make Banners, Icons, and Thumbnails?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-flash-moment-of-fame-analysis/"><u>2024 Approved Flash Moment of Fame Analysis</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-poco-f5-pro-5g-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Poco F5 Pro 5G</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-apple-iphone-12-pro-max-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From Apple iPhone 12 Pro Max</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

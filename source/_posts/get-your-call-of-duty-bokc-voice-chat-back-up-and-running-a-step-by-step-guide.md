@@ -1,7 +1,7 @@
 ---
 title: "Get Your Call of Duty: BOKC Voice Chat Back Up and Running - A Step-by-Step Guide"
-date: 2024-11-08T03:16:22.920Z
-updated: 2024-11-13T10:27:28.642Z
+date: 2024-11-12T05:47:04.022Z
+updated: 2024-11-14T01:03:31.265Z
 tags:
   - win11
   - win10
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 6. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 1: Check the connection of your audio device
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 If the connection is fine, check out the next fix below.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 2: Disable your peripherals
@@ -55,6 +55,13 @@ If the connection is fine, check out the next fix below.
  In some cases, your game chat won’t work[**because your controller is conflicting with your mic**](https://www.reddit.com/r/blackopscoldwar/comments/jtcnob/voice%5Fchat%5Fnot%5Fworking/) . This is a weird but possible situation. So before entering Black Ops Cold War, make sure you’ve disabled your peripherals, especially those with a headphone jack.
 
  If you’re not using any peripherals, simply move on to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Change your default recording device
 
@@ -68,25 +75,11 @@ First you need to check the default audio device on your system:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/run-ms-settings-sound.jpg)
 2. Under the**Input** section, make sure your input device is set to your desired one. Then click**Device properties and test microphone** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/input-device-testing.jpg)
 3. Make sure the box next to**Disable** is unchecked, and the slider under**Volume** is set to 100.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/device-properties-and-test-microphone.jpg)
 4. Click **Start test** and tap or speak to your microphone. Then click **Stop test** . If you’re prompted **The highest value we saw was xx (xx > 0) percent** , it means your microphone has been set up correctly.  
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/sound-test-percent.jpg)
 
@@ -104,6 +97,13 @@ Next, you need to check the voice chat settings in the Battle.net client:
 Now launch Black Ops Cold War and see if you can talk to others.
 
  If your mic still doesn’t work in the game, you can try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 4: Update your audio driver
 
@@ -126,6 +126,19 @@ Now launch Black Ops Cold War and see if you can talk to others.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/Scan-now.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-pro-update-audio-bluetooth-usb-unifying.jpg)
 
@@ -134,6 +147,13 @@ Now launch Black Ops Cold War and see if you can talk to others.
  Once you’ve updated your audio driver, restart your PC and test the gameplay in Black Ops Cold War.
 
  If updating the audio driver doesn’t work for you, simply continue to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5: Change the in-game audio settings
 
@@ -144,13 +164,6 @@ Now launch Black Ops Cold War and see if you can talk to others.
 2. Be sure to set both**Speakers/Headphones Voice Chat Device** and**Microphone Device** to**Default Communication Device** . Set**Microphone Activation Mode** to**Open Mic** . Then increase the value of**Open Microphone Sensitivity** to over 50.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-ingame-voice-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Now you can restart Black Ops Cold War and check if the voice chat is working.
 
@@ -165,13 +178,6 @@ Here’s a quick guide for that:
 1. On your keyboard, press**Win+I** (the Windows logo key and the i key) to open the Windows Settings app. Click**Update & Security** .  
 ![update & security](https://images.drivereasy.com/wp-content/uploads/2020/10/update-security-2.jpg)
 2. Click**Check for updates** . Windows will download and install the available updates. Wait for the process to complete.  
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
 
@@ -198,24 +204,21 @@ Here’s a quick guide for that:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-expert-tips-for-seamless-photo-and-video-import-in-windows-10/"><u>[New] 2024 Approved Expert Tips for Seamless Photo and Video Import in Windows 10</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-7-essential-free-audio-tracks-for-youtubers/"><u>[New] In 2024, Discover 7 Essential Free Audio Tracks for YouTubers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-transform-your-speech-the-7-top-vocal-changer-mobile-apps-for-2024/"><u>[New] Transform Your Speech The 7 Top Vocal Changer Mobile Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-bringing-text-to-life-a-guide-to-dynamic-animation-methods/"><u>[Updated] 2024 Approved Bringing Text to Life A Guide to Dynamic Animation Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-engaging-live-streamed-gaming-experiences/"><u>[Updated] 2024 Approved Crafting Engaging Live-Streamed Gaming Experiences</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-gif-creation-best-tools-reviewed-and-compared/"><u>[Updated] 2024 Approved Essential GIF Creation Best Tools Reviewed & Compared</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-branding-excellence-youtube-naming-masterclass-for-2024/"><u>[Updated] Branding Excellence YouTube Naming Masterclass for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-effective-youtube-ads-expert-strategies/"><u>[Updated] In 2024, Crafting Effective YouTube Ads Expert Strategies</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-master-the-art-of-editing-on-zero-budget-discover-these-apps/"><u>[Updated] Master the Art of Editing on Zero Budget Discover These Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-overhauen-uncovering-hidden-shorts-content/"><u>[Updated] Overhauen Uncovering Hidden Shorts Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-latest-on-youtube-ad-income-guidelines/"><u>[Updated] The Latest on YouTube Ad Income Guidelines</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/best-virtual-camera-tools-unlocking-features-of-live-video-software-like-manycam/"><u>Best Virtual Camera Tools: Unlocking Features of Live Video Software Like ManyCam</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/converting-moments-into-art-gopro-studios-time-lapse-blueprint/"><u>Converting Moments Into Art GoPro Studio's Time Lapse Blueprint</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cooking-chaos-unleashed-an-exclusive-overcooked-2-evaluation/"><u>Cooking Chaos Unleashed: An Exclusive Overcooked! 2 Evaluation</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-infinix-note-30-lock-screen-password-by-drfone-android/"><u>How To Change Infinix Note 30 Lock Screen Password?</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-realme-12-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Realme 12 5G Location Settings | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Lava Storm 5G | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ultimate-guide-safe-methods-to-rip-burn-and-duplicate-your-dvdcd-content/"><u>Ultimate Guide: Safe Methods to Rip, Burn & Duplicate Your DVD/CD Content</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/watching-indiana-jones-saga-perfect-chronological-order-list/"><u>Watching Indiana Jones Saga - Perfect Chronological Order List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-android-users-discover-the-top-youtube-video-clips/"><u>[New] 2024 Approved Android Users, Discover the Top YouTube Video Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-backwards-play-mastering-youtube-video-reversals/"><u>[New] 2024 Approved Backwards Play Mastering YouTube Video Reversals</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-discover-unique-features-of-the-missing-iphone-x/"><u>[New] 2024 Approved Discover Unique Features of the Missing iPhone X</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-expansion-sharing-your-show-across-30-platforms/"><u>[New] In 2024, Channel Expansion Sharing Your Show Across 30 Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-copycat-chronicles-the-science-of-satire/"><u>[New] In 2024, Copycat Chronicles The Science of Satire</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-comprehensive-guide-to-high-def-game-broadcasting/"><u>[New] The Comprehensive Guide to High-Def Game Broadcasting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-video-success-stories-maximizing-income-with-youtube-adsense/"><u>[New] Video Success Stories Maximizing Income with YouTube AdSense</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-expert-smartphone-photo-and-film-capture-iphoneandroid-comparison/"><u>[Updated] 2024 Approved Expert Smartphone Photo & Film Capture IPhone/Android Comparison</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-bridging-content-gap-youtube-videos-to-instagram-for-2024/"><u>[Updated] Bridging Content Gap YouTube Videos to Instagram for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-leveraging-multiple-channels-to-boost-online-visibility-for-2024/"><u>[Updated] Leveraging Multiple Channels to Boost Online Visibility for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/how-to-transcode-avchd-footage-into-mov-movies-on-macos-el-capitan/"><u>How to Transcode AVCHD Footage Into MOV Movies on macOS El Capitan</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-words-in-motion-a-guide-to-lively-animation-methods/"><u>In 2024, Words in Motion A Guide to Lively Animation Methods</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/master-your-ui-with-the-nextjs-material-kit-pro-suite-from-creative-tim-elevate-your-nextjs-projects-today/"><u>Master Your UI with the NextJS Material Kit Pro Suite From Creative Tim – Elevate Your NextJS Projects Today!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-guide-on-how-to-disable-and-delete-nvidia-geforce-experience/"><u>Quick Guide on How to Disable and Delete Nvidia GeForce Experience</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/top-free-amr-audio-player-discover-5kplayers-comprehensive-features/"><u>Top Free AMR Audio Player: Discover 5KPlayer's Comprehensive Features</u></a></li>
 </ul></div>
 

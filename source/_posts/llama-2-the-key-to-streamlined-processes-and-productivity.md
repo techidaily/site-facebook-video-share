@@ -1,7 +1,7 @@
 ---
 title: "Llama 2: The Key to Streamlined Processes and Productivity"
-date: 2024-11-10T09:51:29.575Z
-updated: 2024-11-13T09:47:23.097Z
+date: 2024-11-09T02:24:13.775Z
+updated: 2024-11-14T01:24:53.650Z
 tags:
   - chatgpt
   - open-ai
@@ -21,13 +21,6 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
 * [How to Find the Best Custom GPTs in the GPT Store](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#how-to-find-the-best-custom-gpts-in-the-gpt-store)
 * [Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#is-it-worth-upgrading-to-chatgpt-plus-to-use-custom-gpts)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * OpenAI has launched the GPT Store, where users can find custom GPTs created by the ChatGPT community.
@@ -37,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
  OpenAI has finally unveiled its highly anticipated GPT Store, offering users a selection of ChatGPT community-created custom GPTs featuring specialized chatbots ranging from writing and design to programming and productivity. The launch marks OpenAI's latest move to capitalize on the runaway popularity of its AI creation ChatGPT, which took the world by storm after its launch in November 2022.
 
  ChatGPT's custom GPT Store is open right now, and this is how you can use it to find the pre-programmed AI tools you need.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Access the GPT Store
 
@@ -48,6 +48,13 @@ How do you know when you've been granted access?
 
  On the left sidebar of the ChatGPT interface, you should see**Explore GPTs** instead of simply**Explore** . Once you see this, you can start using the GPT Store! Remember, the whole idea of the GPT Store is to help users browse and access a wide range of GPTs built by the community. So, how can you use it to find the right GPT for your tasks?
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Find the Best Custom GPTs in the GPT Store
 
  Using the GPT Store is quite straightforward. Here's how you can browse and search for custom GPTs:
@@ -58,38 +65,25 @@ How do you know when you've been granted access?
 3. You can also use the search bar to find GPTs by keyword or related terms.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![GPT Store search screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store-search-screen.jpg)
 4. When you find a GPT you want to try, click on it to open the individual GPT page.
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5. On the GPT page, you will see information about what that model offers.
 6. After testing a GPT that solves your problem well, take one important extra step—click on the GPT name in the top left corner of the page, then click**Keep in sidebar** . This saves that GPT to the sidebar along with your chat history for easy future access.  
 ![Adding a GPT to sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/adding-a-gpt-to-sidebar.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  However, you should note that at the time of writing, the GPT Store isn't reviewed, and there is no rating system or otherwise. We're hoping that OpenAI will introduce some type of rating system in the near future, as currently, without any system in place, you're effectively on your own when it comes to figuring out what works well. By extension, it seems likely that some form of rating or review system will be implemented once GPT Store revenue sharing is launched, but OpenAI hasn't given any fixed timeline for this.
 
@@ -116,24 +110,16 @@ How do you know when you've been granted access?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/est-practices-for-boosting-views-on-freefire-gaming-channels-for-2024/"><u>[New] Best Practices for Boosting Views on FreeFire Gaming Channels for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-bite-size-broadcasting-battle-which-platform-dominates-in-shorter-videos-for-2024/"><u>[New] Bite-Size Broadcasting Battle Which Platform Dominates in Shorter Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-efficient-time-markers-in-youtube-videos-desktopmobile-edition-for-2024/"><u>[New] Efficient Time Markers in YouTube Videos (Desktop/Mobile Edition) for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beginners-essential-guide-to-youtube-video-editing-magic/"><u>[New] In 2024, Beginner’s Essential Guide to YouTube Video Editing Magic</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-understanding-the-disparities-youtube-versus-dailymotion/"><u>[New] Understanding the Disparities YouTube Versus Dailymotion</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs/"><u>[New] Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-audacitys-guide-to-effortless-audio-transitions/"><u>[Updated] 2024 Approved Audacity's Guide to Effortless Audio Transitions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-empowering-learning-through-educational-videos-on-youtube/"><u>[Updated] 2024 Approved Empowering Learning Through Educational Videos on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audio-amplified-todays-hits-backdropping-yt-shorts/"><u>[Updated] In 2024, Audio Amplified Today's Hits Backdropping YT Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-inside-look-at-youtubes-creator-workshop-space/"><u>[Updated] Inside Look at YouTube's Creator Workshop Space</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-the-clear-path-a-step-by-step-approach-to-buying-an-exceptional-4k-monitor/"><u>[Updated] The Clear Path A Step-By-Step Approach to Buying an Exceptional 4K Monitor</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-makeup-maestro-journey-establishing-a-channel-for-beauty-buffs/"><u>[Updated] Your Makeup Maestro Journey Establishing a Channel for Beauty Buffs</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-easy-ipad-and-iphone-screen-recording-for-beginners/"><u>2024 Approved Easy iPad & iPhone Screen Recording for Beginners</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/elevate-your-events-with-these-video-invitation-creator-apps/"><u>Elevate Your Events with These Video Invitation Creator Apps</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-infinix-smart-8-pro-is-unlocked-by-drfone-android/"><u>How To Check if Your Infinix Smart 8 Pro Is Unlocked</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-share-videos-on-twitter-on-your-phone-without-retweeting-for-2024/"><u>How to Share Videos on Twitter on Your Phone Without Retweeting for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-the-infographic-lens-on-2017s-youtube-numerical-truths/"><u>In 2024, The Infographic Lens on 2017'S Youtube Numerical Truths</u></a></li>
-<li><a href="https://win-able.techidaily.com/six-quick-solutions-to-prevent-constant-minecraft-game-crashes/"><u>Six Quick Solutions to Prevent Constant Minecraft Game Crashes</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-se-2022-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-expert-advice-on-leveraging-youtubes-video-editor/"><u>[Updated] 2024 Approved Expert Advice on Leveraging YouTube's Video Editor</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-software-to-rip-youtube-trailers-for-2024/"><u>[Updated] Essential Software to Rip YouTube Trailers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audience-attraction-in-a-minute-comparing-youtubes-shorts-and-tiktoks/"><u>[Updated] In 2024, Audience Attraction in a Minute Comparing YouTubes Shorts and TikToks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-screenscapes-the-new-tech-frontier-for-2024/"><u>[Updated] Screenscapes The New Tech Frontier for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-pure-content-how-to-block-youtube-ads-effectively/"><u>[Updated] Unleash Pure Content How to Block YouTube Ads Effectively</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-what-is-the-best-video-format-for-youtube-in-2024/"><u>[Updated] What Is the Best Video Format for YouTube, In 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/easy-installer-enable-your-tp-link-adapter-on-windows-pcs/"><u>Easy Installer: Enable Your TP Link Adapter on Windows PCs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722969656267-easy-steps-to-update-your-nvidia-gpu-drivers-get-the-newest-version-now/"><u>Easy Steps to Update Your Nvidia GPU Drivers - Get the Newest Version Now!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/filmora-fusion-a-comprehensible-comparative-guide-for-2024/"><u>Filmora Fusion A Comprehensible Comparative Guide for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/in-depth-review-of-the-western-digital-datalifeguard-drives-testing-utility/"><u>In-Depth Review of the Western Digital DataLifeGuard Drives Testing Utility</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Poco F5 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

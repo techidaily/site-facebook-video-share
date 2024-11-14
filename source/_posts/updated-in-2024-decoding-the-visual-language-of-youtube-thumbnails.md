@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Decoding the Visual Language of YouTube Thumbnails"
-date: 2024-11-10T22:00:44.053Z
-updated: 2024-11-13T05:21:26.092Z
+date: 2024-11-08T04:41:27.350Z
+updated: 2024-11-14T05:25:57.466Z
 tags:
   - ai video
   - ai youtube
@@ -70,19 +70,6 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
@@ -113,6 +100,13 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -130,13 +124,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -150,6 +137,13 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -189,13 +183,6 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -205,16 +192,10 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
@@ -224,6 +205,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -240,21 +228,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-creating-flavorful-culinary-videos-top-7-techniques/"><u>[New] 2024 Approved Creating Flavorful Culinary Videos - Top 7 Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-innovative-ways-to-craft-free-and-stylish-youtube-video-titles/"><u>[New] Innovative Ways to Craft Free and Stylish YouTube Video Titles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-video-constructor-suite/"><u>[New] Video Constructor Suite</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-avoiding-common-mistakes-how-to-go-live-on-tiktok-from-pc/"><u>[Updated] In 2024, Avoiding Common Mistakes – How to Go Live On TikTok From PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expert-insights-into-youtube-thumbnail-design/"><u>[Updated] In 2024, Expert Insights Into YouTube Thumbnail Design</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-master-artwork-accelerated-techniques-for-editing-photos-on-pc/"><u>[Updated] Master Artwork Accelerated Techniques for Editing Photos on PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastery-in-removing-online-video-post-comments/"><u>[Updated] Mastery in Removing Online Video Post-Comments</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-stardews-ultimate-enhancements-ranked-the-seven-best-mods/"><u>[Updated] Stardew's Ultimate Enhancements Ranked The Seven Best Mods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-youtube-shorts-secrets/"><u>[Updated] Unlocking YouTube Shorts Secrets</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-mastery-elevate-your-content-with-smart-tag-techniques/"><u>[Updated] YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-unleash-the-power-of-engaging-headline-crafting/"><u>2024 Approved Unleash the Power of Engaging Headline Crafting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-transforming-titles-best-ai-powered-podcast-name-makers/"><u>In 2024, Transforming Titles Best AI-Powered Podcast Name Makers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/navigating-a-world-of-videos-made-easy-with-vidas-aid-for-2024/"><u>Navigating a World of Videos Made Easy with Vida's Aid for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/structured-approach-to-managing-youtube-videos-a-complete-watch-later-system-for-2024/"><u>Structured Approach to Managing YouTube Videos A Complete Watch Later System for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-5-galaxy-phone-characteristics-the-pixel-series-must-emulate/"><u>Top 5 Galaxy Phone Characteristics the Pixel Series Must Emulate</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlock-your-youtube-potential-idea-generation-guide-for-2024/"><u>Unlock Your YouTube Potential Idea Generation Guide for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-essential-handbook-for-periscope-video-logging/"><u>[New] In 2024, The Essential Handbook for Periscope Video Logging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-newbies-ultimate-youtube-gear-handbook/"><u>[New] Newbies' Ultimate YouTube Gear Handbook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-final-step-delete-your-youtube-shorts-link/"><u>[New] The Final Step Delete Your YouTube Shorts Link</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-voice-driven-operations-free-of-charge/"><u>[New] Voice-Driven Operations, Free of Charge</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-optimize-haul-content-for-social-media-growth/"><u>[Updated] How to Optimize Haul Content for Social Media Growth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-channel-growth-the-5-key-youtube-strategies/"><u>[Updated] Mastering Channel Growth The 5 Key YouTube Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-panorama-pro-network-partnership-guide/"><u>[Updated] Panorama Pro Network Partnership Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-success-stories-maximizing-income-with-youtube-adsense/"><u>2024 Approved Video Success Stories Maximizing Income with YouTube AdSense</u></a></li>
+<li><a href="https://article-files.techidaily.com/a-critical-look-at-the-action-focused-polaroid-cubeplus-for-2024/"><u>A Critical Look at the Action-Focused Polaroid Cube+ for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-4k-visionary-review-blades-spectrum-expansion/"><u>In 2024, 4K Visionary Review Blade's Spectrum Expansion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-channel-identity-design-icons-and-thumbnails-essentials/"><u>In 2024, Channel Identity Design Icons & Thumbnails Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/masterclasses-on-procuring-photo-and-video-borders-for-2024/"><u>Masterclasses on Procuring Photo & Video Borders for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionary-refresh-how-apple-covertly-enhanced-last-years-13-inch-macbook-pro-for-future-success/"><u>Revolutionary Refresh: How Apple Covertly Enhanced Last Year's 13-Inch MacBook Pro for Future Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/subscriber-glory-the-play-button-and-accolades-for-maker-for-2024/"><u>Subscriber Glory The Play Button & Accolades for Maker for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-therapeutic-potential-chatgpts-influence-on-cbt/"><u>Unlocking Therapeutic Potential: ChatGPT's Influence on CBT</u></a></li>
 </ul></div>
 

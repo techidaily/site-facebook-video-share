@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Free Templates for Dynamic YouTube Channel Closures"
-date: 2024-11-11T12:46:02.329Z
-updated: 2024-11-13T09:14:04.020Z
+date: 2024-11-12T23:42:07.957Z
+updated: 2024-11-13T17:25:49.880Z
 tags:
   - ai video
   - ai youtube
@@ -91,9 +91,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -106,10 +120,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
@@ -124,32 +138,18 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,24 +166,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-analyzing-online-video-discussions/"><u>[New] 2024 Approved Analyzing Online Video Discussions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-expressive-sketches-for-fortnite-icons-for-2024/"><u>[New] Expressive Sketches for Fortnite Icons for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-the-best-8-mirrorless-cameras-for-youtube-vloggers/"><u>[New] In 2024, Explore the Best 8 Mirrorless Cameras for YouTube Vloggers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-youtubthumbnail-guide-for-mac-users-for-2024/"><u>[New] The Ultimate YoutubThumbnail Guide for Mac Users for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-art-of-personal-branding-mastery/"><u>[New] Unveiling the Art of Personal Branding Mastery</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-video-aspect-ratio-guide-optimal-upload-sizes/"><u>[New] YouTube Video Aspect Ratio Guide Optimal Upload Sizes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>[Updated] 2024 Approved Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-sony-vegas-for-high-impact-video-editing-on-youtube/"><u>[Updated] 2024 Approved Explore Sony Vegas for High-Impact Video Editing on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-demystifying-the-journey-to-knowing-who-watches-you-for-2024/"><u>[Updated] Demystifying the Journey to Knowing Who Watches You for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-graphic-design-journeys-from-passion-to-profession/"><u>[Updated] Graphic Design Journeys From Passion to Profession</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-game-to-video-magic-full-obs-guide-for-ps4-recording/"><u>[Updated] In 2024, Game-to-Video Magic Full OBS Guide for PS4 Recording</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-pro-video-enhancement-ranking-the-superior-15-gopro-lut-tools/"><u>[Updated] Pro Video Enhancement Ranking the Superior 15 GoPro LUT Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-radial-magic-transforming-ordinary-photos-into-art/"><u>2024 Approved Radial Magic Transforming Ordinary Photos Into Art</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-samsung-galaxy-m14-4g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Samsung Galaxy M14 4G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-fixes-for-fifa-22-pc-game-freezing-issues/"><u>Resolved: Fixes for FIFA 22 PC Game Freezing Issues</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/samsung-blu-ray-player-issues-solutions-for-common-problems/"><u>Samsung Blu Ray Player Issues? Solutions for Common Problems</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/streamline-your-browsing-with-these-7-android-centric-adblockers-for-2024/"><u>Streamline Your Browsing with These 7 Android-Centric AdBlockers for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-rated-free-vp9-codec-software-for-easy-video-encryption/"><u>Top Rated Free VP9 Codec Software for Easy Video Encryption</u></a></li>
-<li><a href="https://win-answers.techidaily.com/valheim-optimization-say-goodbye-to-hitches-and-frost-ups-for-smooth-gaming-on-computer/"><u>Valheim Optimization: Say Goodbye to Hitches & Frost-Ups for Smooth Gaming on Computer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ascending-with-expertise-mastering-the-art-and-science-of-asmr-production-for-2024/"><u>[New] Ascending with Expertise Mastering The Art & Science of ASMR Production for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-apples-audio-world-a-download-guide-for-ios-users/"><u>[New] Unlocking Apple's Audio World A Download Guide for iOS Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unveiling-the-visual-magic-lg-27uhd68-4k-sync-tv/"><u>[Updated] 2024 Approved Unveiling the Visual Magic LG 27UHD68 4K Sync TV</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capitalizing-on-hairstyle-demonstrations/"><u>[Updated] In 2024, Capitalizing on Hairstyle Demonstrations</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-seo-secrets-unveiled-a-comprehensive-guide-to-boosting-podcast-rankings/"><u>[Updated] SEO Secrets Unveiled A Comprehensive Guide to Boosting Podcast Rankings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shocking-stats-mind-bending-youtube-visual-facts-17/"><u>[Updated] Shocking Stats Mind-Bending Youtube Visual Facts ('17)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-youtubes-vs-dailymentions-spotting-key-differences/"><u>2024 Approved YouTubes Vs. DailyMentions Spotting Key Differences</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discovering-the-upgrades-in-apples-latest-airpods-series-a-comparison-of-new-models/"><u>Discovering the Upgrades in Apple's Latest AirPods Series - A Comparison of New Models</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-2023s-leading-facebook-film-extractors-top-picks/"><u>In 2024, 2023'S Leading Facebook Film Extractors - Top Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubing-into-visual-wonders-learn-from-greenscreen-pros/"><u>In 2024, Youtubing Into Visual Wonders – Learn From Greenscreen Pros</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-computer-screen-captures-in-minutes/"><u>Mastering the Art of Computer Screen Captures in Minutes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/subscribe-like-a-pro-true-or-false-for-2024/"><u>Subscribe Like a Pro True or False for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-most-essential-5-earbuds-for-gaming-for-2024/"><u>The Most Essential 5 Earbuds for Gaming for 2024</u></a></li>
 </ul></div>
 

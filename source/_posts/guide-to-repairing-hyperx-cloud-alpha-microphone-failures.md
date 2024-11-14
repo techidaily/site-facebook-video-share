@@ -1,7 +1,7 @@
 ---
 title: Guide to Repairing HyperX Cloud Alpha Microphone Failures
-date: 2024-11-09T09:18:54.712Z
-updated: 2024-11-13T13:05:07.490Z
+date: 2024-11-11T18:02:08.504Z
+updated: 2024-11-13T18:17:48.850Z
 tags:
   - win11
   - win10
@@ -40,13 +40,20 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/hx-product-headset-alpha-s-black-2-lg-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If you’ve attached the microphone to your headset correctly but your mic still won’t catch your voice, try the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 2: Enable your headset mic for recording
 
@@ -57,26 +64,26 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 2. Go to the**Recording** tab and you should see your headset. If you can’t find it, it could be hidden or disabled. You can right-click an empty area then select Show**Disabled Devices** .  
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_16-57-37.jpg)
 3. Right-click your headset, then click**Enable** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-05-17.jpg)
 4. Click**Apply** then**OK** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-06-58.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If your headset is enabled for recording but the microphone is still not working, move on to the next fix.
 
@@ -101,23 +108,16 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-08-05.jpg)
 2. Click**Change** , then**turn on the microphone access** **for this device** .  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-10-26.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If this doesn’t fix your mic problem, try the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 5: Update your audio driver
 
@@ -134,15 +134,15 @@ If this doesn’t fix your mic problem, try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-35.jpg)
 3. Click the **Update**  button next to the flagged audio driver to automatically download the correct version of the driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the [Pro version](https://tools.techidaily.com/drivereasy/download/) which comes with full support and a 30-day money-back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-43.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ---
 
@@ -167,17 +167,21 @@ If this doesn’t fix your mic problem, try the next fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-audio-tools-free-superior-dj-templates-online/"><u>[New] 2024 Approved Essential Audio Tools Free, Superior DJ Templates Online</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-efficient-sound-capture-on-windows-10-part-1/"><u>[New] Efficient Sound Capture on Windows 10, Part 1</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-secrets-to-boosting-your-income-via-youtube-shorts-monetization/"><u>[New] The Secrets to Boosting Your Income via YouTube Shorts Monetization</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-virtual-pantheon-of-streaming-achievements/"><u>[New] Virtual Pantheon of Streaming Achievements</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elevate-your-chat-game-with-astrological-bios/"><u>[Updated] 2024 Approved Elevate Your Chat Game with Astrological Bios</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-haute-couture-at-home-makeup-tools-and-techniques/"><u>[Updated] Haute Couture at Home Makeup, Tools & Techniques</u></a></li>
-<li><a href="https://fox-that.techidaily.com/bypassing-hurdles-a-guide-for-successful-payments-on-apple-platforms/"><u>Bypassing Hurdles: A Guide for Successful Payments on Apple Platforms</u></a></li>
-<li><a href="https://games-able.techidaily.com/exploring-why-gamers-choose-multi-mode-monitors/"><u>Exploring Why Gamers Choose Multi-Mode Monitors</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Xiaomi Civi 3? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-pro-video-gear-expert-recommendations-for-youtube-clips/"><u>In 2024, Pro Video Gear Expert Recommendations for YouTube Clips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/showcasing-the-potential-of-small-phones-in-depth-analysis-of-apples-iphone-12-mini/"><u>Showcasing the Potential of Small Phones - In-Depth Analysis of Apple's iPhone 12 Mini</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/visualizing-success-designing-captivating-teasers-and-trailers-for-your-podcasts/"><u>Visualizing Success Designing Captivating Teasers and Trailers for Your Podcasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-earning-potential-unveiled-youtube-adsense-earning-per-thousand-video-observations/"><u>[New] 2024 Approved Earning Potential Unveiled YouTube AdSense Earning per Thousand Video Observations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-filmmakers-guide-to-mastering-green-screen-technology/"><u>[New] In 2024, A Filmmaker's Guide to Mastering Green Screen Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-beyond-youtube-with-these-top-5-video-tools/"><u>[New] In 2024, Explore Beyond Youtube with These Top 5 Video Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-learning-the-process-of-acquiring-movie-maker-6/"><u>[New] In 2024, Learning the Process of Acquiring Movie Maker 6</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>[New] In 2024, Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-exodus-of-followers-instagrams-new-map/"><u>[New] In 2024, The Exodus of Followers Instagram's New Map</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-content-sharing-youtube-standards-vs-creative-commons/"><u>[New] Navigating Content Sharing YouTube Standards Vs. Creative Commons</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-sprightly-spirits-top-kid-approved-games-for-2024/"><u>[New] Sprightly Spirits Top Kid-Approved Games for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-utilizing-inbuilt-cameras-for-screen-recording-on-mate-and-p-series-smartphones-mate-10-mate-20-p20-p10/"><u>[New] Utilizing Inbuilt Cameras for Screen Recording on Mate and P Series Smartphones (Mate 10, Mate 20; P20, P10)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-day-jobs-and-digital-passion-striking-a-balance-for-2024/"><u>[Updated] Day Jobs & Digital Passion Striking a Balance for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-captivate-viewers-designing-engaging-youtube-trailers-with-filmora/"><u>[Updated] In 2024, Captivate Viewers Designing Engaging YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-to-network-or-not-a-detailed-guide-for-youtubers-considering-mncs/"><u>[Updated] To Network, Or Not A Detailed Guide for YouTubers Considering MNCs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/avs-video-editor-a-comprehensive-analysis/"><u>AVS Video Editor A Comprehensive Analysis</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discover-the-action-packed-features-of-ion-air-pro-3/"><u>Discover the Action-Packed Features of ION Air Pro 3</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-motorola-edge-2023-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Motorola Edge 2023 Phones</u></a></li>
 </ul></div>
 

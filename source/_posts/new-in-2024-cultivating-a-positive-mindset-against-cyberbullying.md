@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Cultivating a Positive Mindset Against Cyberbullying"
-date: 2024-08-01T10:49:18.261Z
-updated: 2024-08-02T10:49:18.261Z
+date: 2024-11-10T06:58:11.400Z
+updated: 2024-11-13T18:36:38.203Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -70,12 +60,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-tips-for-professional-youtube-content-creation/"><u>[New] 2024 Approved Cutting-Edge Tips for Professional YouTube Content Creation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-unlock-potential-top-10-free-easy-mac-screen-recorders-for-2024/"><u>[New] Unlock Potential Top 10 Free, Easy Mac Screen Recorders for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-streams-using-youtubes-av1-settings/"><u>[Updated] 2024 Approved Elevate Streams Using YouTube's AV1 Settings</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-crafting-memorable-tweets-video-integration-for-2024/"><u>[Updated] Crafting Memorable Tweets Video Integration for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-bite-sized-biographical-look/"><u>[Updated] In 2024, Bite-Sized Biographical Look</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-a-winning-live-broadcast-essentials-and-strategies-for-2024/"><u>Crafting a Winning Live Broadcast Essentials and Strategies for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-speedy-file-assessment-on-windows-pcs/"><u>In 2024, Speedy File Assessment on Windows PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maven-ends-tenure-at-social-media-giant/"><u>Marketing Maven Ends Tenure at Social Media Giant</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-understanding-audacitys-noise-suppression-techniques-step-by-step-guide/"><u>New In 2024, Understanding Audacitys Noise Suppression Techniques Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/personalize-with-free-youtube-profile-designs-for-2024/"><u>Personalize With FREE YouTube Profile Designs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-10-soundscape-enhancers-for-all-os-types-for-2024/"><u>Top 10 Soundscape Enhancers for All OS Types for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

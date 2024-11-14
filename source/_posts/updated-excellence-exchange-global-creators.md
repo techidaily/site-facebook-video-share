@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Excellence Exchange  Global Creators\""
-date: 2024-11-07T00:28:59.671Z
-updated: 2024-11-13T12:04:54.941Z
+date: 2024-11-09T02:33:01.618Z
+updated: 2024-11-13T18:44:01.110Z
 tags:
   - ai video
   - ai youtube
@@ -59,33 +59,40 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
@@ -94,10 +101,10 @@ _thinknoodles wearing his YouTube slippers._
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Denim jacket
@@ -105,13 +112,6 @@ There were numerous custom pins available at different events at the summit. Asi
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -138,14 +138,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-accelerate-yt-growth-strategies-for-1kplus-subscribers/"><u>[New] In 2024, Accelerate YT Growth Strategies for 1K+ Subscribers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-ideal-steps-for-silent-screen-imaging/"><u>[New] In 2024, Ideal Steps for Silent Screen Imaging</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-install-and-upgrade-guide-to-the-latest-macos-sierra/"><u>[New] Install and Upgrade Guide to the Latest macOS Sierra</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-master-screen-time-find-your-must-have-7-android-blockers/"><u>[Updated] Master Screen Time Find Your Must-Have 7 Android Blockers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-reversing-a-youtube-strike-a-guide/"><u>[Updated] Reversing a YouTube Strike A Guide</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-enable-disable-and-change-safari-location-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Enable, Disable, and Change Safari Location on Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-issue-initialization-failure-of-battleye-service-now-functional/"><u>Resolved Issue: Initialization Failure of BattlEye Service – Now Functional</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-fundamentals-of-quality-streaming-how-to-do-it-right-with-wirecast-and-youtube-for-2024/"><u>The Fundamentals of Quality Streaming How to Do It Right with WireCast and Youtube for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/unveiling-the-role-of-chief-ai-officers-steps-to-secure-this-key-position/"><u>Unveiling the Role of Chief AI Officers - Steps to Secure This Key Position</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-freefire-hashtags-to-skyrocket-video-views-on-youtube/"><u>[New] 2024 Approved Essential FreeFire Hashtags to Skyrocket Video Views on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtube-organizing-music-into-a-playlist/"><u>[New] Mastering YouTube Organizing Music Into a Playlist</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-guide-to-finding-free-westeros-ringtones-for-2024/"><u>[New] The Ultimate Guide to Finding Free Westeros Ringtones for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-beginners-overview-of-animation-trends/"><u>[Updated] 2024 Approved Beginner's Overview of Animation Trends</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-audience-centric-approaches-to-voiceover-on-slides-for-2024/"><u>[Updated] Audience-Centric Approaches to Voiceover on Slides for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-indie-filmmakers-online-youtube-tutorials-for-growth/"><u>[Updated] Indie Filmmakers Online YouTube Tutorials for Growth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfect-your-mobile-shoot-expert-picks-of-the-best-9-cam-gear/"><u>[Updated] Perfect Your Mobile Shoot Expert Picks of the Best 9 Cam Gear</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-instagram-edge-vertical-footage-editing-techniques-on-final-cut-x-for-2024/"><u>[Updated] The Instagram Edge Vertical Footage Editing Techniques on Final Cut X for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-understanding-facebooks-new-ranking-system/"><u>2024 Approved Understanding Facebook's New Ranking System</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-users-handbook-disposal-of-applications-in-samsung-television-systems/"><u>The User's Handbook: Disposal of Applications in Samsung Television Systems</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-affordable-panoramic-cameras-under-100-for-2024/"><u>Top Affordable Panoramic Cameras Under $100 for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/troubleshooting-guide-fixing-windows-media-player-issues-on-windows-11/"><u>Troubleshooting Guide: Fixing Windows Media Player Issues on Windows 11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-your-potential-50-free-high-impact-banners-at-your-disposal-for-2024/"><u>Unlock Your Potential 50 FREE, High-Impact Banners at Your Disposal for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/wealthiest-web-workshops-hosts-for-2024/"><u>Wealthiest Web Workshops Hosts for 2024</u></a></li>
 </ul></div>
 

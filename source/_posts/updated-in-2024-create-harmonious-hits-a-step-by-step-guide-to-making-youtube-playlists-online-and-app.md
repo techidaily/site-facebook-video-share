@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Create Harmonious Hits  A Step-by-Step Guide to Making YouTube Playlists Online & App\""
-date: 2024-11-11T08:10:33.042Z
-updated: 2024-11-13T08:48:28.046Z
+date: 2024-11-12T18:46:20.823Z
+updated: 2024-11-14T01:36:50.215Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,13 @@ If you are using a Windows or Mac computer and want to create a YouTube music pl
 Step1 In the first step, turn on your PC, launch a web browser from the desktop or Dock, and head to the [YouTube](https://www.youtube.com/) website. Next, Sign into your account with your Google email ID if you are not already logged in.
 
 ![signing into youtube](https://images.wondershare.com/filmora/article-images/2023/03/signing-into-youtube.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -75,10 +82,10 @@ Step1 Download and launch the YouTube Music app on your [iPhone](https://apps.ap
 ![create playlist on youtube music iPhone app](https://images.wondershare.com/filmora/article-images/2023/03/create-playlist-on-youtube-music-iPhone-app.png)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Now tap the three horizontal lines with the Plus icon, tap **"+ NEW PLAYLIST"** at the bottom right corner of the screen, and type in the name of the new music playlist.
@@ -149,9 +156,35 @@ Step4 Repeat the second and third steps to save all the other songs you wish to 
 
 ![accessing youtube playlists on web](https://images.wondershare.com/filmora/article-images/2023/03/accessing-youtube-playlists-on-web.png)
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** You can always edit your YouTube music playlist by changing its name, privacy, and description or adding and removing any tracks. It is also possible to delete any of your playlists or create and save multiple playlists on your device's web browser.
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Create a YouTube Music playlist on iPhone?
 
@@ -184,6 +217,13 @@ Then, tap **"Create a new playlist"** at the bottom right corner of the screen, 
 Step2 In the next step, choose your privacy preferences and tap **"OK"** to create the new YouTube music playlist.
 
 ![creating youtube music playlist android](https://images.wondershare.com/filmora/article-images/2023/03/creating-youtube-music-playlist-android.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now tap to close the video, tap **"Library"** at the bottom of the screen, scroll down in the middle of the app and view your new YouTube music playlist.
 
@@ -372,6 +412,13 @@ Similarly, if you want to add more than one video together, you can carry out th
 
 ![speed and duration settings](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Adjust the size and positioning of the video
 
 You can also access the editing interface to adjust the position of the video on top. Simply drag the sliders on the interface to change the size, direction and position of the video.
@@ -387,16 +434,10 @@ Some advanced editing can also be done to make the video more impressive. Double
 ![applying motion effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 2\. Adjust the tone of video
@@ -424,13 +465,6 @@ Filmora has additional features like stock photos and video footage that can be 
 Go to the top menu and click on effects; you can find many of them; they are categorized in the left vertical menu.
 
 ![filmora effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Stock Videos:**
 
@@ -465,13 +499,6 @@ The video is saved by simply clicking ‘ Export.’ You can always share the vi
 ![export video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-18.jpg)
 
 The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -527,13 +554,6 @@ As you know, YouTube operates on a cbasis. This means per 1000 views, you can ex
 ![mr beast wealth growth over the years](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-3.jpg)
 
 The data represents Mr. Beast’s YouTube earning of last 6 years. His earnings were substantially low since the start of his YouTube career in early 2017 when he posted his first video of [counting 100,000](https://www.youtube.com/watch?v=xWcldHxHFpo). However, it began to increase with time.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Why is Mr. Beast Trending on YouTube?
 
@@ -635,13 +655,6 @@ Similarly, if you want to add more than one video together, you can carry out th
 
 ![speed and duration settings](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4 Adjust the size and positioning of the video
 
 You can also access the editing interface to adjust the position of the video on top. Simply drag the sliders on the interface to change the size, direction and position of the video.
@@ -655,19 +668,6 @@ Some advanced editing can also be done to make the video more impressive. Double
 1\. Applying motion effects
 
 ![applying motion effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-9.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2\. Adjust the tone of video
 
@@ -705,13 +705,6 @@ Now you can easily find content to make your videos attractive.
 
 ![filmora stock media](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Elements:**
 
 Filmora has an extensive stock of Elements; with the proper use of Elements in YouTube videos, you can make them engaging and interactive. You already know the importance of interactive videos.
@@ -735,6 +728,19 @@ The video is saved by simply clicking ‘ Export.’ You can always share the vi
 ![export video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-18.jpg)
 
 The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -761,18 +767,24 @@ No doubt, Mr. Beast has become a leading artist on this platform and made a trem
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-apex-artists-youtubes-most-followed-sages/"><u>[New] 2024 Approved Apex Artists YouTube's Most-Followed Sages</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-ringtones-from-youtube-a-compilation-of-optimal-download-hubs/"><u>[New] 2024 Approved Ringtones From YouTube A Compilation of Optimal Download Hubs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos-for-2024/"><u>[New] Ace Your Edits In-Depth Guide to High-Quality YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-economic-riches-of-mr-beast-for-2024/"><u>[New] Decoding the Economic Riches of Mr. Beast for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-how-to-upgrade-or-install-the-macos-sierra/"><u>[New] How to Upgrade or Install the macOs Sierra</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beyond-popularity-youtube-earnings-for-1m-viewer-base/"><u>[New] In 2024, Beyond Popularity – YouTube Earnings for 1M Viewer Base</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-detectives-playbook-for-scouring-secret-youtube-content/"><u>[New] The Detective's Playbook for Scouring Secret YouTube Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>[Updated] In 2024, Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-big-sur-basics-for-system-and-hardware-enthusiasts/"><u>2024 Approved Big Sur Basics for System & Hardware Enthusiasts</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-honor-x50-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Honor X50 without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-from-your-apple-iphone-6-plus-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID From Your Apple iPhone 6 Plus</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/prime-channel-themes-igniting-viewer-motivation-for-2024/"><u>Prime Channel Themes Igniting Viewer Motivation for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/taming-echoes-syncing-voices-to-obs-channel/"><u>Taming Echoes Syncing Voices to OBS Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-your-content-techniques-for-successful-youtube-and-twitch-multi-streams/"><u>[New] 2024 Approved Amplify Your Content Techniques for Successful Youtube & Twitch Multi-Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-new-territory-youtubes-revised-policies/"><u>[New] 2024 Approved Charting New Territory YouTube's Revised Policies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-photo-tools-top-9-camgear-enhancers-for-filmmakers/"><u>[New] In 2024, Essential Photo Tools Top 9 CamGear Enhancers for Filmmakers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ultimate-action-camera-duel-hero5-black-vs-hero4-silver-for-2024/"><u>[New] Ultimate Action Camera Duel Hero5 Black VS Hero4 Silver for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-15-premium-free-music-websites-every-videographer-needs/"><u>[Updated] 2024 Approved 15 Premium, Free Music Websites Every Videographer Needs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-online-stock-market-channels-reviewed/"><u>[Updated] 2024 Approved Best Online Stock Market Channels Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enjoy-endless-creativity-discover-the-best-in-cheap-online-video-downloading/"><u>[Updated] In 2024, Enjoy Endless Creativity Discover the Best in Cheap, Online Video Downloading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-eras-endwatchers-top-youtube-viewership/"><u>[Updated] In 2024, Era's Endwatchers Top YouTube Viewership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pinpointing-youtubes-favorite-remarks/"><u>[Updated] Pinpointing YouTube's Favorite Remarks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-guide-to-pause-and-extend-videos-on-snapchat/"><u>[Updated] Step-by-Step Guide to Pause & Extend Videos on Snapchat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-best-lighting-tools-ranked-17-1/"><u>[Updated] YouTube's Best Lighting Tools Ranked #17-1</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-solutions-for-unresponsive-microphones-in-turtlete-beachs-elite-atlas-device/"><u>Effective Solutions for Unresponsive Microphones in Turtlete Beach's Elite Atlas Device</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-oneplus-nord-ce-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-realme-c53-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Realme C53 by Name | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-vivo-v27e-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Vivo V27e to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-reimagining-past-moments-transforming-pictures-into-clips/"><u>In 2024, Reimagining Past Moments Transforming Pictures Into Clips</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-huawei-nova-y71-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Huawei Nova Y71 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/seamless-conversion-of-au-audio-files-to-mp3-an-easy-guide/"><u>Seamless Conversion of AU Audio Files to MP3: An Easy Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/silencing-the-cacophony-soundcard-irq-fixes/"><u>Silencing the Cacophony: Soundcard IRQ Fixes</u></a></li>
 </ul></div>
 

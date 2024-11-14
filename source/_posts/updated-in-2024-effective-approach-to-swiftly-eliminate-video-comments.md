@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Effective Approach to Swiftly Eliminate Video Comments"
-date: 2024-08-01T10:50:55.019Z
-updated: 2024-08-02T10:50:55.019Z
+date: 2024-11-09T06:43:07.713Z
+updated: 2024-11-13T20:40:21.442Z
 tags:
   - ai video
   - ai youtube
@@ -47,9 +47,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -72,6 +69,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -86,9 +90,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -107,14 +108,22 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -134,17 +143,18 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,12 +162,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-artisans-gathering-haven/"><u>[New] 2024 Approved Digital Artisans Gathering Haven</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-guide-eradicating-pending-videos-on-your-youtube-queue/"><u>[New] 2024 Approved Guide Eradicating Pending Videos on Your YouTube Queue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-creating-impactful-outros-top-6-free-tools-for-2024/"><u>[New] Creating Impactful Outros Top 6 FREE Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-brand-differentiation-with-powerful-youtube-names/"><u>[New] In 2024, Brand Differentiation with Powerful YouTube Names</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-top-innovations-best-vr-tech-for-drones/"><u>[New] In 2024, Top Innovations Best VR Tech for Drones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube-for-2024/"><u>[Updated] Assessing the Value of 4-Second Rapid Subscriptions on Youtube for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-enhancing-online-presence-best-practices-for-win11-zoom-users/"><u>[Updated] In 2024, Enhancing Online Presence Best Practices for Win11 Zoom Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mp3-to-video-stream-mp3-to-youtube-in-3-easy-steps/"><u>[Updated] MP3 to Video Stream MP3 to YouTube in 3 Easy Steps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/decoding-the-technology-behind-espns-cutting-edge-streaming-service-for-fans/"><u>Decoding the Technology Behind ESPN's Cutting-Edge Streaming Service for Fans</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-humor-in-captivity-top-20-memes-from-jail-to-joys-of-online-life/"><u>In 2024, Humor in Captivity Top 20 Memes From Jail to Joys of Online Life</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-photoshop-shake-control-necessary-tool-or-unnecessary/"><u>In 2024, Photoshop Shake Control Necessary Tool or Unnecessary?</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-vsdc-free-video-editor-review/"><u>New VSDC Free Video Editor Review</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-timing-for-on-screen-dialogue-in-your-youtube-productions-for-2024/"><u>Perfect Timing for On-Screen Dialogue in Your YouTube Productions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-checklist-for-establishing-a-distinctive-online-self-for-2024/"><u>The Ultimate Checklist for Establishing a Distinctive Online Self for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/understanding-instagrams-privacy-controls-for-2024/"><u>Understanding Instagram's Privacy Controls for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-tagging-system-unveiled-for-2024/"><u>YouTube's Tagging System Unveiled for 2024</u></a></li>
+</ul></div>
 

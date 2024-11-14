@@ -1,7 +1,7 @@
 ---
 title: "Beat Lag Like a Pro: Improve Your Fortnite Experience with Effective Troubleshooting"
-date: 2024-11-11T06:23:07.580Z
-updated: 2024-11-13T11:42:10.893Z
+date: 2024-11-10T21:58:55.574Z
+updated: 2024-11-14T02:27:16.131Z
 tags:
   - win11
   - win10
@@ -65,6 +65,13 @@ Here’s how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/genshin-admin-3.jpg)
 4. Run Genshin Impact and see if the crash has gone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If this fix failed to solve the crash, simply**undo these changes** and move on to the next solution.
 
 ### Fix 3: Update your graphics driver
@@ -77,13 +84,6 @@ Here’s how:
 2. Run Driver Easy and click the**Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/Scan-now.jpg)
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)
@@ -111,13 +111,6 @@ Here’s how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/task-manager-startup.jpg)
 5. One at a time, select any programs you suspect might be interfering, and click **Disable** .  
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/task-manager-startup-disable-startup-program.jpg)
 6. Restart your PC.
 
@@ -139,6 +132,13 @@ Here’s how you can install system updates on Windows 10 or 7:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click**Check for updates** again.
 
 #### Windows 7
@@ -147,20 +147,33 @@ Here’s how you can install system updates on Windows 10 or 7:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/windows-7-install-updates.jpg)
 2. Select**System and Security** .  
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/windows-7-install-updates-3.jpg)
 3. Click**Windows Update** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/windows-7-install-updates-4.jpg)
 4. Click**Install updates** . It’ll take a while (up to 1 hour) for Windows to install all the updates.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/windows-7-install-updates-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  After installing all the system updates, restart your PC and test the gameplay with Genshin Impact.
 
@@ -179,14 +192,14 @@ And here’s how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/genshin-change-resolute-2.jpg)
 3. Continue your game and see if it stops crashing.
 
- If this method doesn’t do the trick for you, simply try the next one below.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ If this method doesn’t do the trick for you, simply try the next one below.
 
 ### Fix 7: Lower in-game graphics settings
 
@@ -196,14 +209,14 @@ And just for your reference, here’s my graphics settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/genshin-my-settings-1200x648.jpg)
 
- If the crash persists when you’re playing on the lowest graphics, you can check out the next solution.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ If the crash persists when you’re playing on the lowest graphics, you can check out the next solution.
 
 ### Fix 8: Run Genshin Impact on another GPU
 
@@ -221,28 +234,21 @@ And just for your reference, here’s my graphics settings:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-1.jpg)
 2. Under the**Multiple displays** section, click**Graphics settings** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-2.jpg)
 3. Click**Browse** to specify the file location of the Genshin Impact launcher.  
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-3.jpg)
 4. Click**Options** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-4.jpg)
 5. Select**Power saving** and click**Save** .  
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-5.jpg)
 
@@ -259,14 +265,20 @@ Now you can launch Genshin Impact and see if it stops crashing.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/fortect-start-scan.jpg)
 3. Once finished, you’ll see a report showing all the issues. To fix all the issues automatically, click**Start Repair** (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).  
 
-![](https://images.drivereasy.com/wp-content/uploads/2020/10/fortect-start-repair.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/10/fortect-start-repair.jpg)
 
  Fortect comes with a 60-day Money-Back Guarantee. If you’re not satisfied with Fortect, you can contact <support@fortect.com> for a full refund.
 
@@ -289,17 +301,24 @@ Now you can launch Genshin Impact and see if it stops crashing.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-channel-personality-complimentary-youtube-graphics-for-2024/"><u>[New] Channel Personality Complimentary YouTube Graphics for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-understanding-the-impact-of-youtube-money-changes/"><u>[New] Understanding the Impact of YouTube Money Changes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-drive-engagement-not-farewells-top-strategies-to-keep-your-audience-hooked-on-youtube-for-2024/"><u>[Updated] Drive Engagement, Not Farewells Top Strategies to Keep Your Audience Hooked on YouTube for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723206534915-arrow-keys-not-working-check-out-these-effective-repair-strategies/"><u>Arrow Keys Not Working? Check Out These Effective Repair Strategies!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-accelerating-livestreams-on-periscope-made-easy/"><u>In 2024, Accelerating Livestreams on Periscope Made Easy</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-premier-vocal-mix-app-for-android-advocates/"><u>In 2024, Premier Vocal Mix App for Android Advocates</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-youtube-editing-tips-and-tricks-for-shorter-videos/"><u>In 2024, YouTube Editing Tips and Tricks for Shorter Videos</u></a></li>
-<li><a href="https://win11.techidaily.com/quicken-keystrokes-unlocking-potential-via-powertoys/"><u>Quicken Keystrokes: Unlocking Potential via PowerToys</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/social-media-supremacy-top-10-youtube-influencers-for-2024/"><u>Social Media Supremacy Top 10 YouTube Influencers for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/step-by-step-guide-converting-opus-files-into-mp3-format-both-online-and-offline/"><u>Step-by-Step Guide: Converting Opus Files Into MP3 Format Both Online and Offline</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/syncopate-sound-and-picture-youtubes-audio-editing-techniques-for-2024/"><u>Syncopate Sound and Picture YouTube's Audio Editing Techniques for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-and-reviews/"><u>Tom's Tech Insights and Reviews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-easy-relief-music-legal-top-10-downloads-to-soothe-your-mind/"><u>[New] 2024 Approved Easy Relief Music – Legal, Top 10 Downloads to Soothe Your Mind</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-youtube-end-screen-templates-for-content-makers-for-2024/"><u>[New] Essential YouTube End Screen Templates for Content Makers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-the-art-of-video-editing-with-top-7-sounds-selections/"><u>[New] Master the Art of Video Editing with Top 7 Sounds Selections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exclusive-catalogue-free-to-use-stock-media-sites/"><u>[Updated] Exclusive Catalogue Free-to-Use Stock Media Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-finding-your-next-big-idea-in-iconography-at-these-6-places/"><u>[Updated] Finding Your Next Big Idea in Iconography at These 6 Places</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ideal-voice-transformation-tools-for-digital-talent/"><u>[Updated] Ideal Voice Transformation Tools for Digital Talent</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-digital-domain-decisions-short-form-content/"><u>[Updated] In 2024, Digital Domain Decisions Short-Form Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-creating-compelling-youtube-video-outlines/"><u>[Updated] The Art of Creating Compelling YouTube Video Outlines</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-virtually-profitable-gaming-channels/"><u>[Updated] Virtually Profitable Gaming Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-concealed-visibility-mastering-visual-obscurity-in-videos/"><u>2024 Approved Concealed Visibility Mastering Visual Obscurity in Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/battle-for-asgard-the-ragnarok-chronicles-for-2024/"><u>Battle for Asgard The Ragnarök Chronicles for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-to-overcome-warcraft-lagging-problems/"><u>Expert Tips to Overcome Warcraft Lagging Problems</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gtx-970-compatibility-latest-updates-for-win-11/"><u>GTX 970 Compatibility: Latest Updates for Win 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-in-the-market-with-them-best-video-for-stocks/"><u>In 2024, In the Market with Them Best Video for Stocks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-content-management-for-instagram-profiles/"><u>In 2024, YouTube Content Management for Instagram Profiles</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/privacy-alert-learn-how-to-identify-a-hidden-airtag-tracker/"><u>Privacy Alert: Learn How to Identify a Hidden AirTag Tracker</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-steps-for-mending-windows-hello-fingerprint-issues/"><u>Quick Steps for Mending Windows Hello Fingerprint Issues</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/starting-a-channel-with-confidence-your-essential-kit-for-2024/"><u>Starting a Channel with Confidence – Your Essential Kit for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-11-optimization-tips-for-a-superior-gaming-experience/"><u>Windows 11 Optimization Tips for a Superior Gaming Experience</u></a></li>
 </ul></div>
 
