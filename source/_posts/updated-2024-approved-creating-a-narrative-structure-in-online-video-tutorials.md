@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Creating a Narrative Structure in Online Video Tutorials\""
-date: 2024-11-10T07:24:56.224Z
-updated: 2024-11-14T01:03:13.090Z
+date: 2024-11-19T02:20:26.403Z
+updated: 2024-11-23T22:03:02.795Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 
  There are some key elements of a YouTube video's structure which can make it more natural, more engaging and more fun to watch. When you're planning your structure, you should follow a logical timeline to take the viewer from start to finish easily, and to ensure you get the actions you want at the end.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Intro
 
  People love to be told what's about to happen, and an intro can be a crucial step in ensuring they are going to continue watching your content. By explaining clearly what they are about to see, why it's important to them and what problems you're aiming to solve, you'll keep them hooked and prevent them from browsing away to the next search result.
@@ -66,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 ![](https://images.wondershare.com/filmora/article-images/youtube-structure.jpg)
 
  Your idea and purpose need to be conveyed fast and effectively if you're keen to get their interest. Most viewers will decide within the first three to five seconds of a video if they want to invest their time in watching, so it's crucial you capture their interest and engage them fast to stop them drifting away.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Main content
 
@@ -81,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 
  Now you've addressed the issue that your video content will solve, you're almost ready to ask them to take the next step. Almost. There's one more key element in your structure that you need to remember to include.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Hook
 
  The hook can be placed anywhere in your content, although it's most successful when placed either in the introduction or while you are framing the problem. The hook is a tidbit that aims to encourage a full viewing of your video, so don't give away your solutions but do give them a reason to carry on watching.
@@ -95,10 +85,7 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
  If there's a particular point where you think they might become bored or distracted, this is a great time to insert your hook. Come up with a powerful hook, for instance 'with my solution I managed to go from ten views to two hundred in an hour' or 'when you hear this solution you'll understand how I tripled my profits overnight'. Give them a reason to want to stay to the end.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Outro
@@ -106,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
  Your outro shouldn't just be about signing off in your unique way with some lovely music and visuals. This is the point at which you can ask something back from your audience, whatever that may be. We call this a 'call to action', and it could eb something as simple as subscribing through to something more involved like visiting your website.
 
  Think about what you want from your audience; what should they do next? Remember to ask via a strong call to action, otherwise you've simply given them some free advice with very little in the way of a return for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Script or no script?
 
@@ -117,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 
  **Read More to Get :** [How to Loop a YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ready to go out and make amazing videos?
 
  Having a structure to your videos might seem a little unnatural at first, but there's plenty of evidence to show that people who take the time to plan their content get far better results than those who just improvise. If you're unsure of the best structure for your content, watch videos made by others in your niche to see how they organize theirs.
@@ -126,10 +121,7 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -147,19 +139,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-android-and-iphones-hottest-social-tools-to-increase-fb-likes/"><u>[New] Android & iPhone's Hottest Social Tools to Increase FB Likes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-charting-a-path-to-profit-calculating-video-view-requirements-for-2024/"><u>[New] Charting a Path to Profit Calculating Video View Requirements for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-monetizing-content-how-much-adsense-pays-you-per-thousand-video-hits/"><u>[New] Monetizing Content How Much AdSense Pays You Per Thousand Video Hits?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-livestream-guidebook-recommended-tools-and-devices-compilation/"><u>[New] Ultimate Livestream Guidebook Recommended Tools and Devices Compilation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-compreeved-guide-to-creating-stellar-youtube-outros-for-2024/"><u>[Updated] Compreeved Guide to Creating Stellar YouTube Outros for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-easily-download-your-favorites-handpicked-tools-reviewed/"><u>[Updated] In 2024, Easily Download Your Favorites Handpicked Tools Reviewed</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-snapshot-surprises-yearly-yt-stats-and-trends-in-graphics/"><u>[Updated] Snapshot Surprises Yearly YT Stats & Trends in Graphics</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-rapid-rise-top-10-in-a-flash/"><u>2024 Approved Youtube's Rapid Rise Top 10 in a Flash</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/above-par-editing-software-for-ios-and-android-smartphones-for-2024/"><u>Above-Par Editing Software for iOS & Android Smartphones for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/detailed-walkthrough-fixing-error-6-for-pc-gamers-in-battlefield-v-and-modern-warfare/"><u>Detailed Walkthrough: Fixing Error 6 for PC Gamers in Battlefield V and Modern Warfare</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/herausragende-iphone-klingeltone-kreieren-top-klingelton-editor-fur-iphones/"><u>Herausragende iPhone-Klingeltöne Kreieren - Top Klingelton-Editor Für iPhones</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-iphone-7-plus-by-drfone-ios/"><u>How To Unlock A Found iPhone 7 Plus?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/integral-youtube-conduct-framework-for-2024/"><u>Integral YouTube Conduct Framework for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-resource-for-profiting-from-your-youtube-content-for-2024/"><u>The Ultimate Resource for Profiting From Your YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-editmaster-suite/"><u>[New] 2024 Approved EditMaster Suite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered-for-2024/"><u>[New] Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-digital-vault-for-internet-streams-a-recording-blueprint/"><u>[New] Digital Vault for Internet Streams A Recording Blueprint</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-pioneering-the-vr-world-essential-gear-ranked/"><u>[New] In 2024, Pioneering the VR World Essential Gear Ranked</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-leap-into-instagram-stardom-with-ease/"><u>[Updated] 2024 Approved Leap Into Instagram Stardom with Ease</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-beginners-guide-to-sony-vegas-and-youtube-cutting-for-2024/"><u>[Updated] A Beginner's Guide to Sony Vegas and YouTube Cutting for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pro-video-creators-guide-to-ideal-laptops/"><u>[Updated] Pro Video Creators' Guide to Ideal Laptops</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-clarifying-misleading-self-representations-on-fb/"><u>2024 Approved Clarifying Misleading Self-Representations on FB</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-tecno-spark-20-by-drfone-android/"><u>Full Guide to Unlock Your Tecno Spark 20</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-tecno-spark-20c-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Tecno Spark 20C Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/the-cost-of-staying-current-microsoft-announces-paid-windows-11-update-fees-beginning-next-year-insights-and-pricing-details/"><u>The Cost of Staying Current: Microsoft Announces Paid Windows 11 Update Fees Beginning Next Year - Insights and Pricing Details</u></a></li>
 </ul></div>
 

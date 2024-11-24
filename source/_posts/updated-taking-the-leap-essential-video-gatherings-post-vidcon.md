@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Taking the Leap  Essential Video Gatherings (Post-VidCon)\""
-date: 2024-11-12T18:42:16.678Z
-updated: 2024-11-13T19:30:36.011Z
+date: 2024-11-22T02:35:20.668Z
+updated: 2024-11-23T20:37:32.126Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -138,6 +142,10 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -149,6 +157,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,6 +228,10 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -227,21 +247,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-audience-accessibility-enhancement-adding-subtitles-and-closed-captions-on-youtube/"><u>[New] 2024 Approved Audience Accessibility Enhancement Adding Subtitles and Closed Captions on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-palette-of-pleasantness-five-winter-backgrounds-ideas/"><u>[New] In 2024, A Palette of Pleasantness Five Winter Backgrounds Ideas</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boost-your-engagement-now-discover-these-key-youtube-shortcuts/"><u>[Updated] 2024 Approved Boost Your Engagement Now! - Discover These Key YouTube Shortcuts</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-tailoring-teammates-backgrounds-in-microsoft-teams-calls/"><u>[Updated] 2024 Approved Tailoring Teammates’ Backgrounds in Microsoft Teams Calls</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-top-freefire-strategies-on-youtube/"><u>[Updated] Unveiling Top FreeFire Strategies on YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-novice-to-expert-a-guide-for-effective-single-stream-livestreams-for-2024/"><u>From Novice to Expert A Guide for Effective Single-Stream Livestreams for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/how-to-record-a-twitch-gameplay-stream-for-2024/"><u>How to Record a Twitch Gameplay Stream for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-successfully-overcome-not-registered-on-network-errors-on-galaxy-phones/"><u>How to Successfully Overcome 'Not Registered on Network' Errors on Galaxy Phones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-realme-note-50-by-drfone-android/"><u>Three Ways to Sim Unlock Realme Note 50</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-brief-video-explanations-all-inclusive/"><u>[New] 2024 Approved Brief Video Explanations, All-Inclusive</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-the-art-of-text-insertion-in-digital-pictures/"><u>[New] 2024 Approved Mastering the Art of Text Insertion in Digital Pictures</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-recordingcritique-assessment/"><u>[New] 2024 Approved RecordingCritique Assessment</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-screen-capture-showdown-is-obs-better-than-fraps/"><u>[New] 2024 Approved Screen Capture Showdown Is OBS Better Than Fraps?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-12-premium-cameras-for-professional-vloggers/"><u>[New] In 2024, Exploring 12 Premium Cameras for Professional Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-editors-toolkit-elevating-your-youtube-videos-via-windows-pc/"><u>[New] The Editor's Toolkit Elevating Your YouTube Videos via Windows PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-your-channels-income-the-optimal-view-count-quotient-for-2024/"><u>[Updated] Boosting Your Channel's Income The Optimal View Count Quotient for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-things-about-asmr-video-you-should-know/"><u>[Updated] In 2024, Things About ASMR Video You Should Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-vimeo-and-youtube-analyzing-their-unique-features/"><u>[Updated] Vimeo and YouTube Analyzing Their Unique Features</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-elite-soundstage-storytelling-scripts/"><u>2024 Approved Elite Soundstage Storytelling Scripts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-which-video-sharing-app-should-i-pick-tiktok-or-youtube-shorts-perspective/"><u>2024 Approved Which Video-Sharing App Should I Pick? TikTok or YouTube Shorts Perspective</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-video-magic-comprehensive-editing-for-professionals/"><u>2024 Approved YouTube Video Magic Comprehensive Editing for Professionals</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-iphone-6-plus-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From iPhone 6 Plus? How to Fix it?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mp3-mastery-guide-top-10-video-to-audio-picks/"><u>In 2024, MP3 Mastery Guide Top 10 Video-to-Audio Picks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/master-your-own-passport-photos-with-these-10-tools/"><u>Master Your Own Passport Photos with These 10 Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/smooth-and-swift-designing-your-best-thumbnails-for-2024/"><u>Smooth & Swift Designing Your Best Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/spotlight-on-the-top-8-authentic-video-promotion-methods-for-2024/"><u>Spotlight on the Top 8 Authentic Video Promotion Methods for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

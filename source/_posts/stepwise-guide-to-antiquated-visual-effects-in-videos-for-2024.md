@@ -1,7 +1,7 @@
 ---
 title: "Stepwise Guide to Antiquated Visual Effects in Videos for 2024"
-date: 2024-11-10T23:46:20.263Z
-updated: 2024-11-14T06:06:18.228Z
+date: 2024-11-21T20:23:29.444Z
+updated: 2024-11-23T19:26:21.354Z
 tags:
   - ai video
   - ai youtube
@@ -66,13 +66,6 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Steps for the vintage effect to videos on Wondershare Filmora Video Editor**
 
 **Step 1:** Upload video & make specific changes
@@ -80,10 +73,7 @@ What you need to get started as both beginner and professional is Wondershare Fi
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
@@ -103,10 +93,7 @@ The second step is to apply the Black & White filters. Go to the **Effects** tab
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There are various other categories of filters you can apply, such as Retro, Sun Kissed, and Sepia Tone, etc. The features of Filmora also present several subcategories such as Faux Film or Shake.
@@ -123,6 +110,10 @@ Now, you need to desaturate the video clip with Ash & Willow filters. We have ty
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
 
 **Step 5:** Apply Black & White and Old Film Color Correction Presets to the video
@@ -132,10 +123,7 @@ You can also access the Advanced color correction Tab of Filmora from the Color 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips to Make Your Vintage Videos Stand Out
@@ -157,6 +145,10 @@ Surely give a read and thank us later!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -172,20 +164,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-key-platforms-ranking-the-best-6-sites-for-business-interaction/"><u>[New] 2024 Approved Key Platforms Ranking the Best 6 Sites for Business Interaction</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-complete-guide-to-selecting-and-raising-valheim-crops/"><u>[New] 2024 Approved The Complete Guide to Selecting & Raising Valheim Crops</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-youtubes-best-video-editing-practices/"><u>[New] In 2024, Decoding YouTube's Best Video Editing Practices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enjoy-uninterrupted-viewing-top-20-youtube-download-apps/"><u>[New] In 2024, Enjoy Uninterrupted Viewing Top 20 YouTube Download Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-10-second-teasers-explained-for-2024/"><u>[Updated] 10-Second Teasers Explained for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-comprehensive-guide-the-triad-technique-for-assessing-youtube-revenue-streams/"><u>[Updated] 2024 Approved Comprehensive Guide The Triad Technique for Assessing YouTube Revenue Streams</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-alternative-film-choices-ranked-7-1/"><u>[Updated] In 2024, Alternative Film Choices Ranked #7-1</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-convert-with-confidence-best-apps-to-turn-spotify-into-youtube-channels/"><u>[Updated] In 2024, Convert with Confidence Best Apps to Turn Spotify Into YouTube Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-views-the-power-of-synergistic-youtube-content-partnerships/"><u>[Updated] In 2024, Elevate Views The Power of Synergistic YouTube Content Partnerships</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-navigating-devices-for-google-meet-session/"><u>[Updated] Navigating Devices for Google Meet Session</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-navigating-the-world-of-online-broadcasts-on-youtube-and-twitch-with-obs-for-2024/"><u>[Updated] Navigating the World of Online Broadcasts on YouTube and Twitch with OBS for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-real-world-examples/"><u>[Updated] Real-World Examples</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-power-play-the-most-popular-female-youtube-personalities/"><u>2024 Approved Power Play The Most Popular Female YouTube Personalities</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unearthing-sources-with-reverse-image-techniques-on-insta/"><u>2024 Approved Unearthing Sources with Reverse Image Techniques on Insta</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-seeding-strategies-for-valheim-prosperity/"><u>In 2024, Seeding Strategies for Valheim Prosperity</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-ease-into-content-creation-crafting-the-top-10-accessible-youtube-videos-for-2024/"><u>[New] Ease Into Content Creation Crafting the Top 10 Accessible YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-skip-the-struggle-tips-on-avoiding-online-edgenuity-lessons-for-2024/"><u>[New] Skip the Struggle Tips on Avoiding Online Edgenuity Lessons for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-360-video-editors-how-to-upload-360-video-to-youtube/"><u>[Updated] 2024 Approved 360 Video Editors How to Upload 360 Video to YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enable-quiet-youtube-bgplay-for-iphone-and-android/"><u>[Updated] 2024 Approved Enable Quiet YouTube BGPlay for iPhone & Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhancing-visual-content-turning-youtube-clips-into-animated-gifs-for-2024/"><u>[Updated] Enhancing Visual Content Turning Youtube Clips Into Animated GIFs for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gross-income-estimates-for-youtube-star-pewdopeep/"><u>[Updated] Gross Income Estimates for YouTube Star PewDoPeep</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-the-top-10-capture-cards-for-youtube-you-should-know/"><u>[Updated] In 2024, The Top 10 Capture Cards for YouTube You Should Know</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-seo-revolution-transforming-your-content-visibility/"><u>[Updated] SEO Revolution Transforming Your Content Visibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-and-instagram-syncing-up-your-media/"><u>[Updated] YouTube and Instagram Syncing Up Your Media</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/44cm44oh44oq44kk44k55l255so5lit44cn44ko44op44o844gr5aplusplus44gx44gm44cb5lplusu5q2j5pa55rov44ks5lia44gk5lia44gk5lib5aplusn44gr6kej6kqs/"><u>「デバイス使用中」エラーに対して、修正方法を一つ一つ丁寧に解説</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-on-iphone-8-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock on iPhone 8</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-some-outdated-drivers-with-windows-device-manager-on-windows-10-and-7-by-drivereasy-guide/"><u>How to identify some outdated drivers with Windows Device Manager on Windows 10 & 7</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-dive-into-a-stream-of-9-full-length-festive-flicks-no-charge/"><u>In 2024, Dive Into a Stream of 9 Full-Length Festive Flicks - No Charge!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-maximizing-ad-performance-with-engaging-fb-animation-strategies/"><u>In 2024, Maximizing Ad Performance with Engaging FB Animation Strategies</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-personalizing-your-whatsapp-ringtone-iphonesandroids-included/"><u>In 2024, The Ultimate Guide to Personalizing Your WhatsApp Ringtone - iPhones/Androids Included</u></a></li>
 </ul></div>
 

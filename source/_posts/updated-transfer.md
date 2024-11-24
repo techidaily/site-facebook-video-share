@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transfer"
-date: 2024-11-11T06:55:18.223Z
-updated: 2024-11-13T19:49:11.905Z
+date: 2024-11-18T03:28:27.117Z
+updated: 2024-11-23T18:46:08.835Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,25 @@ Let’s take the example of Vertical Video display in YouTube Screen:
 
 ![vertical video example](https://images.wondershare.com/filmora/article-images/2021/vertical-video-example.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2 YouTube Shorts Aspect Ratio
 
 The world is moving swiftly, and with day passing, people want to complete their tasks as quickly as possible. The impact is seen in the field of the YouTube Video making process also with the introduction of YouTube Shorts. After following the short video trends of TikTok, this time YouTube appeared with its new feature YouTube Shorts, which allows a user to create a short video that ranges from 15 to 60 seconds. The only need is for a Smartphone and YouTube Application Shorts camera. And then you are good to go. Note that YouTube Shorts videos get searched and watched by people mainly through their phones.
 
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
 
@@ -75,13 +87,6 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 **Note:** There is also provision for square videos with a 1:1 ratio for YouTube Shorts. But that results in extra white or black padding at the top and bottom areas.
 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3 Aspect Ratios for YouTube Ads
 
@@ -100,10 +105,7 @@ Sponsor Card Ads Ratio: 1:1
 True View Discovery Ads Ratio: 16:9 or 4:3
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4 Think More about YouTube Aspect Ratio
@@ -130,25 +132,15 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,14 +157,19 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-exploring-media-top-ranking-camera-apps-for-iphonesandroid-devices-for-2024/"><u>[New] Exploring Media Top-Ranking Camera Apps for iPhones/Android Devices for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-superior-visual-treatment-applying-filters-to-videos/"><u>[Updated] 2024 Approved Superior Visual Treatment Applying Filters to Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-precision-in-upload-a-deep-dive-into-youtube-video-size-settings/"><u>[Updated] Precision in Upload A Deep-Dive Into YouTube Video Size Settings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-recording-with-precision-perfecting-ios-device-features-on-youtube/"><u>[Updated] Recording with Precision Perfecting iOS Device Features on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-youtube-makeup-craft-color-correction-essentials/"><u>[Updated] The YouTube Makeup Craft Color Correction Essentials</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-huawei-has-native-mkv-support-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Huawei has native MKV support?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-nokia-130-music-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Nokia 130 Music Phone Pattern Lock</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/prestigious-6-monoliths-gargantuan-ai-model-sweep/"><u>Prestigious 6 Monoliths: Gargantuan AI Model Sweep</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solving-fortnites-persistent-sound-problems-lags-glitches-and-more/"><u>Solving Fortnite's Persistent Sound Problems: Lags, Glitches, and More</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-youtube-presence-with-these-8-free-courses-for-2024/"><u>[New] Elevate Your YouTube Presence with These 8 Free Courses for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-freefire-gameplay-on-youtube-channels/"><u>[Updated] 2024 Approved Elevate Your FreeFire Gameplay on YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-content-choosing-right-youtube-duosgroups-for-2024/"><u>[Updated] Elevating Your Content Choosing Right YouTube Duos/Groups for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-name-inspiration-strategies-for-success/"><u>[Updated] In 2024, Channel Name Inspiration Strategies for Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-ultimate-guide-to-capturing-youtube-videos-subtitles-in-srt-format/"><u>[Updated] In 2024, The Ultimate Guide to Capturing YouTube Videos' Subtitles in SRT Format</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tailored-tunes-creating-custom-youtube-playlists/"><u>[Updated] Tailored Tunes Creating Custom Youtube Playlists</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-virtual-decoration-google-vs-alternative-ar-tools-for-2024/"><u>[Updated] Virtual Decoration Google Vs. Alternative AR Tools for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/a-dive-into-nvidias-customizable-creativity-engine/"><u>A Dive Into NVIDIA's Customizable Creativity Engine</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-nubia-red-magic-9-proplus-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Nubia Red Magic 9 Pro+.</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/infinix-smart-7-hd-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Smart 7 HD Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-samsung-galaxy-s23-fe-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Samsung Galaxy S23 FE FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-solitary-producers-guide-to-viral-audio-success/"><u>The Solitary Producer's Guide to Viral Audio Success</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/transformacion-de-webm-a-wav-sin-gastos-guia-completa-para-la-conversion-en-linea-sin-complicaciones-mediante-movavi/"><u>Transformación De WEBM a WAV Sin Gastos: Guía Completa Para La Conversión en Línea Sin Complicaciones Mediante Movavi</u></a></li>
 </ul></div>
 

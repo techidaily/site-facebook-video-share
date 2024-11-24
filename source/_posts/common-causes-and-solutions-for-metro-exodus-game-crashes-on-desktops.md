@@ -1,7 +1,7 @@
 ---
 title: Common Causes and Solutions for Metro Exodus Game Crashes on Desktops
-date: 2024-11-07T18:38:27.267Z
-updated: 2024-11-14T01:41:07.445Z
+date: 2024-11-20T23:46:38.478Z
+updated: 2024-11-24T01:25:32.583Z
 tags:
   - win11
   - win10
@@ -56,13 +56,6 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/3-2-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Launch Hearthstone to see if the problem reappears. If yes, continue to the next fix.
 
 ---
@@ -83,18 +76,15 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/7-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3)** Click the**Update** button next to the flagged graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the**FREE version** ).
 
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/7-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You could do it for free if you like, but it’s partly manual.
 
@@ -119,16 +109,13 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/2-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Wait for the scan and repair to finish, then relaunch your game to see if the crashing issue is settled. If not, try the next method.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4 – Temporarily disable the anti-virus programs
 
@@ -143,10 +130,7 @@ There are two ways you can update the graphics driver:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 5 – Delete the Hearthstone folder
@@ -157,20 +141,21 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/8-1-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **2)** Right click the Hearthstone folder and click**Delete** , or just move it to another location.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/8-2-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Relaunch Hearthstone to see if you get rid of the crashing issue. If not, keep reading the next fix.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6 – Perform a clean boot
 
@@ -181,10 +166,7 @@ There are two ways you can update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-1-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **2)** Select the**Services** tab. Then, check**Hide all Microsoft services** , and click**Disable all** .
@@ -197,19 +179,6 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-2-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **4)** Select the**Startup** tab. Then, right click each enabled startup item and click**Disable** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-4.jpg)
@@ -217,6 +186,10 @@ There are two ways you can update the graphics driver:
 **5)** Go back to the System Configuration window, and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-3-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **6)** Click**Restart** .
 
@@ -236,26 +209,21 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/9-2-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)** Click**Restart** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/9-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Your computer will start normally after you finish this step. If the crashing issue persists, we’ve got a last fix for you.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 7 – Reinstall Hearthstone
 
@@ -294,20 +262,24 @@ There are two ways you can update the graphics driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-best-webcams-for-youtube-livestreaming-for-2024/"><u>[New] Best Webcams for YouTube Livestreaming for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs/"><u>[New] In 2024, Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-video-visibility-using-creator-studio-wisdom/"><u>[New] In 2024, Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-legal-download-how-to-safely-transfer-youtube-to-mp4/"><u>[New] Legal Download How to Safely Transfer YouTube to MP4</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-10-premier-choices-for-no-cost-screen-recording-tools/"><u>[Updated] 2024 Approved 10 Premier Choices for No-Cost Screen Recording Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beat-boulevard-optimal-dj-video-downloads/"><u>[Updated] 2024 Approved Beat Boulevard Optimal DJ Video Downloads</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-easy-steps-how-to-master-the-best-of-9-free-youtube-logomakers/"><u>[Updated] In 2024, Easy Steps How to Master the Best of 9 Free YouTube Logomakers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-pro-streaming-setup-leading-livestream-hardware-and-software/"><u>[Updated] Pro Streaming Setup Leading Livestream Hardware and Software</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-sharing-tweets-via-vids-on-whatsapp-now/"><u>[Updated] Sharing Tweets via Vids on WhatsApp Now</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-channels-to-champions-leveraging-lingo-in-telegram-marketing/"><u>2024 Approved From Channels to Champions Leveraging Lingo in Telegram Marketing</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/conversione-libera-da-mp3-a-flv-online-usare-movavi-per-cambiare-file-gratis/"><u>Conversione Libera Da MP3 a FLV Online - Usare Movavi per Cambiare File Gratis</u></a></li>
-<li><a href="https://techtrends.techidaily.com/easy-solutions-to-get-microsoft-edge-up-and-running-again/"><u>Easy Solutions to Get Microsoft Edge Up and Running Again</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-diagnose-and-fix-gray-zone-warfare-glitches-on-your-computer/"><u>How To Diagnose & Fix Gray Zone Warfare Glitches On Your Computer</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-ignite-a-sensation-how-to-have-your-video-go-viral/"><u>In 2024, Ignite a Sensation How to Have Your Video Go Viral</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-connection-woes-successfully-attaching-a-microsoft-wireless-display-adapter-to-your-pc-with-windows-problem-fixed/"><u>Overcoming Connection Woes: Successfully Attaching a Microsoft Wireless Display Adapter to Your PC with Windows ([Problem] Fixed)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-youtube-financial-goals-via-viewer-statistics/"><u>[New] In 2024, Achieving Youtube Financial Goals via Viewer Statistics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-demystifying-mukbang-a-comprehensive-production-guide/"><u>[New] In 2024, Demystifying Mukbang A Comprehensive Production Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-groundbreaking-open-source-software-for-modern-video-conferencing/"><u>[New] In 2024, Groundbreaking Open Source Software for Modern Video Conferencing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-uncovering-basics-of-asmr-audio-experiences/"><u>[New] Uncovering Basics of ASMR Audio Experiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unearthing-the-hidden-an-orderly-guide-to-covert-youtube-videos/"><u>[New] Unearthing the Hidden An Orderly Guide to Covert YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cinema-craftsmanship-unleashed-youtube-green-screens-101/"><u>[Updated] 2024 Approved Cinema Craftsmanship Unleashed Youtube Green Screens 101</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-stepwise-approach-to-resolve-facebook-story-errors/"><u>[Updated] 2024 Approved Stepwise Approach to Resolve Facebook Story Errors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-complete-guide-what-does-unlisted-mean-on-youtube/"><u>[Updated] Complete Guide What Does Unlisted Mean on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-digital-broadcast-face-off-facebook-vs-youtube-and-tweetstreams-for-2024/"><u>[Updated] Digital Broadcast Face-Off FACEbook Vs. YOUTube & TweetStreams for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-zero-to-youtube-pros-creating-an-account-rightly/"><u>[Updated] From Zero to YouTube Pros Creating an Account Rightly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expert-advice-on-free-youtube-events-without-extra-cost/"><u>[Updated] In 2024, Expert Advice on Free Youtube Events without Extra Cost</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-whipped-watchers-guide-complete-review-of-frozen-food-filming-tech/"><u>[Updated] In 2024, Whipped Watcher's Guide Complete Review of Frozen Food Filming Tech</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-tips-to-restore-functionality-of-a-malfunctioning-logitech-c920-camera/"><u>Expert Tips to Restore Functionality of a Malfunctioning Logitech C920 Camera</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/expert-video-capture-maximizing-performance-with-logitech-webcam-tech-for-2024/"><u>Expert Video Capture Maximizing Performance with Logitech Webcam Tech for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/fascinating-fact-directly-connect-with-chatgpt/"><u>Fascinating Fact: Directly Connect with ChatGPT</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo K11 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-financial-free-editing-the-ultimate-guide-to-fcp/"><u>In 2024, Financial-Free Editing The Ultimate Guide to FCP</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/inside-apples-secure-ai-operating-system-the-future-of-tech-in-data-centers-unveiled-tech-insights/"><u>Inside Apple's Secure AI Operating System: The Future of Tech in Data Centers Unveiled | Tech Insights</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-surface-keyboard-quirk/"><u>Resolved Surface Keyboard Quirk</u></a></li>
 </ul></div>
 

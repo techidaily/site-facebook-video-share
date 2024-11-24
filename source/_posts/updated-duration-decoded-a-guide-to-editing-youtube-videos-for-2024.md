@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos for 2024\""
-date: 2024-11-07T17:35:34.282Z
-updated: 2024-11-14T03:20:04.681Z
+date: 2024-11-22T20:49:29.870Z
+updated: 2024-11-23T20:00:31.567Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +50,10 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,11 +62,19 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -67,6 +83,10 @@ What is more, if you want to increase the length, you have to drag the bar to th
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -83,23 +103,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-insights-on-asmr-videos-for-2024/"><u>[New] Essential Insights on ASMR Videos for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unlocking-the-secrets-of-memetic-success-through-gifs/"><u>[New] Unlocking the Secrets of Memetic Success Through GIFs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-improve-youtube-video-quality-and-clarity/"><u>[Updated] How to Improve YouTube Video Quality and Clarity</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-itel-p55plus-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Itel P55+ to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://win-top.techidaily.com/easy-steps-to-enable-message-backup-feature-in-outlooks-sent-items/"><u>Easy Steps to Enable Message Backup Feature in Outlook's Sent Items</u></a></li>
-<li><a href="https://win-dash.techidaily.com/enhance-system-performance-with-thunderbolt-driver-update-for-windows-operating-systems/"><u>Enhance System Performance with Thunderbolt Driver Update for Windows Operating Systems</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/quickclip-artisan-for-2024/"><u>QuickClip Artisan for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/shine-brightly-youtubes-17-must-have-illumination-for-2024/"><u>Shine Brightly! YouTube's #17 Must-Have Illumination for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-sims-4-not-launching-problem-a-step-by-step-guide/"><u>Solving the Sims 4 Not Launching Problem: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/streamline-your-workflow-with-leading-tts-apps-for-mac-users/"><u>Streamline Your Workflow with Leading TTS Apps for Mac Users</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/triumph-through-tales-3-crucial-strategies-for-channels-for-2024/"><u>Triumph Through Tales 3 Crucial Strategies for Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-viewership-with-these-top-10-youtube-reaction-strategies/"><u>[New] 2024 Approved Amplify Viewership with These Top 10 YouTube Reaction Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-advice-incorporating-narrative-elements-into-youtube-videos/"><u>[New] 2024 Approved Expert Advice Incorporating Narrative Elements Into YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-on-screen-appeal-essential-tips-for-talking-head-shots-for-2024/"><u>[New] Enhancing On-Screen Appeal Essential Tips for Talking-Head Shots for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-top-artisans-in-sound-and-video-craftsminas-online/"><u>[New] The Top Artisans in Sound and Video Craftsminas Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eliminate-background-noise-from-online-video-content/"><u>[Updated] 2024 Approved Eliminate Background Noise From Online Video Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-architecting-authoritative-adjuncts-for-2024/"><u>[Updated] Architecting Authoritative Adjuncts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-step-by-step-guide-to-green-room-editing-for-2024/"><u>[Updated] Instagram's Step-by-Step Guide to Green Room Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ripple-effects-top-mobile-music-disruptors/"><u>[Updated] Ripple Effects Top Mobile Music Disruptors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-copyright-landscape-decoded-a-complete-analysis/"><u>[Updated] YouTube's Copyright Landscape Decoded A Complete Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-comprehensive-guide-to-what-is-rcs-messaging/"><u>A Comprehensive Guide to What Is RCS Messaging?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-chatgpt-see-what-the-stars-dont-for-your-life-path/"><u>Can ChatGPT See What the Stars Don't for Your Life Path?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exclusive-top-10-mobile-photography-tools-for-superior-slo-mo-effects/"><u>In 2024, Exclusive Top 10 Mobile Photography Tools for Superior Slo-Mo Effects</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-streamlabs-or-obs-picking-the-best-software-for-your-channel/"><u>In 2024, Streamlabs or OBS Picking the Best Software for Your Channel</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

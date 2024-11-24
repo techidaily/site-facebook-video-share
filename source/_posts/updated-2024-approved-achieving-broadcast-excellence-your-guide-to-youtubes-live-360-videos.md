@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Achieving Broadcast Excellence  Your Guide to YouTube's Live 360 Videos\""
-date: 2024-11-11T05:24:15.281Z
-updated: 2024-11-14T06:34:36.164Z
+date: 2024-11-18T03:35:20.607Z
+updated: 2024-11-23T22:21:32.553Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 * [Part1.Stream 360 to Youtube via Ricoh Theta S and OBS on PC](#part1)
 * [Part2.Live Stream from Allie 360 Camera to YouTube on Mobile](#part2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Stream 360 to Youtube via Ricoh Theta S and OBS on PC
 
@@ -55,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![ bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 9:** Once your device enters into Live Stream mode then a Led will start blinking on your device that represents your device is live at this moment.
 
 ![led ](https://images.wondershare.com/filmora/article-images/led.jpg)
@@ -66,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 **Step 12:** Go to create scene option and then switch to create sources.
 
 ![Create scene ](https://images.wondershare.com/filmora/article-images/create-scene.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 13:** Select video capture device as your source from drop down menu.
 
@@ -79,9 +91,17 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![screen ](https://images.wondershare.com/filmora/article-images/screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 16:** Now move to YouTube and then hit New Live Events option.
 
 ![new live events ](https://images.wondershare.com/filmora/article-images/new-live-events.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 17:** Complete the basic information.
 
@@ -92,6 +112,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 **Step 19:** Now complete the ingesting settings and finally select create new stream option.
 
 ![new stream option ](https://images.wondershare.com/filmora/article-images/new-stream-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 20:** As soon as your event is created then you will be able to find your stream name on screen, copy it and simply paste it on OBS window.
 
@@ -106,13 +130,6 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 ![stream key ](https://images.wondershare.com/filmora/article-images/stream-key.jpg)
 
 ![360 live ](https://images.wondershare.com/filmora/article-images/360-live.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2.Live Stream from Allie 360 Camera to YouTube on Mobile
 
@@ -133,40 +150,31 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![allie app ](https://images.wondershare.com/filmora/article-images/allie-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6:** Now users need to hit stream icon on screen.
 
 ![  icon on ](https://images.wondershare.com/filmora/article-images/icon-on.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 7:** You will be asked to fill the necessary information about your video. It is also possible to make adjustments regarding video quality. Once you are done with all required settings then hit Submit option.
 
 ![click submit ](https://images.wondershare.com/filmora/article-images/click-submit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 8:** Soon your video will become live; note that you can also share your live video via SNS platform with other viewers.
 
 ![SNS platform ](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -183,18 +191,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-the-top-10-capture-cards-for-youtube-you-should-know/"><u>[New] 2024 Approved The Top 10 Capture Cards for YouTube You Should Know</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mellow-mixdowns-lowlighting-with-ease-in-garageband/"><u>[New] In 2024, Mellow Mixdowns Lowlighting with Ease in Garageband</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>[Updated] 2024 Approved Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-conveniently-remove-downloaded-youtube-media-for-lightweight-devices-for-2024/"><u>[Updated] Conveniently Remove Downloaded YouTube Media for Lightweight Devices for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-tailoring-video-resolution-and-size-a-must-know-guide-to-youtube-uploads/"><u>[Updated] In 2024, Tailoring Video Resolution and Size A Must Know Guide to YouTube Uploads</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-repeat-revelry-televised-looping-of-online-media-content/"><u>[Updated] Repeat Revelry Televised Looping of Online Media Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-steps-to-prevent-thumbnail-absence-on-shorts-videos/"><u>[Updated] Steps to Prevent Thumbnail Absence on Shorts Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-future-of-youtube-naming-trendsetting-tips-for-video-blogging-and-filmmaking-max-156-characters/"><u>[Updated] The Future of YouTube Naming Trendsetting Tips for Video Blogging & Filmmaking (Max 156 Characters)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/assassins-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world/"><u>Assassin's Creed: Valhalla Review: An Epic Viking Adventure Across the Medieval World</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-thermometer-at-a-cost-examining-the-consistency-of-thermopro-tp67/"><u>Cost-Effective Thermometer at a Cost - Examining the Consistency of ThermoPro TP67</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-videoshow-app-a-complete-guide-for-24-for-2024/"><u>Mastering VideoShow App - A Complete Guide for '24 for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ating-the-new-era-youtubes-shorts-fund-explained/"><u>Navigating the New Era YouTube's Shorts Fund Explained</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-online-audio-recordings-from-youtube-for-2024/"><u>The Ultimate Guide Online Audio Recordings From YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-hash-strategies-for-optimizing-youtube-gameplay-videos/"><u>[New] 2024 Approved Essential Hash Strategies for Optimizing YouTube Gameplay Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-symphony-of-streams-efficiently-uploading-melodies/"><u>[New] Symphony of Streams Efficiently Uploading Melodies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unlock-your-potential-with-these-leading-cost-free-editions/"><u>[Updated] 2024 Approved Unlock Your Potential with These Leading Cost-Free Editions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-reality-of-youtubes-fast-subscribe-technique/"><u>[Updated] The Reality of YouTube's Fast Subscribe Technique</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-winning-strategies-and-hashtags-for-youtubes-best-freefirers/"><u>2024 Approved Winning Strategies & Hashtags for YouTube's Best FreeFirers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-iphone-13-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From iPhone 13 Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elevating-chatgpt-the-introduction-of-vocal-responses-to-commands/"><u>Elevating ChatGPT: The Introduction of Vocal Responses to Commands</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-yearly-list-prime-free-video-editing-software/"><u>In 2024, Your Yearly List Prime Free Video Editing Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-vs-dailymention-identifying-key-variations/"><u>In 2024, YouTube Vs. DailyMention Identifying Key Variations</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/innovative-immersion-a-guide-to-the-leaders/"><u>Innovative Immersion A Guide to the Leaders</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Vivo Y78 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unlock-adobe-premieres-full-potential-top-15-plugins-free-download/"><u>New In 2024, Unlock Adobe Premieres Full Potential Top 15 Plugins (Free Download)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-tipps-fur-die-minimierung-der-speicherplatzoptionen-von-mov-videoinhalten/"><u>Top-Tipps Für Die Minimierung Der Speicherplatzoptionen Von MOV-Videoinhalten</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transform-your-dvds-editing-compressing-and-converting-content-for-iosmac-os-x-playback/"><u>Transform Your DVDs: Editing, Compressing, and Converting Content for iOS/Mac OS X Playback</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/who-are-you-unraveling-youtuber-personalities-in-6-quizzes-for-2024/"><u>Who Are You? Unraveling YouTuber Personalities in 6 Quizzes for 2024</u></a></li>
 </ul></div>
 

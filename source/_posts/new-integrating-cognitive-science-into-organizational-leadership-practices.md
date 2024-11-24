@@ -1,7 +1,7 @@
 ---
 title: "[New] Integrating Cognitive Science Into Organizational Leadership Practices"
-date: 2024-08-01T10:46:08.478Z
-updated: 2024-08-02T10:46:08.478Z
+date: 2024-11-20T20:34:26.059Z
+updated: 2024-11-23T23:12:44.326Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
 
 # How to Make Killer YouTube Channel Art
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -47,25 +44,10 @@ If you’re still in the dark about how to create YouTube channel art; we’re h
 
 The Filmora team has made a video tutorial about how to master YouTube Channel Art, watch it before digging in. Remember to download the free Filmora Trial version to have a try.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Part 1: What is YouTube channel art?
 
 YouTube channel art includes thumbnails, banners, watermarks, and icons. Thumbnails will help viewers decide to watch your videos, and a personalized banner will tell people who you are and what your vlog is about. Watermarks both label your work as yours and protect it from theft. Your icon is the avatar you will use to communicate with your subscribers. You can totally change the look and feel of the page and the changes will carry forwards for the page display on all platforms. However, the elements might look slightly different on desktops, mobile devices, and TV screens.
@@ -74,10 +56,11 @@ YouTube channel art includes thumbnails, banners, watermarks, and icons. Thumbna
 
 A banner sits at the top of your channel, welcoming viewers to your videos and promoting your brand. Having your brand front and center here is a great plan, as it gives people confidence in who they are watching, as well as raising your brand profile on the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Size**: 2560x1440px recommended. Cannot be smaller than 2048x1152px.
 
@@ -169,6 +152,10 @@ Go to **My Channel**, hover over your existing channel icon, and click the **edi
 
 ![](https://images.wondershare.com/filmora/article-images/channel-art-links.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Adding links to your YouTube channel is a no-brainer. After all, if people love your channel, why not get them engaged on your social networks and website too? Adding links is easy in the Creator Studio, and you can choose to have links overlaid on your channel art too.
 
 #### 6\.  YouTube Intros
@@ -215,9 +202,6 @@ Your video must be at least 25 seconds in order to add an end screen.
 
 ### Part 2: YouTube Channel Art Dimensions & Image Size Checklist
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![YouTube channel art dimensions](https://images.wondershare.com/filmora/article-images/channel-art-dimension.jpg)
 
 Getting the sizing of your channel art right is crucial. If you don’t plan this from the start, then all the effort you put into designing your channel art will be wasted, as it will either not display properly or will just look terrible. YouTube has provided these guidelines for channel art designs:
@@ -244,14 +228,8 @@ If you’re wondering if you should really be bothered about channel art, the an
 
 According to research, we are a highly visual species. 65 percent of people learn better visually, and when you’re thinking about retaining information, 90 percent of what we store in our brains is visual information. By presenting your viewers with visual content, you’re helping them take it in, retain it better and remember you for the future.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Part 4: Tips for Making Channel Art
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/channel-art-tips.jpg)
 
 #### 1\. Tips for Making Thumbnails
@@ -314,38 +292,50 @@ The drawback to this particular platform is the sheer volume of stock images alr
 
 There are many other services out there to help you create your YouTube channel art and what’s best for you will depend on the type of channel art you’re looking to create, as well as your own abilities with graphic design. Try some of the free versions before you jump in and pay for things, as some are actually really rather good.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Part 6: YouTube Channel Art Templates Free Download
 
 If you don't know how to make youtube channel art, don't be worry, because in the following part, I'll share with you some free youtube channel art templates. The Filmora team has a community and forum for YouTube creators and it has designed some stunning YouTube Channel Art templates for different genres channels such as gaming, beauty, travel, comedy and education. Click here to [download 50 free YouTube Banners, JPG & PhotoShop files.](https://tools.techidaily.com/wondershare/filmora/download/) Examples:
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/bright-color-channel-art.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/filmora/article-images/comedy-channel-art.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/filmora/article-images/comic-channel-art.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/filmora/article-images/education-channel-art.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/funky-channel-art.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/gaming-banner.jpg)
 
 ![](https://images.wondershare.com/filmora/article-images/make-up-channel-art.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/filmora/article-images/travel-channel-art.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 7: YouTube Channel Art Dimensions Cheatsheet \[Infographic\]
 
 Usually, a viewer won’t visit your channel page and see your channel art until after they’ve watched one of your videos. The reason they’ve clicked to see your channel is that they want to learn more about you – do you have more videos like the one they just watched? Do you post a lot? Are you worth subscribing to?
@@ -360,10 +350,6 @@ The best video editor for YouTubers - [Wondershare Filmora](https://tools.techid
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -372,12 +358,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-practices-in-selecting-youtube-video-extractor-apps-for-android/"><u>[New] 2024 Approved Best Practices in Selecting YouTube Video Extractor Apps for Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-entryway-investments-cost-effective-channels-for-newbies/"><u>[Updated] 2024 Approved Entryway Investments Cost-Effective Channels for Newbies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-updated-strategy-for-content-creators/"><u>[Updated] YouTube's Updated Strategy for Content Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-words-in-motion-a-guide-to-lively-animation-methods/"><u>2024 Approved Words in Motion A Guide to Lively Animation Methods</u></a></li>
+<li><a href="https://win-superb.techidaily.com/effortless-outlook-file-sync-on-windows-11-to-prevent-lost-information/"><u>Effortless Outlook File Sync on Windows 11 to Prevent Lost Information</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/engaging-review-of-dji-robomaster-s1-the-perfect-blend-of-educational-coding-and-exciting-battle-gameplay-for-tech-enthusiasts/"><u>Engaging Review of DJI Robomaster S1: The Perfect Blend of Educational Coding & Exciting Battle Gameplay for Tech Enthusiasts</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/guida-completa-a-aomei-backupper-panoramica-visiva-e-dettagliata/"><u>Guida Completa a AOMEI Backupper: Panoramica Visiva E Dettagliata</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mac-file-deletion-wizard-stellar-file-eraser-5-with-automatic-cleanup-schedules/"><u>Mac File Deletion Wizard: Stellar File Eraser 5 with Automatic Cleanup Schedules</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/master-the-art-of-captivating-instagram-video-audiences/"><u>Master the Art of Captivating Instagram Video Audiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-and-easy-guide-to-turn-videos-into-animated-gif-delights-for-2024/"><u>Quick & Easy Guide to Turn Videos Into Animated GIF Delights for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-nubia-red-magic-8s-pro-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Nubia Red Magic 8S Pro</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-profile-pics-templates-available-for-2024/"><u>YouTube Profile Pics Templates Available for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Embed a YouTube Video in PowerPoint"
-date: 2024-11-08T19:59:36.244Z
-updated: 2024-11-14T04:50:20.313Z
+date: 2024-11-22T20:20:07.152Z
+updated: 2024-11-23T16:44:22.266Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ When talking about PowerPoint, it is an efficient and powerful tool to prepare a
 
 That said, here you will learn a couple of methods to **embed YouTube video in PowerPoint**.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Insert YouTube Video into PowerPoint? (4 Methods)
 
 After understanding the benefits of have a video embedded to your presentation, it is now time to learn **how to add YouTube video to PowerPoint**.
@@ -37,10 +41,7 @@ After understanding the benefits of have a video embedded to your presentation, 
 The four most used methods of getting this done are discussed in detailed in the following sections:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 1: Using YouTube Video’s URL
@@ -56,26 +57,20 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 ![embed YouTube video to PowerPoint](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![embed YouTube video to PowerPoint](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Position the Player**
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
@@ -94,13 +89,6 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 **Step 3: Embed the Video**
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
@@ -133,6 +121,10 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 **Step 3: Resize and/or Modify the Video**
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
@@ -188,24 +180,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-apex-of-scripting-soundscapes/"><u>[New] Apex of Scripting Soundscapes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-can-genuine-growth-outpace-faux-followers-effects-for-2024/"><u>[New] Can Genuine Growth Outpace Faux Followers' Effects for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-content-distribution-showdown-vimeo-vs-youtubes-and-dailymotions/"><u>[New] In 2024, Content Distribution Showdown Vimeo vs YouTubes and DailyMotions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-content-step-by-step-guide-to-youtube-video-editing/"><u>[Updated] 2024 Approved Crafting Content Step by Step Guide to YouTube Video Editing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-building-a-billion-dollar-brand-on-youtube-jake-paul-for-2024/"><u>[Updated] Building a Billion-Dollar Brand on Youtube (Jake Paul) for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-capture-and-preserve-windows-11-screens-for-2024/"><u>[Updated] Capture & Preserve Windows 11 Screens for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-cinematography-simplified-fades-made-easy-for-2024/"><u>[Updated] Cinematography Simplified Fades Made Easy for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-easy-access-to-no-cost-music-for-video-makers-for-2024/"><u>[Updated] Easy Access to No-Cost Music for Video Makers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-find-rich-ambiance-for-video-content/"><u>[Updated] Find Rich Ambiance for Video Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-fluid-fusion-combining-videos-for-a-unified-youtube-presence/"><u>[Updated] Fluid Fusion Combining Videos for a Unified Youtube Presence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-comprehensive-guide-to-youtube-video-editing-tools/"><u>[Updated] In 2024, Comprehensive Guide to YouTube Video Editing Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-ten-capture-hardware-rankings-for-professional-streamers/"><u>[Updated] Top Ten Capture Hardware Rankings for Professional Streamers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-enjoyable-footage-recorder-test/"><u>2024 Approved Enjoyable Footage Recorder Test</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/from-text-to-talk-how-to-start-windows-11-verbal/"><u>From Text to Talk: How to Start Windows 11 Verbal</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-lenovo-x12-detachable-exceptional-convertible-and-premium-keyboard-quality/"><u>In-Depth Evaluation of the Lenovo X12 Detachable: Exceptional Convertible and Premium Keyboard Quality</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722893491922-mastering-virality-essential-techniques-for-dominating-tiktok/"><u>Mastering Virality: Essential Techniques for Dominating TikTok</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/seamlessly-connecting-your-smartphone-tablet-and-computer-with-one-number/"><u>Seamlessly Connecting Your Smartphone, Tablet & Computer With One Number</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/struggling-with-wi-fi-on-your-laptop-discover-effective-troubleshooting-techniques-today/"><u>Struggling with Wi-Fi on Your Laptop? Discover Effective Troubleshooting Techniques Today!</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unparalleled-selection-of-budget-stock-media-sites-for-2024/"><u>Unparalleled Selection of Budget Stock Media Sites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boost-views-through-effective-youtube-thumbnail-selection-for-2024/"><u>[New] Boost Views Through Effective YouTube Thumbnail Selection for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-a-content-schedule-the-path-to-gaining-traction-on-youtube/"><u>[New] In 2024, Crafting a Content Schedule The Path to Gaining Traction on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-asmr-sessions-with-these-microphones/"><u>[New] In 2024, Elevate Your ASMR Sessions with These Microphones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-insights-selecting-from-these-top-12-video-optimized-cameras/"><u>[New] In 2024, Expert Insights Selecting From These Top 12 Video-Optimized Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-comprehensive-look-at-youtube-shorts-template-design-for-2024/"><u>[Updated] A Comprehensive Look at YouTube Shorts Template Design for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ignite-motivation-the-hottest-playlists-for-workouts/"><u>[Updated] Ignite Motivation The Hottest Playlists for Workouts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revenue-realms-of-youtube-from-virtual-viewership-to-banknotes/"><u>[Updated] Revenue Realms of YouTube From Virtual Viewership to Banknotes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-pathway-to-popular-youtube-thumbnails-mac-edition/"><u>[Updated] The Pathway to Popular Youtube Thumbnails Mac Edition</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-leveraging-zoom-for-high-quality-facebook-live-streams/"><u>2024 Approved Leveraging Zoom for High-Quality Facebook LIVE Streams</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/engaging-sci-fi-action-an-in-depth-look-at-the-outer-worlds-gripping-narrative-and-gameplay/"><u>Engaging Sci-Fi Action: An In-Depth Look at 'The Outer Worlds' Gripping Narrative and Gameplay</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/evaluating-the-performance-and-features-of-a-battery-operated-google-nest-doorbell/"><u>Evaluating the Performance and Features of a Battery Operated Google Nest Doorbell</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-insights-into-computer-hardware-from-toms-resource-hub/"><u>Expert Insights Into Computer Hardware From Tom's Resource Hub</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-fix-the-apple-iphone-14-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>How to Fix the Apple iPhone 14 GPS not Working Issue | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-oneplus-12r-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track OnePlus 12R by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-trim-perfect-clearing-thin-lines-on-youtube/"><u>In 2024, Trim Perfect Clearing Thin Lines on YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tailored-broadcasting-strategies-for-various-platforms-yt-fb-twitch-for-2024/"><u>Tailored Broadcasting Strategies for Various Platforms (YT, FB, Twitch) for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-motorola-moto-e13-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Motorola Moto E13 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-path-to-your-youtube-comments-on-devices-for-2024/"><u>Unveiling the Path to Your YouTube Comments on Devices for 2024</u></a></li>
 </ul></div>
 

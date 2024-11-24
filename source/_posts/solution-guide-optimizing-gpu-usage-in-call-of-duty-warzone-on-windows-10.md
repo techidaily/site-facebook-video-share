@@ -1,7 +1,7 @@
 ---
 title: "Solution Guide: Optimizing GPU Usage in Call of Duty: Warzone on Windows 10"
-date: 2024-11-10T16:50:18.480Z
-updated: 2024-11-14T01:05:53.762Z
+date: 2024-11-17T01:28:20.244Z
+updated: 2024-11-23T18:14:59.733Z
 tags:
   - win11
   - win10
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/c878f30c184513e5e2ecdd904a42a40c824bea0f8
 4. [**Set graphics preference to High performance**](https://tools.techidaily.com/drivereasy/download/)
 5. **[Run Warzone in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 1: Update your graphics driver
 
  In most cases, Warzone won’t work properly with your GPU when you’re using**a broken or outdated graphics driver** . So first you need to make sure you have the latest correct graphics driver. The newest driver usually helps improve compatibility and boost in-game performance.
@@ -53,10 +57,7 @@ thumbnail: https://thmb.techidaily.com/c878f30c184513e5e2ecdd904a42a40c824bea0f8
  If the latest GPU driver doesn’t give you luck, take a look at the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2: Install all Windows updates
@@ -69,20 +70,21 @@ Here’s how you can check for updates manually:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-gear-icon.jpg)
 2. Scroll down and select**Update & Security** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
 
-![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
@@ -98,32 +100,15 @@ Once done, restart your PC and see if Warzone is using your GPU.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/nvidia-control-panel.jpg)
 2. In the left pane, click**Manage 3D settings** . Click**CUDA – GPUs** and select your graphics card. Then click**OK** to save the changes.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/warzone-nvidia-1.jpg)
 3. In the left pane, select**Set PhysX Configuration** . Under**Select a PhysX processor** , click to expand the drop down list and**select your GPU** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/warzone-nvidia-2.jpg)
 4. Now start your game and check if it’s running properly.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If this trick doesn’t work for you, simply move on to the next one.
 
@@ -143,24 +128,18 @@ Once done, restart your PC and see if Warzone is using your GPU.
 4. Click**Options** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/warzone-force-gpu-1.jpg)
 5. In the pop-up window, select**High performance** and click**OK** to apply the settings.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/warzone-force-gpu-2.jpg)
 6. You can do the same for**Modern Warfare Launcher.exe** . Once done, start Warzone and compare the GPU utilization with the gameplay.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If this setting doesn’t help, take a look at the next solution below.
 
@@ -192,20 +171,20 @@ Once done, restart your PC and see if Warzone is using your GPU.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-techniques-for-youtube-end-screen-designs/"><u>[New] 2024 Approved Essential Techniques for YouTube End Screen Designs</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-elevate-and-accelerate-vimeo-videos/"><u>[New] Elevate and Accelerate Vimeo Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-video-privacy-directly-share-yt-clips-using-googleid/"><u>[New] Mastering Video Privacy Directly Share YT Clips Using GoogleID</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-video-visibility-on-youtube-with-seo-insights/"><u>[New] Maximizing Video Visibility on YouTube with SEO Insights</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-choreographing-gripping-podcast-openings-for-2024/"><u>[Updated] Choreographing Gripping Podcast Openings for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-digital-dreams-unite-conference-for-2024/"><u>[Updated] Digital Dreams Unite Conference for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-easy-start-the-definitive-guide-to-free-channel-openers/"><u>[Updated] In 2024, Easy Start The Definitive Guide to Free Channel Openers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-to-your-personal-youtube-collection/"><u>[Updated] Navigating to Your Personal YouTube Collection</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-right-way-to-raise-your-videos-reach-responsibly/"><u>[Updated] The Right Way to Raise Your Video's Reach Responsibly</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-ultimate-guide-to-vocalizing-your-tiktok-content/"><u>[Updated] The Ultimate Guide to Vocalizing Your TikTok Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-conversion-wizardry-from-youtube-to-igtv/"><u>2024 Approved Video Conversion Wizardry From Youtube to IGTV</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/affordable-and-user-friendly-gps-tracking-with-bouncie-unveiling-the-features-in-our-review/"><u>Affordable and User-Friendly GPS Tracking with Bouncie - Unveiling the Features in Our Review</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-superior-sd-cards-that-power-up-your-gopro-hero-78/"><u>In 2024, Superior SD Cards that Power Up Your GoPro Hero 7/8</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/learn-fastest-ways-to-adjust-auditory-properties-on-windows-11/"><u>Learn Fastest Ways to Adjust Auditory Properties on Windows 11</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/overcoming-obstacles-in-video-formats/"><u>Overcoming Obstacles in Video Formats</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-inverted-footage-whats-behind-instagrams-peculiarity/"><u>[New] 2024 Approved Inverted Footage What's Behind Instagram's Peculiarity?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-pinnacle-of-hd-recording-expertly-curated-list/"><u>[New] 2024 Approved Pinnacle of HD Recording Expertly Curated List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-filmmakers-approach-to-youtube-splitscreen-videos/"><u>[New] In 2024, A Filmmaker's Approach to YouTube Splitscreen Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-authenticating-a-step-by-step-for-youtube-users/"><u>[Updated] 2024 Approved Authenticating A Step-by-Step for Youtube Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-discover-keyword-power-30-must-use-hashtags-for-freegame-content-for-2024/"><u>[Updated] Discover Keyword Power 30 Must-Use Hashtags for FreeGame Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-infallible-way-to-forbid-youtubes-snappy-videos/"><u>[Updated] Infallible Way to Forbid YouTube's Snappy Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-legitimate-techniques-for-video-popularity-surge/"><u>[Updated] Legitimate Techniques for Video Popularity Surge</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-review-magix-editing-suite-for-2024/"><u>[Updated] Review MAGIX Editing Suite for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-your-content-with-these-20-essential-youtube-hacks/"><u>[Updated] Streamline Your Content with These 20 Essential YouTube Hacks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-vivo-y36-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-youtube-experience-with-a-structured-watch-later-plan/"><u>Enhancing YouTube Experience with a Structured Watch Later Plan</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-the-basics-of-capturing-switch-gaming-moments/"><u>In 2024, The Basics of Capturing Switch Gaming Moments</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/optimal-hard-drive-recovery-protocols/"><u>Optimal Hard Drive Recovery Protocols</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/swift-recovery-reviving-windows-photo-viewer-on-modern-os-for-2024/"><u>Swift Recovery Reviving Windows Photo Viewer on Modern OS for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-eco-film-hub-dive-into-green-screen-creativity-for-2024/"><u>Youtube’s Eco-Film Hub Dive Into Green Screen Creativity for 2024</u></a></li>
 </ul></div>
 

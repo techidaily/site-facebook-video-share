@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Windows Movie Maker Tips for YouTube Editing Excellence"
-date: 2024-11-10T05:59:26.301Z
-updated: 2024-11-14T02:04:37.215Z
+date: 2024-11-16T20:44:15.078Z
+updated: 2024-11-24T00:01:25.542Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ It is hard to list all the information of how to use Filmora to edit YouTube vid
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Windows Movie Maker YouTube: How to Edit YouTube Videos?
 
 Before editing the video in [Windows Movie Maker](https://windows-movie-maker-vista.en.softonic.com/download), you have to make sure that the video format is supported by free Windows Movie Maker. As you may know that Window Movie Maker only accept the following file formats at importing: **.WMV/.ASF, .MPG (MPEG-1), .AVI (DV-AVI), .WMA, .WAV, and .MP3\.** Importing formats such as   **MP4/3GP, FLV and MOV,** are also supported you are running Windows 7 or later and you have installed the necessary codec as well.
@@ -49,6 +53,10 @@ If your videos are not supported at importing in Windows Movie Maker, you may ne
 #### Step 1: Import Video Files Into Windows Movie Maker
 
 ![youtube movie maker import video](https://images.wondershare.com/filmora/article-images/add-clips-in-wmm.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To import video or photo into Windows Movie Maker, you can click on the button **Add Videos or Photos** located at the top of the program. A file window will open, and you can select the videos from any area of your computer. Once you have the files selected, click **OK** to import the files to the storyboard in the right hand panel.
 
@@ -70,6 +78,10 @@ Once you have all the clips that you want in your video, you can then add transi
 
 ![youtube movie maker to add transition](https://images.wondershare.com/filmora/article-images/add-transitions-in-wmm.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Applying visual effects, overlays and filters work in the same way, but you click on **Visual Effects**, which is located at the top of the window. You can apply effects to any clip as along as the clip is selected first.
 
 #### Step 4: Edit/Mute Audio in Video or Add New Audio Sound
@@ -82,6 +94,10 @@ Once the sound has been adjusted on the clips, you can add new audio sound to th
 
 ![video movie maker add audio](https://images.wondershare.com/filmora/article-images/add-music-windows-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After importing the new audio file for your YouTube video, you can now adjust the music volume. In the **Music Tools** tab, there is an **Option** tab, you can control the volume and other options about the music.
 
 ![video movie maker edit music](https://images.wondershare.com/filmora/article-images/audio-mixer-in-wmm.jpg)
@@ -91,6 +107,10 @@ After importing the new audio file for your YouTube video, you can now adjust th
 Windows Movie Maker allows you to add different types of text freely. You will see 3 buttons that allow different types of text to video: stationary title, captions and rolling credits. Click on **Title**, you can add text before the video begins; select **Caption**, you will write text to the video frames; and click **Credits** will add end credits to the end of the video.
 
 ![ free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After selecting the type of text you want, you can enter your text and edit the text effects. You can change the text duration and apply text visual effects, and change the text outline size and more.
 
@@ -104,34 +124,13 @@ Once all the edits are done, you can save the video by clicking on **File** then
 
 ![movie maker for youtube edit video](https://images.wondershare.com/filmora/article-images/windows-movie-maker-publish-movie.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 That’s it. That’s how you can edit your YouTube video with Windows Movie Maker. It is a great YouTube video editor to make video with various features. However, you may consider other YouTube movie maker as it won't updated. Why not try Filmora. It is one of the best movie editor for YouTube. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,22 +147,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-convert-your-streaming-top-free-video-to-audio-tools/"><u>[New] 2024 Approved Convert Your Streaming Top Free Video to Audio Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-innovative-naming-strategies-elevating-your-filmora-channels-identity/"><u>[New] Innovative Naming Strategies Elevating Your Filmora Channels' Identity</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-make-big-bucks-fast-with-a-focus-on-youtube-short-video-creation/"><u>[New] Make Big Bucks Fast with a Focus on YouTube Short Video Creation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-unleashing-creativity-with-aes-best-text-presets/"><u>[New] Unleashing Creativity with AE's Best Text Presets</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discover-the-top-8-cost-free-videography-suites-for-digital-filmmakers/"><u>[Updated] 2024 Approved Discover the Top 8 Cost-Free Videography Suites for Digital Filmmakers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-vcs-vidcapture-review-full-examination/"><u>[Updated] 2024 Approved VCS VidCapture Review Full Examination</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-20-essentials-every-new-creator-should-own/"><u>[Updated] In 2024, 20 Essentials Every New Creator Should Own</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-access-10-free-thumbnail-downloader-apps/"><u>[Updated] In 2024, Access 10 Free Thumbnail Downloader Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-guide-to-professional-quality-audio-without-a-microphone/"><u>2024 Approved The Ultimate Guide to Professional-Quality Audio without a Microphone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-zippy-zenith-the-quickest-youtube-playlist-share/"><u>2024 Approved Zippy Zenith The Quickest Youtube Playlist Share</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-cutting-edge-video-experience-on-your-phone-os/"><u>In 2024, Cutting Edge Video Experience on Your Phone OS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/safe-techniques-for-extracting-and-converting-youtube-audio-into-mp3-for-2024/"><u>Safe Techniques for Extracting and Converting YouTube Audio Into MP3 for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-problem-resolve-error-code-0x800f081f-during-net-framework-35-setup/"><u>Solving the Problem: Resolve Error Code 0X800F081F During .NET Framework 3.5 Setup</u></a></li>
-<li><a href="https://discover-help.techidaily.com/tres-maneras-esenciales-de-retirar-completamente-windows-11-rapidamente-hasta-23-segundos/"><u>Tres Maneras Esenciales De Retirar Completamente Windows 11 Rápidamente (Hasta 23 Segundos)</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-7-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone 7? Fixed | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/dvdwindows-groove/"><u>プロジェクト完了！DVDに動画を書き込むためのWindows Grooveアプリ</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-keep-it-real-keep-it-right-tips-for-authentic-daily-videos/"><u>[New] Keep It Real, Keep It Right Tips for Authentic Daily Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-video-marketing-titles-and-tags-on-youtube/"><u>[New] The Art of Video Marketing Titles & Tags on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-12-superior-portable-cams-for-flip-screen-use/"><u>[New] Unveiling the 12 Superior Portable Cams for Flip Screen Use</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-charting-social-media-trends-with-data-graphics/"><u>[Updated] 2024 Approved Charting Social Media Trends with Data Graphics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-directors-academy-youtube-channels-for-cinematic-innovation/"><u>[Updated] 2024 Approved Directors Academy YouTube Channels for Cinematic Innovation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brief-video-explanations-all-inclusive-for-2024/"><u>[Updated] Brief Video Explanations, All-Inclusive for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-journey-through-the-digital-landscape-six-engaging-quizzes-for-every-vlogger-admirer/"><u>[Updated] In 2024, A Journey Through the Digital Landscape Six Engaging Quizzes for Every Vlogger Admirer</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-make-your-youtube-moments-come-alive-creating-dynamic-gifs/"><u>[Updated] In 2024, How to Make Your YouTube Moments Come Alive Creating Dynamic GIFs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-react-and-relate-harness-the-power-of-alternate-perspectives-for-compelling-youtube-vids-2-pov-method/"><u>[Updated] React and Relate - Harness the Power of Alternate Perspectives for Compelling YouTube Vids (2 POV Method)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategies-to-swiftly-remove-unwanted-video-post-comments/"><u>[Updated] Strategies to Swiftly Remove Unwanted Video Post-Comments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-youtube-video-mastery-through-finalcut-pro-methods/"><u>[Updated] Unveiling YouTube Video Mastery Through FinalCut Pro Methods</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/dynamic-movement-synopsis-overview-for-2024/"><u>Dynamic Movement Synopsis Overview for 2024</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/guide-facile-pour-reinitialiser-le-code-dacces-au-controleur-de-gestion-windows/"><u>Guide Facile Pour Réinitialiser Le Code D'Accès Au Contrôleur De Gestion Windows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/retracing-the-footsteps-in-facebooks-historical-content-stream-for-2024/"><u>Retracing the Footsteps in Facebook’s Historical Content Stream for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-to-dodge-content-advisory-strikes-for-2024/"><u>Strategies to Dodge Content Advisory Strikes for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/synchro-sound-creation-merging-audio-tracks-into-one-cohesive-file-for-2024/"><u>Synchro-Sound Creation Merging Audio Tracks Into One Cohesive File for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-galaxys-giant-a-review-of-the-ford-f-150-rc-vehicle-masterpiece/"><u>The Ultimate Guide to Galaxy's Giant: A Review of the Ford F-150 RC Vehicle Masterpiece</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transformer-facilement-un-fichier-ts-en-format-wav-gratuitement-avec-une-solution-en-ligne-movavi/"><u>Transformer Facilement Un Fichier TS en Format WAV Gratuitement Avec Une Solution en Ligne - Movavi</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-get-stuck-in-a-loop-10-free-online-video-looping-tools-you-need/"><u>Updated 2024 Approved Get Stuck in a Loop 10 Free Online Video Looping Tools You Need</u></a></li>
 </ul></div>
 

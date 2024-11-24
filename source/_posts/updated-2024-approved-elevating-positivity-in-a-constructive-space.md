@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-11-11T00:55:09.623Z
-updated: 2024-11-13T21:46:14.485Z
+date: 2024-11-18T19:44:45.242Z
+updated: 2024-11-23T20:14:05.406Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -69,25 +77,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-comprehensive-list-of-high-quality-game-entrance-makers-online/"><u>[New] In 2024, Comprehensive List of High-Quality Game Entrance Makers Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-swift-soundphone-tools-for-rapid-tracks/"><u>[New] Swift Soundphone Tools for Rapid Tracks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-earnings-potential-dm-and-yo-showdown/"><u>[New] Unlocking Earnings Potential Dm & Yo Showdown</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-architects-crafting-fantasy-realms-for-marvel/"><u>[Updated] In 2024, Architects Crafting Fantasy Realms for Marvel</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-youtube-markets-the-quest-for-a-targeted-niche/"><u>[Updated] Navigating YouTube Markets The Quest for a Targeted Niche</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/astral-expressions-top-30-bios-to-boost-your-signs-charm/"><u>Astral Expressions Top 30 Bios to Boost Your Sign's Charm</u></a></li>
-<li><a href="https://win11.techidaily.com/elongating-pin-lengths-without-compromising-security/"><u>Elongating Pin Lengths without Compromising Security</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-limitations-of-googles-latest-nest-hub-gen-2-the-lack-of-a-camera-feature-examined/"><u>Exploring the Limitations of Google's Latest Nest Hub (Gen 2) - The Lack of a Camera Feature Examined</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-samsung-galaxy-a25-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Samsung Galaxy A25 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-twitch-content-integration-boosting-engagement-with-fb-sharing/"><u>In 2024, Twitch Content Integration Boosting Engagement with FB Sharing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/skyrocket-viewer-numbers-with-the-top-12-effective-tactics-for-2024/"><u>Skyrocket Viewer Numbers with the Top 12 Effective Tactics for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-12-prominent-vivo-y78plus-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Vivo Y78+ Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-tecno-spark-10c-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Tecno Spark 10C to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/fix-non-printing-usb-printers-on-win7-after-suspend/"><u>[Fix] Non-Printing USB Printers on Win7 After Suspend</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-visual-stories-in-25-steps-blending-pictures-for-maximum-engagement/"><u>[New] 2024 Approved Visual Stories in 25 Steps Blending Pictures for Maximum Engagement</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-easy-screen-capture-app-w10-edition/"><u>[New] In 2024, Easy Screen Capture App, W10 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tailor-made-youtube-url-strategies-an-easier-approach/"><u>[New] Tailor-Made YouTube URL Strategies An Easier Approach</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-techniques-for-capturing-high-quality-movies-on-all-os/"><u>[New] Techniques for Capturing High-Quality Movies on All OS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-uncovering-8-must-have-mirrorless-cams-for-video-creators/"><u>[New] Uncovering 8 Must-Have Mirrorless Cams for Video Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-a-practical-guide-to-using-vsco-for-professionals/"><u>[Updated] 2024 Approved A Practical Guide to Using VSCO for Professionals</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-up-to-professionalism-navigating-dslr-and-facebook-live-with-your-computer/"><u>[Updated] 2024 Approved Step Up to Professionalism Navigating DSLR & Facebook LIVE with Your Computer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-acquire-no-cost-sounds-for-videos-and-podcasts-for-2024/"><u>[Updated] Acquire No-Cost Sounds for Videos & Podcasts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-hidden-costs-and-benefits-of-purchased-video-traction-on-channels/"><u>[Updated] The Hidden Costs and Benefits of Purchased Video Traction on Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-your-ultimate-youtube-video-gear-top-rated-cameras-and-lenses/"><u>2024 Approved Your Ultimate YouTube Video Gear Top-Rated Cameras and Lenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-landscape-decoded-creating-your-signature-style-and-voice/"><u>2024 Approved YouTube's Landscape Decoded Creating Your Signature Style and Voice</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/how-does-samsung-t7-ssd-secure-data-with-encryption-a-complete-guide/"><u>How Does Samsung T7 SSD Secure Data with Encryption: A Complete Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-honor-90-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Honor 90 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-honor-magic-6-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Honor Magic 6 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

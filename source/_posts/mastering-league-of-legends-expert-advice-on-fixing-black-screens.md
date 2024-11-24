@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-11-12T19:01:24.244Z
-updated: 2024-11-14T06:41:48.723Z
+date: 2024-11-17T03:43:39.570Z
+updated: 2024-11-24T00:15:38.242Z
 tags:
   - win11
   - win10
@@ -82,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
 
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee.
@@ -89,10 +93,7 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-84.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
@@ -100,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  If you need assistance, please contact**Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 3: Install the latest Windows Updates
@@ -114,29 +112,19 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-62-1024x796.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Click**Download** if Windows detects any new updates. If not, then click**Check for updates** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3) Wait until Windows downloaded and installed all the updates.
 
 4) Restart Windows and run League of Legends again.
 
  See if you can play the game without crashes. If so, you’ve fixed this issue! If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Repair corrupted game files
 
@@ -151,6 +139,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  3) Click**Initiate Full Repair** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4) Click**Yes** to continue. This may take a while.
 
@@ -169,13 +161,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 2) In the upper-right corner, click**the gear button**  to open the game settings.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
@@ -203,24 +188,24 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-breaking-down-why-syma-x5c-is-top-notch-for-new-dronists/"><u>[New] 2024 Approved Breaking Down Why Syma X5C Is Top-Notch for New Dronists</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>[New] 2024 Approved Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-bridging-content-creators-how-to-join-youtube-and-tiktok-for-2024/"><u>[New] Bridging Content Creators How to Join YouTube & TikTok for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/astering-zero-cost-youtube-intros-essential-tips-and-templates-for-2024/"><u>[New] Mastering Zero-Cost YouTube Intros Essential Tips & Templates for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-top-ranked-youtube-extractors-pc-mobile-and-more-tips/"><u>[New] Top-Ranked YouTube Extractors - PC, Mobile, and More Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-voice-transformation-tools-for-social-media-stars/"><u>[New] Ultimate Voice Transformation Tools for Social Media Stars</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-creating-powerful-teacher-content-on-youtube-top-10-insights/"><u>[Updated] 2024 Approved Creating Powerful Teacher Content on YouTube Top 10 Insights</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-editing-a-roadmap-for-high-quality-youtube-sounds/"><u>[Updated] 2024 Approved Cutting-Edge Editing A Roadmap for High-Quality YouTube Sounds</u></a></li>
-<li><a href="https://win-able.techidaily.com/comprehensive-tutorial-for-capturing-viber-calls-on-all-your-gadgets-including-windows-and-ios-devices/"><u>Comprehensive Tutorial for Capturing Viber Calls on All Your Gadgets Including Windows and iOS Devices!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/do-electric-vehicles-hold-their-own-against-conventional-car-lifespans/"><u>Do Electric Vehicles Hold Their Own Against Conventional Car Lifespans?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-8-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone 8 Passcode Easily Video Inside</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-recover-lost-system-files-in-windows-without-losing-data/"><u>How to Recover Lost System Files in Windows Without Losing Data</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-oppo-k11x-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Oppo K11x</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabled-iphone-13-pro-how-to-unlock-a-disabled-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, Disabled iPhone 13 Pro How to Unlock a Disabled iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/professional-shooters-guide-to-stability/"><u>Professional Shooters' Guide to Stability</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/safe-mp4-extraction-from-youtube-videos-for-2024/"><u>Safe MP4 Extraction From YouTube Videos for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2057562-9781609259884-the-complete-book-of-aquarian-magic/"><u>The Complete Book of Aquarian Magic | Free Book</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-collection-of-top-ranked-cost-free-youtube-short-video-downloader-apps-for-2024/"><u>The Ultimate Collection of Top-Ranked, Cost-Free YouTube Short Video Downloader Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unleashing-creativity-mastering-the-art-of-360-degree-videography-for-youtube-for-2024/"><u>Unleashing Creativity Mastering the Art of 360-Degree Videography for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-constructing-youtube-playlists-made-simple-for-2024/"><u>[New] Constructing YouTube Playlists Made Simple for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-tips-sharing-your-apple-devices-screen-with-youtube/"><u>[New] In 2024, Essential Tips Sharing Your Apple Devices Screen with YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagrams-mirror-reflecting-true-selfie-essence-for-2024/"><u>[New] Instagram's Mirror Reflecting True Selfie Essence for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-top-5-gaming-chairs-on-a-shoestring-budget/"><u>[New] Top 5 Gaming Chairs on a Shoestring Budget</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-efficiency-in-video-editing-with-these-top-10-apps/"><u>[New] Unlocking Efficiency in Video Editing with These Top 10 Apps</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-metavision-journey-essential-gear-for-metaverse-visitors/"><u>[Updated] 2024 Approved Metavision Journey Essential Gear for Metaverse Visitors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-block-spontaneous-youtube-video-triggers-for-2024/"><u>[Updated] Block Spontaneous YouTube Video Triggers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-guide-to-supercharged-video-engagement-with-youtube-notes/"><u>[Updated] Guide to Supercharged Video Engagement with YouTube Notes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ranking-the-top-12-streamlined-screen-swivel-cams-for-content/"><u>[Updated] Ranking the Top 12 Streamlined Screen-Swivel Cams for Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocket-your-channels-with-these-essential-freegame-tags-for-youtube/"><u>[Updated] Skyrocket Your Channels with These Essential FreeGame Tags for YouTube</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/audio-recovery-tips-for-troubleshooting-realtek-speaker-issues/"><u>Audio Recovery Tips for Troubleshooting Realtek Speaker Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/east-european-linguistics-uk-and-rus-analysis/"><u>East European Linguistics: Uk & Rus Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effective-solutions-for-resolving-the-0x0000003d-blue-screen-of-death-error/"><u>Effective Solutions for Resolving the 0X0000003D Blue Screen of Death Error</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-vivo-y27-4g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Vivo Y27 4G Data? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/master-the-fixes-for-starting-your-doom-eternal-game/"><u>Master the Fixes for Starting Your DOOM Eternal Game</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rise-above-the-norm-expert-tips-for-broadcasting-spherical-content-on-youtube-for-2024/"><u>Rise Above the Norm Expert Tips for Broadcasting Spherical Content on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/she-shares-we-watch-top-female-content-creators-on-youtube-for-2024/"><u>She Shares, We Watch Top Female Content Creators on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/simplified-guide-uploading-urls-to-instagram-media/"><u>Simplified Guide Uploading URLs to Instagram Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamlining-creation-youtube-video-editor-insights-for-2024/"><u>Streamlining Creation YouTube Video Editor Insights for 2024</u></a></li>
 </ul></div>
 
