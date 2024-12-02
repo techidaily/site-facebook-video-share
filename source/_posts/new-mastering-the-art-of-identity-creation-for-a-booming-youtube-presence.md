@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering the Art of Identity Creation for a Booming YouTube Presence"
-date: 2024-08-01T10:31:26.829Z
-updated: 2024-08-02T10:31:26.829Z
+date: 2024-11-28T03:39:39.516Z
+updated: 2024-12-02T05:19:28.702Z
 tags:
   - ai video
   - ai youtube
@@ -28,16 +28,10 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 
 Epic Meal Time. Michelle Phan. Peter McKinnon. When you think of each of these YouTube creators, what comes to mind? The feelings and thoughts you have are vastly different because each one of these channels has its own unique branding.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Epic Meal Time](https://images.wondershare.com/filmora/article-images/epic-meal-time.png)
 
 _Epic Meal Time’s YouTube brand is in-your-face and intense. It pumps you full of adrenaline and increases your heart rate._
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![Michelle Phan](https://images.wondershare.com/filmora/article-images/michelle-phan-youtube-channel.png)
 
 _Michelle Phan’s YouTube brand is calm, whimsical, and aspirational._
@@ -46,11 +40,19 @@ _Michelle Phan’s YouTube brand is calm, whimsical, and aspirational._
 
 They have different branding because they want to reflect different feelings for different audiences.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bad Branding Causes Mistrust
 
 When a branding element does not align with the message or the tone does not match with the material, then the audience is not going to trust what you offer. Without trust, you won’t be able to get the advocacy that is essential for a YouTube channel to grow.
 
 Imagine Michelle Phan using the aggressive colors of Epic Meal Time or vice versa. Pretty weird, huh?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What is YouTube Branding?
 
@@ -76,9 +78,6 @@ Here are notable elements of your channel’s branding:
 
 \- Style of video
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Start Branding Your YouTube Channel?
 
 Before you start designing thumbnails and coming up with a catchphrase, the first step in branding is understanding the purpose of your channel. Once you have a purpose, you will know how you want your viewers to feel.
@@ -187,9 +186,6 @@ Want more resources for creating your channel’s visual elements? Yes? Well, we
 
 \- [Free Youtube Banners](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make Your Visuals Consistent?
 
 When a viewer finds your video and considers it pretty interesting, they will then go into your channel page to learn more. Here is where they make their decision: subscribe or not subscribe?
@@ -200,18 +196,12 @@ Consistent branding affirms the viewer that they are in the right place. Peter M
 
 _Peter McKinnon is best known for his photography and cinematography, and his branding amplifies that._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## But Branding Is Not Designing, It’s A Feeling
 
 Don’t get too caught up with a design.
 
 Look at PewDiePie’s branding. You can argue that it is inconsistent and the design is not professional, but actually, his branding is spot on, because he is making you feel a certain way.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pew Die Pie Channel](https://images.wondershare.com/filmora/article-images/pew-die-pie-channel.png)
 
 _PewDiePie’s brand highlights its upbeat and unpredictable personality._
@@ -222,12 +212,13 @@ Consistent branding is about making the elements of your channel: channel art, l
 
 The humor in PewDiePie’s brand is consistent, even though his thumbnails don’t look like Philip DeFranco’s. It is up to you how you define consistency, and that will happen over time.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
 
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Inserting A Watermark
 
@@ -235,10 +226,11 @@ The main point of a watermark is to let the viewers know when they are watching 
 
 Let’s be honest, YouTube content can all look the same, especially if you are making content that is quite general (like beauty or tech), so a watermark helps differentiate, so when viewers are ready to subscribe, they have an extra branding element connecting them to your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Improvement Pill](https://images.wondershare.com/filmora/article-images/improvement-pill.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Improvement Pill is a YouTube channel focused on inspiring and motivating its viewer to live a better life._
 
@@ -253,8 +245,9 @@ Want to set up your subscription watermark? Here is a quick tutorial:
 ##  
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Coming Up With A Catchphrase
 
 A catchphrase can be your greeting or sign off, but it doesn’t have to be an original line, it can simply be the way you say “hello.”
@@ -262,6 +255,10 @@ A catchphrase can be your greeting or sign off, but it doesn’t have to be an o
 Check out some of the popular YouTuber’s catchphrases:
 
   When coming up with a catchphrase that is connected to your channel’s branding remember how you want the viewer to feel. Do you want to leave them with a smile? Or do you want them to take action?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Thoughts On YouTube Branding
 
@@ -271,9 +268,6 @@ Your branding doesn’t dictate the content you create, but it does affect how y
 
 Got more questions about branding your YouTube channel? Let us know in the comments below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -282,12 +276,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gaining-exposure-cost-effective-promotion-hacks-for-youtubers/"><u>[New] 2024 Approved Gaining Exposure Cost-Effective Promotion Hacks for YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-captivating-animations-creating-gifs-from-your-favorite-youtube-videos/"><u>[New] In 2024, Crafting Captivating Animations Creating GIFs From Your Favorite YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dj-beats-unleashed-high-fidelity-templates-downloaded-easily/"><u>[New] In 2024, DJ Beats Unleashed High-Fidelity Templates Downloaded Easily</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-laughter-unlimited-meme-magic-app/"><u>[New] Laughter Unlimited Meme Magic App</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-twitch-time-travel-regain-control-over-streams/"><u>[New] Twitch Time Travel Regain Control Over Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-efficiently-balancing-professional-commitments-and-creativity/"><u>[Updated] 2024 Approved Efficiently Balancing Professional Commitments & Creativity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-amplifying-zoom-picture-quality-insider-secrets/"><u>[Updated] Amplifying Zoom Picture Quality Insider Secrets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unlocking-google-chromes-pip-potential-on-all-platforms/"><u>[Updated] In 2024, Unlocking Google Chrome's PIP Potential on All Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tailoring-thumbnail-lengths-for-youtube-audience-focus/"><u>[Updated] Tailoring Thumbnail Lengths for YouTube Audience Focus</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-vivo-y78plus-t1-edition-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Vivo Y78+ (T1) Edition? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fix-conflicts-ensure-seamless-operation-of-hp-laserjet-pro-400-on-win-os/"><u>Fix Conflicts: Ensure Seamless Operation of HP LaserJet Pro 400 on Win OS</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-speed-up-or-slow-down-top-10-free-video-editing-apps-for-mobile-for-2024/"><u>New Speed Up or Slow Down Top 10 Free Video Editing Apps for Mobile for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-6-libres-de-derechos-los-mejor-programas-para-el-clonado-de-dvd/"><u>Top 6 Libres De Derechos Los Mejor Programas Para El Clonado De DVD</u></a></li>
+</ul></div>
 

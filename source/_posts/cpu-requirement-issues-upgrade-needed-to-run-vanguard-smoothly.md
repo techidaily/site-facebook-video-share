@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2024-11-18T00:20:51.605Z
-updated: 2024-11-24T01:42:55.748Z
+date: 2024-11-24T19:06:50.682Z
+updated: 2024-12-01T18:46:04.612Z
 tags:
   - win11
   - win10
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
  There are several factors that can cause this issue. In some cases, this could be a hardware issue that shows your PC specs not meeting Warframe’s requirements. Or, it could be a software glitch related to an outdated driver and software conflicts. But don’t worry. We’ve got a few solutions for you in this post.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Fix Warframe Freezing
 
  You may not have to try them all; just work your way down the list until you find the one that works for you.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 4. [**Lower in-game graphics settings**](https://tools.techidaily.com/drivereasy/download/)
 5. [**Turn off unnecessary programs**](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1: Check your home network
 
  A bad network connection can often cause your game to freeze, lag or even crash, so you may want to**restart your network** by turning off your modem and router for at least 20 seconds then turning them back on.
@@ -44,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
  If you’re using a Wi-Fi connection, try using an ethernet cable. An ethernet cable can provide a more stable internet connection. If that’s not an option, you can instead, move your computer closer to your router as the distance between your PC and the Router could also affect your Wi-Fi connection and your gaming performance.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 2: Update your graphics driver
@@ -62,10 +70,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 **2)** Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
@@ -108,7 +112,7 @@ Your game still freezes? Try the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
@@ -116,7 +120,7 @@ Your game still freezes? Try the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
@@ -124,10 +128,6 @@ Your game still freezes? Try the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
 
 If your issue persists, then move on to the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 5: Turn off unnecessary programs
 
@@ -166,16 +166,19 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-access-free-photographic-treasures-through-favored-4-youtube-clips/"><u>[New] 2024 Approved Access Free Photographic Treasures Through Favored 4 Youtube Clips</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-breaking-boundaries-top-6-artists-leading-nft-frontier-for-2024/"><u>[New] Breaking Boundaries Top 6 Artists Leading NFT Frontier for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-video-presentation-with-these-7-free-makers/"><u>[New] Elevate Your Video Presentation with These 7 Free Makers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-how-to-add-video-to-text/"><u>[New] How to Add Video to Text</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-capturing-the-unseen-9-must-have-camgear-for-aspiring-vloggers/"><u>[New] In 2024, Capturing the Unseen 9 Must-Have CamGear for Aspiring Vloggers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cut-buffering-time-turn-on-av1-in-youtube-settings/"><u>[New] In 2024, Cut Buffering Time – Turn On AV1 in YouTube Settings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-innovative-strategies-for-youtube-video-closures/"><u>[New] Innovative Strategies for YouTube Video Closures</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagrams-power-mastering-the-addition-of-video-descriptions/"><u>[New] Instagram's Power Mastering the Addition of Video Descriptions</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-photography-elite-line-up-best-6-4k-dslr-options-reviewed/"><u>In 2024, Photography Elite Line-Up Best 6 4K DSLR Options Reviewed</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/retro-aesthetics-integrating-yesterdays-vhs-tricks-into-modern-editing-for-2024/"><u>Retro Aesthetics Integrating Yesterday’s VHS Tricks Into Modern Editing for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-essence-of-teac-pd-301-elegant-and-clear-music/"><u>The Essence of Teac PD-301: Elegant & Clear Music</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-best-desktop-and-online-gif-tools-ranked/"><u>[New] 2024 Approved 10 Best Desktop & Online GIF Tools Ranked</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-accelerate-engagement-the-best-12-ways-to-increase-video-popularity/"><u>[New] 2024 Approved Accelerate Engagement - The Best 12 Ways to Increase Video Popularity</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-choosing-your-go-to-youtube-video-downloaders-on-android-platform-for-2024/"><u>[New] Choosing Your Go-To YouTube Video Downloaders on Android Platform for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtube-potential-with-best-thumbnail-dimensions/"><u>[New] Unlocking YouTube Potential with Best Thumbnail Dimensions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-content-game-with-these-powerful-youtube-shortcuts/"><u>[Updated] 2024 Approved Elevate Your Content Game with These Powerful YouTube Shortcuts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-concealing-content-securing-video-data-ethics/"><u>[Updated] In 2024, Concealing Content Securing Video Data Ethics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-investing-wisely-in-subscribers-get-more-for-less/"><u>[Updated] Investing Wisely in Subscribers Get More for Less</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-thumbnail-mastery-for-youtube-channel-graphics/"><u>[Updated] Thumbnail Mastery for YouTube Channel Graphics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-the-full-potential-of-your-youtube-videos-with-these-tips/"><u>[Updated] Unlock the Full Potential of Your YouTube Videos with These Tips</u></a></li>
+<li><a href="https://extra-information.techidaily.com/google-ar-stickers-an-introduction-and-comparisons/"><u>Google AR Stickers An Introduction & Comparisons</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Location on TikTok to See More Content On your Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/overcome-chromes-video-troubles-in-seconds-for-2024/"><u>Overcome Chrome's Video Troubles in Seconds for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209663988-9781934336298-the-healing-power-of-empathy/"><u>The Healing Power of Empathy | Free Book</u></a></li>
 </ul></div>
 

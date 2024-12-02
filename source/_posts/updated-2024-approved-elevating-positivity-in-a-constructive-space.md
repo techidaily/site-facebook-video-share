@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-11-18T19:44:45.242Z
-updated: 2024-11-23T20:14:05.406Z
+date: 2024-11-29T02:17:29.460Z
+updated: 2024-12-01T17:58:39.268Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,20 +77,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://printer-issues.techidaily.com/fix-non-printing-usb-printers-on-win7-after-suspend/"><u>[Fix] Non-Printing USB Printers on Win7 After Suspend</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-visual-stories-in-25-steps-blending-pictures-for-maximum-engagement/"><u>[New] 2024 Approved Visual Stories in 25 Steps Blending Pictures for Maximum Engagement</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-easy-screen-capture-app-w10-edition/"><u>[New] In 2024, Easy Screen Capture App, W10 Edition</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-tailor-made-youtube-url-strategies-an-easier-approach/"><u>[New] Tailor-Made YouTube URL Strategies An Easier Approach</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-techniques-for-capturing-high-quality-movies-on-all-os/"><u>[New] Techniques for Capturing High-Quality Movies on All OS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-uncovering-8-must-have-mirrorless-cams-for-video-creators/"><u>[New] Uncovering 8 Must-Have Mirrorless Cams for Video Creators</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-a-practical-guide-to-using-vsco-for-professionals/"><u>[Updated] 2024 Approved A Practical Guide to Using VSCO for Professionals</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-up-to-professionalism-navigating-dslr-and-facebook-live-with-your-computer/"><u>[Updated] 2024 Approved Step Up to Professionalism Navigating DSLR & Facebook LIVE with Your Computer</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-acquire-no-cost-sounds-for-videos-and-podcasts-for-2024/"><u>[Updated] Acquire No-Cost Sounds for Videos & Podcasts for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-hidden-costs-and-benefits-of-purchased-video-traction-on-channels/"><u>[Updated] The Hidden Costs and Benefits of Purchased Video Traction on Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-your-ultimate-youtube-video-gear-top-rated-cameras-and-lenses/"><u>2024 Approved Your Ultimate YouTube Video Gear Top-Rated Cameras and Lenses</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-landscape-decoded-creating-your-signature-style-and-voice/"><u>2024 Approved YouTube's Landscape Decoded Creating Your Signature Style and Voice</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/how-does-samsung-t7-ssd-secure-data-with-encryption-a-complete-guide/"><u>How Does Samsung T7 SSD Secure Data with Encryption: A Complete Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-honor-90-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Honor 90 – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-honor-magic-6-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Honor Magic 6 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mp3-to-youtube-converter-upload-mp3-to-youtube/"><u>[New] MP3 to YouTube Converter Upload MP3 to YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-engineering-video-excerpts-for-online-platforms/"><u>[Updated] 2024 Approved Engineering Video Excerpts for Online Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-distinguishing-between-youtube-policies-and-cc-clauses-for-2024/"><u>[Updated] Distinguishing Between YouTube Policies and CC Clauses for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>[Updated] In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-5-best-live-streaming-webcamscameras-for-twitch-for-2024/"><u>[Updated] Top 5 Best Live Streaming Webcams/Cameras for Twitch for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-revenue-per-million-views-an-insight/"><u>[Updated] YouTube's Revenue Per Million Views An Insight</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-how-to-successfully-resolve-and-prevent-windows-update-error-0x8024401c-in-windows-10-and-11-os/"><u>Expert Tips: How to Successfully Resolve and Prevent Windows Update Error 0X8024401c in Windows 10 & 11 OS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-asus-rog-phone-7-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Asus ROG Phone 7 Photos An Easy Method Explained.</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-enable-adaptive-hdr-tutorial-for-windows-11/"><u>In 2024, Enable Adaptive HDR Tutorial for Windows 11</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/last-minute-opportunity-top-october-prime-day-202/"><u>Last-Minute Opportunity: Top October Prime Day 202</u></a></li>
+<li><a href="https://win11.techidaily.com/the-blueprint-for-faster-epic-games-downloads-on-pc/"><u>The Blueprint for Faster Epic Games Downloads on PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleashing-potential-your-guide-to-making-blockbuster-youtube-videos-for-2024/"><u>Unleashing Potential Your Guide to Making Blockbuster Youtube Videos for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/winning-with-windows-11-mastering-video-conferencing-via-zoom/"><u>Winning with Windows 11 Mastering Video Conferencing via Zoom</u></a></li>
 </ul></div>
 

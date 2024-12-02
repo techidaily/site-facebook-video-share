@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Talking Heads  Visual Techniques to Engage Audiences\""
-date: 2024-08-01T10:36:44.809Z
-updated: 2024-08-02T10:36:44.809Z
+date: 2024-12-01T00:48:03.096Z
+updated: 2024-12-01T22:19:37.154Z
 tags:
   - ai video
   - ai youtube
@@ -32,22 +32,21 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -62,9 +61,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -80,8 +76,9 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -110,12 +107,17 @@ Looking to find the right lights for your video recording set? Check out our [To
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -123,12 +125,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-parody-songs-that-totally-crack-you-up/"><u>[New] 2024 Approved 10 Parody Songs That Totally Crack You Up</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-curtail-unexpected-youtube-recommendations/"><u>[New] 2024 Approved Curtail Unexpected YouTube Recommendations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-directly-uploading-youtube-vids-to-multiple-social-sites-focusing-on-fb/"><u>[New] In 2024, Directly Uploading YouTube Vids to Multiple Social Sites, Focusing on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-what-is-behind-the-blue-icon-that-graces-your-messenger-chat-window/"><u>[New] What Is Behind the Blue Icon that Graces Your Messenger Chat Window?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-prime-picks-top-tweets-for-must-see-original-series/"><u>[Updated] 2024 Approved Prime Picks Top Tweets for Must-See Original Series</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-youtube-sponsor-opportunities-via-famebit-methods/"><u>[Updated] 2024 Approved Unlocking YouTube Sponsor Opportunities via FameBit Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boost-channels-and-views-through-savvy-youtube-analysis-for-2024/"><u>[Updated] Boost Channels and Views Through Savvy YouTube Analysis for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-charting-creators-fortune-revenue-generated-from-youtube-advertisements-for-2024/"><u>[Updated] Charting Creator's Fortune Revenue Generated From Youtube Advertisements for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-cinema-youtubes-compreranche-guide-for-filmmakers-for-2024/"><u>[Updated] Crafting Cinema YouTube's Compreranche Guide for Filmmakers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-flv-file-symphony-creating-a-single-youtube-playlist/"><u>[Updated] FLV File Symphony Creating a Single YouTube Playlist</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-channel-command-center-mastering-your-digital-domain/"><u>[Updated] In 2024, Channel Command Center Mastering Your Digital Domain</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-why-av1-improving-streams-and-videos-on-youtube/"><u>[Updated] Why AV1? – Improving Streams and Videos on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-building-immersive-thumbnails-for-igtv-videos/"><u>2024 Approved Building Immersive Thumbnails for IGTV Videos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-13-pro-max-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 13 Pro Max How to Bypass?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-infinix-hot-40i-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Infinix Hot 40i Lock Screen Password?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722965520775-legislation-such-as-the-biological-weapons-convention-bwc-plays-a-key-role-in-preventing-the-development-and-proliferation-of-biological-weapons/"><u>Legislation Such as the Biological Weapons Convention (BWC) Plays a Key Role in Preventing the Development and Proliferation of Biological Weapons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/sprinkle-life-into-text-two-methods-for-bouncing-effects-for-2024/"><u>Sprinkle Life Into Text Two Methods for Bouncing Effects for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlock-the-potentials-top-6-strategies-for-using-chatgpt-in-work/"><u>Unlock the Potentials: Top 6 Strategies for Using ChatGPT in Work</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unveiling-underground-favorites-in-the-world-of-memes-for-2024/"><u>Unveiling Underground Favorites in the World of Memes for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-11-21T17:10:29.196Z
-updated: 2024-11-24T03:23:51.868Z
+date: 2024-12-01T02:30:47.270Z
+updated: 2024-12-01T20:58:52.491Z
 tags:
   - ai video
   - ai youtube
@@ -31,7 +31,7 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
@@ -45,7 +45,7 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
@@ -66,21 +66,25 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -103,7 +107,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -125,10 +129,6 @@ Hover the mouse over the target video in the right window, and click the **Detai
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -177,16 +177,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-editcanvas-solutions/"><u>[New] 2024 Approved EditCanvas Solutions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-pros-choice-the-ultimate-list-of-7-live-streaming-apps-for-youtube-iosandroid/"><u>[New] In 2024, Pro's Choice The Ultimate List of 7 Live Streaming Apps for YouTube (iOS/Android)</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-the-powerhouse-guide-to-screen-recording-with-tunefab/"><u>[New] The Powerhouse Guide to Screen Recording with Tunefab</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-controlling-who-sees-your-youtube-productions-for-2024/"><u>[Updated] Controlling Who Sees Your Youtube Productions for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/cookiebot-driven-automation-boost-your-sites-traffic-effortlessly/"><u>Cookiebot-Driven Automation: Boost Your Site's Traffic Effortlessly</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1721467467002-no-need-for-itunes-heres-how-you-can-bring-your-iphone-back-from-the-dead/"><u>No Need for iTunes? Here's How You Can Bring Your iPhone Back From the Dead</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/preserving-excellence-a-step-by-step-process-to-downscale-your-1080p-footage-to-720p-without-quality-loss/"><u>Preserving Excellence: A Step-by-Step Process to Downscale Your 1080P Footage to 지팡사이트하려면 염두에서 생각해보세요720P Without Quality Loss</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/rise-in-the-rankings-essential-seo-for-video-creators-for-2024/"><u>Rise in the Rankings Essential SEO for Video Creators for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/savory-showlines-top-30-engaging-recipe-broadcast-names-for-2024/"><u>Savory Showlines Top 30 Engaging Recipe Broadcast Names for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-methods-for-effective-maintenance-of-a-mechanical-keyboard/"><u>Ultimate Methods for Effective Maintenance of a Mechanical Keyboard</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-the-power-of-claude-3-your-guide-to-navigating-anthropics-latest-ai-prompt-platform/"><u>Unlocking the Power of Claude 3: Your Guide to Navigating Anthropic's Latest AI Prompt Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-access-creative-banners-for-video-makers-at-zero-price/"><u>[New] 2024 Approved Access Creative Banners for Video Makers at Zero Price</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-content-game-on-youtube-top-11-video-seo-insights/"><u>[New] 2024 Approved Elevate Your Content Game on YouTube Top 11 Video SEO Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-apex-artists-youtubes-most-followed-sages-for-2024/"><u>[New] Apex Artists YouTube's Most-Followed Sages for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ghostly-glimpses-innovation-highlights/"><u>[New] In 2024, Ghostly Glimpses Innovation Highlights</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-choice-for-capturing-quality-content-on-youtube/"><u>[New] In 2024, Top Choice for Capturing Quality Content on YouTube</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-avoid-bots-manual-linking-between-spotify-and-discord-works/"><u>[Updated] 2024 Approved Avoid Bots? Manual Linking Between Spotify & Discord Works</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-details-on-creating-effective-yt-shorts/"><u>[Updated] 2024 Approved Essential Details on Creating Effective YT Shorts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-cost-effective-choices-chinese-vr-technology-for-2024/"><u>[Updated] Cost-Effective Choices Chinese VR Technology for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-making-an-impact-integrating-individual-thumbnails-in-videos/"><u>[Updated] Making an Impact Integrating Individual Thumbnails in Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-history-of-aol-instant-messenger-an-in-depth-look/"><u>Exploring the History of AOL Instant Messenger: An In-Depth Look</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-text-techniques-in-videos-for-2024/"><u>Innovative Text Techniques in Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pinpointing-your-participation-in-youtube-dialogues-for-2024/"><u>Pinpointing Your Participation in YouTube Dialogues for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721476503474-roblox-crashes-on-your-iphone-heres-how-to-clear-up-memory-space-and-fix-it/"><u>Roblox Crashes on Your iPhone? Here's How to Clear Up Memory Space & Fix It!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-expert-approved-mts-video-editing-software/"><u>Updated Expert-Approved MTS Video Editing Software</u></a></li>
 </ul></div>
 

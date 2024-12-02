@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Taking the Leap  Essential Video Gatherings (Post-VidCon)\""
-date: 2024-11-22T02:35:20.668Z
-updated: 2024-11-23T20:37:32.126Z
+date: 2024-12-01T05:36:34.128Z
+updated: 2024-12-02T03:33:02.308Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
@@ -45,6 +45,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -118,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -142,10 +150,6 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -159,7 +163,7 @@ Sydney, Australia: February
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -201,7 +205,7 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
@@ -228,10 +232,6 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -247,22 +247,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-brief-video-explanations-all-inclusive/"><u>[New] 2024 Approved Brief Video Explanations, All-Inclusive</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-the-art-of-text-insertion-in-digital-pictures/"><u>[New] 2024 Approved Mastering the Art of Text Insertion in Digital Pictures</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-recordingcritique-assessment/"><u>[New] 2024 Approved RecordingCritique Assessment</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-screen-capture-showdown-is-obs-better-than-fraps/"><u>[New] 2024 Approved Screen Capture Showdown Is OBS Better Than Fraps?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-12-premium-cameras-for-professional-vloggers/"><u>[New] In 2024, Exploring 12 Premium Cameras for Professional Vloggers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-editors-toolkit-elevating-your-youtube-videos-via-windows-pc/"><u>[New] The Editor's Toolkit Elevating Your YouTube Videos via Windows PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-your-channels-income-the-optimal-view-count-quotient-for-2024/"><u>[Updated] Boosting Your Channel's Income The Optimal View Count Quotient for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-things-about-asmr-video-you-should-know/"><u>[Updated] In 2024, Things About ASMR Video You Should Know</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-vimeo-and-youtube-analyzing-their-unique-features/"><u>[Updated] Vimeo and YouTube Analyzing Their Unique Features</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-elite-soundstage-storytelling-scripts/"><u>2024 Approved Elite Soundstage Storytelling Scripts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-which-video-sharing-app-should-i-pick-tiktok-or-youtube-shorts-perspective/"><u>2024 Approved Which Video-Sharing App Should I Pick? TikTok or YouTube Shorts Perspective</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-video-magic-comprehensive-editing-for-professionals/"><u>2024 Approved YouTube Video Magic Comprehensive Editing for Professionals</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-iphone-6-plus-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From iPhone 6 Plus? How to Fix it?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-mp3-mastery-guide-top-10-video-to-audio-picks/"><u>In 2024, MP3 Mastery Guide Top 10 Video-to-Audio Picks</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/master-your-own-passport-photos-with-these-10-tools/"><u>Master Your Own Passport Photos with These 10 Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/smooth-and-swift-designing-your-best-thumbnails-for-2024/"><u>Smooth & Swift Designing Your Best Thumbnails for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/spotlight-on-the-top-8-authentic-video-promotion-methods-for-2024/"><u>Spotlight on the Top 8 Authentic Video Promotion Methods for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-these-27-purely-free-youtube-audio-ripper-tools/"><u>[New] 2024 Approved Discover These 27 Purely Free YouTube Audio Ripper Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-comic-capers-top-10-hilarious-youtube-short-film-ideas/"><u>[New] In 2024, Comic Capers Top 10 Hilarious YouTube Short Film Ideas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-framework-for-an-epic-youtube-series/"><u>[New] In 2024, The Framework for an Epic YouTube Series</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-capture-masters-expertly-reviewing-recorders/"><u>[Updated] 2024 Approved Capture Masters Expertly Reviewing Recorders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-music-unlocked-the-ultimate-library-for-videographers/"><u>[Updated] Free Music Unlocked The Ultimate Library for Videographers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-vision-to-visual-impact-youtube-trailers-via-filmora/"><u>[Updated] From Vision to Visual Impact YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sierras-best-top-5-mac-videography-software-insights/"><u>2024 Approved Sierra's Best Top 5 Mac Videography Software Insights</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-logitech-g203-controller-software-windows-71011-supported/"><u>Download Logitech G203 Controller Software – Windows 7/10/11 Supported</u></a></li>
+<li><a href="https://extra-information.techidaily.com/experts-choice-optimal-vehicle-monitoring-tech/"><u>Expert's Choice Optimal Vehicle Monitoring Tech</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-gpt-3-a-step-by-step-guide-to-using-the-openai-interface/"><u>Mastering GPT-3: A Step-by-Step Guide to Using the OpenAI Interface</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/preserving-gaming-history-the-benefits-of-retaining-vintage-video-game-systems/"><u>Preserving Gaming History: The Benefits of Retaining Vintage Video Game Systems</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211241752-9780834845718-real-world-enlightenment/"><u>Real-World Enlightenment | Free Book</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionizing-channel-management-through-tubebuddy-for-2024/"><u>Revolutionizing Channel Management Through TubeBuddy for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-selection-of-5-great-android-games-playable-offline/"><u>Ultimate Selection of 5 Great Android Games Playable Offline</u></a></li>
 </ul></div>
 
