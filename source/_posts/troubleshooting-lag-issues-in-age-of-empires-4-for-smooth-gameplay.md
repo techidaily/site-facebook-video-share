@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Lag Issues in Age of Empires 4 for Smooth Gameplay
-date: 2024-11-29T18:49:39.595Z
-updated: 2024-12-01T21:58:31.281Z
+date: 2024-12-03T19:35:31.393Z
+updated: 2024-12-09T23:05:13.632Z
 tags:
   - win11
   - win10
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/yjwj_en_1280_1024_c81e728d9d4c2f636f067f89cc14862c-1200x960.jpg)
 
  Naraka: Bladepoint is finally back with the global release! But just like any other new releases, we’re seeing reports of bugs and errors. Many players reported the game**keeps crashing on PC** . The good news is there are some known fixes available. Read on and find out what they are…
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Try these fixes…
 
@@ -65,15 +61,19 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 2. Under the**Processes** tab, look for the processes that are CPU, memory, and network-hogging. Take Chrome here, for example, right-click it then click**End task** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-04-25_17-41-30.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If this doesn’t solve your problem, try the next fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 2: Update your graphics driver
@@ -143,10 +143,6 @@ If this doesn’t solve your problem, try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/run-sysdm.cpl-.jpg)
 3. Go to the**Advanced** tab, under the Performance section, click**Settings** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/advanced-performance-settings.jpg)
 4. Again switch to the**Advanced** tab, under the Virtual memory section, click**Change** .  
 
@@ -154,7 +150,7 @@ If this doesn’t solve your problem, try the next fix.
 5. Now you’ll see the paging file size on your PC.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/2021-08-10_11-54-07.jpg)
@@ -174,12 +170,12 @@ _**Maximum size (MB) = 3 \* the amount of RAM (GB) on your PC**_
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/run-msinfo32.jpg)
 4. Calculate and fill in the**Initial size and Maximum size** , click**Set** then click**OK** . For example, I have 8 GB RAM, so my initial size would be 8\*1024\*1.5=12,288 MB, and my maximum size would be 8\*1024\*3=24576 MB  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/custom-size.jpg)
 5. Restart your PC to let the changes take effect.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If your game still crashes, try the next fix.
 
@@ -192,13 +188,25 @@ If your game still crashes, try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/check-for-updates.png)
 2. Windows will scan for any available updates. If there are_no_ available updates, you’ll get a**You’re up to date** sign. You could also click**View all optional updates** and install them if needed.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/06/up-to-date.png)
 3. If there are available updates, Windows will automatically download them for you. Follow instructions to complete the installation if needed.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/windows-update.jpg)
 4. Restart your PC to let it take effect.
 
 If this doesn’t solve your problem, try the last fix.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 7: Perform a clean boot
 
@@ -212,6 +220,10 @@ If this doesn’t solve your problem, try the last fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-38-17.jpg)
 2. Under the**Services** tab, check**Hide all Microsoft services** , then click**Disable all** and**OK** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-40-15.jpg)
 3. Switch to the**Startup** tab, click**Open Task Manager** .  
 
@@ -222,10 +234,6 @@ If this doesn’t solve your problem, try the last fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-48-33.jpg)
 5. Restart your PC.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If Naraka: Bladepoint doesn’t crash anymore, this means at least one of the programs you disabled was causing the problem.  
   
 **Here’s how to find out which one(s):**
@@ -233,6 +241,10 @@ If this doesn’t solve your problem, try the last fix.
 1. In the search bar next to the Start button, type**msconfig** then click**System Configuration** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-38-17.jpg)
 2. Under the**Services** tab, tick the**Hide all Microsoft services** checkbox**,** then tick the checkboxes in front of**the first five items** in the list.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Then click**Apply** and**OK** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-53-16.jpg)
@@ -251,25 +263,13 @@ If this doesn’t solve your problem, try the last fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-59-36.jpg)
 3. Reboot and try launching Naraka: Bladepoint to see if it still crashes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4. Repeat until you find the startup item that’s conflicting with the game.
 5. Disable the problem program and reboot your PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Known issues on Sonic studio virtual mixer driver
 
  Known compatibility issues from Sonic studio virtual mixer driver have been found, per the developer, and the current workaround is to disable this device. If you want to check if you have this device or want to disable it, go to**Sound Settings >> Manage sound devices** . If you have Sonic studio virtual mixer, you’ll be able to see it there and disable it if needed.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/2021-09-03_11-07-51.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -294,21 +294,20 @@ If this doesn’t solve your problem, try the last fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-a-journey-through-the-digital-landscape-six-engaging-quizzes-for-every-vlogger-admirer-for-2024/"><u>[New] A Journey Through the Digital Landscape Six Engaging Quizzes for Every Vlogger Admirer for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-vision-realized-creating-and-launching-an-engaging-youtube-chanel/"><u>[New] In 2024, A Vision Realized Creating and Launching an Engaging YouTube Chanel</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-top-photography-choices-for-sharpest-4k-reflections/"><u>[New] In 2024, Top Photography Choices for Sharpest 4K Reflections</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-injecting-external-urls-into-instagram-content/"><u>[Updated] In 2024, Injecting External URLs Into Instagram Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-key-to-unlocking-youtubes-editorial-haven/"><u>[Updated] In 2024, The Key to Unlocking YouTube’s Editorial Haven</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-learn-the-art-of-engaging-video-startups-with-imovie/"><u>[Updated] Learn the Art of Engaging Video Startups with iMovie</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-the-art-of-youtube-micro-clips/"><u>[Updated] Mastering the Art of YouTube Micro Clips</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-spin-the-wheel-of-viewers-how-to-stream-round-the-clock-videos-on-youtube-for-2024/"><u>[Updated] Spin the Wheel of Viewers How to Stream Round-the-Clock Videos on YouTube for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-step-into-premium-sound-quality-garageband-edition-for-2024/"><u>[Updated] Step Into Premium Sound Quality GarageBand Edition for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-understanding-youtubes-social-media-protocols/"><u>[Updated] Understanding YouTube's Social Media Protocols</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-music-magic-best-free-tools-for-wav-conversion/"><u>[Updated] YouTube's Music Magic Best Free Tools for WAV Conversion</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/15-funny-snapchat-stickers-that-deserve-99plus-million-views/"><u>15 Funny Snapchat Stickers That Deserve 99+ Million Views</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-virtual-frontiers-the-ultimate-guide-to-metavision-in-science-fiction-cinema/"><u>2024 Approved Virtual Frontiers The Ultimate Guide to Metavision in Science Fiction Cinema</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/prime-7-apps-for-smooth-youtube-live-broadcast-from-iphone-and-android-devices-for-2024/"><u>Prime 7 Apps for Smooth YouTube Live Broadcast From iPhone & Android Devices for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/quick-zoom-and-crop-module-for-2024/"><u>Quick Zoom and Crop Module for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-ace-the-art-of-youtube-reactions-3-innovative-approaches-unveiled/"><u>[New] 2024 Approved Ace the Art of YouTube Reactions - 3 Innovative Approaches Unveiled</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-complete-igtv-user-manual/"><u>[New] 2024 Approved The Complete IGTV User Manual</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-building-brands-together-a-guide-to-selecting-youtube-teams-for-2024/"><u>[New] Building Brands Together A Guide to Selecting YouTube Teams for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-ensuring-smooth-streaming-solutions-for-fb-livestream-problems/"><u>[New] In 2024, Ensuring Smooth Streaming Solutions for FB Livestream Problems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-17-premier-lights-and-cameras/"><u>[New] The Ultimate Guide 17 Premier Lights & Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dominate-youtube-with-effective-content-strategies/"><u>[Updated] 2024 Approved Dominate YouTube with Effective Content Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-treasure-trove-of-premium-youtube-images-from-6-websites/"><u>[Updated] In 2024, A Treasure Trove of Premium YouTube Images From 6 Websites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-amplify-online-impact-through-savvy-templates-design/"><u>[Updated] In 2024, Amplify Online Impact Through Savvy Templates Design</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fine-tuning-system-features-on-windows-11-devices/"><u>Fine-Tuning System Features on Windows 11 Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubers-spotlighting-niche-gaming-subcultures/"><u>In 2024, Youtubers Spotlighting Niche Gaming Subcultures</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/microsoft-integrates-artificial-intelligence-with-bing-discover-the-future-features/"><u>Microsoft Integrates Artificial Intelligence with Bing – Discover the Future Features</u></a></li>
+<li><a href="https://win11.techidaily.com/ready-set-delete-top-windows-redundancies-you-can-eliminate/"><u>Ready, Set, Delete: Top Windows Redundancies You Can Eliminate</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-oneplus-nord-n30-se-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your OnePlus Nord N30 SE Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-seamless-video-conversion-youtube-to-dailymotion-for-2024/"><u>Unlock Seamless Video Conversion YouTube to Dailymotion for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-iphone-and-ipad-video-compression-made-easy-5-free-apps-to-try/"><u>Updated 2024 Approved IPhone and iPad Video Compression Made Easy 5 Free Apps to Try</u></a></li>
 </ul></div>
 

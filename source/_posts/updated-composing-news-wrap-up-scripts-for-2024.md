@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Composing News Wrap-Up Scripts for 2024\""
-date: 2024-08-01T10:24:23.835Z
-updated: 2024-08-02T10:24:23.835Z
+date: 2024-12-04T20:13:01.232Z
+updated: 2024-12-09T22:48:55.275Z
 tags:
   - ai video
   - ai youtube
@@ -22,9 +22,6 @@ To keep viewers engaged, the outros on your videos must be strong and captivatin
 
 In this article, we'll discuss how to create **news outro templates** for your videos or get an editable or non-editable template online.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1\. Before Starting, Learn _What Is a Good YouTube Outro_?
 
 Before we investigate where to find an appropriate News Style Outro for your video in Part 2, let's figure out what elements a good outro should include firstly.
@@ -59,9 +56,6 @@ An editable **news outro template** can provide a quick and easy way to create o
 
 Filmstock is a platform offering free and paid editable templates for content creators. With dozens of editable templates to choose from on [Filmstock](https://filmstock.wondershare.com/p/news-style-pack.html?af=6), you can find the perfect news style outro for your videos in just a few clicks. First, however, you need to install [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) on your PC to use the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/filmstock-news-outros-templates.jpg)
 
 Filmora is a popular video editor with a built-in filmstock library offering hundreds of non-copyright editable templates for every occasion. With the software, you can find and add your [news style outros](https://filmstock.wondershare.com/p/news-report-pack.html) to your videos with just a few clicks. The only disadvantage is that it isn't completely free. The paid version offers two options: A standard plan that costs **$9.99** per month and a Premium plan that will cost you **$49.99** per month.
@@ -74,18 +68,6 @@ You can also find detailed video tutorials to facilitate your video creation thr
 
 [Canva](https://www.canva.com/search/templates?q=News%20Style%20Outros) is a user-friendly graphic design free and paid tool that is quickly becoming a popular choice for businesses of all sizes. Canva offers a range of templates for creating professional-looking designs.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![canva news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/canva-news-outros-templates.jpg)
 
 With a wide range of templates to choose from, you can easily find one that fits your needs and style. Best of all, you can create your outro template in minutes without hiring a designer or spending hours learning complex design software.
@@ -111,6 +93,10 @@ The platform offers 3 paid plans starting at **$8.99/month.** The con here is th
 Placeit is easy to use and offers a variety of templates for different purposes, including outros for news stories, video blogs, and even gaming videos. The platform offers an unlimited subscription plan starting from **$7.47 /month.**
 
 However, the design rendering process of the editor is slow, there is no AI tool, and you even cannot import fonts that are not available on the platform.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Non-Editable News Outro Template Websites
 
@@ -148,9 +134,6 @@ The pricing of the platform starts at **$19/file**, which might be expensive for
 
 [Shutterstock](https://www.shutterstock.com/video/clip-1089743161-world-map-news-intro-blue-background-digital) has various affordable, royalty-free outro templates that you can use for your video/podcast. With a wide selection of styles and price points, this platform has the perfect content for your needs.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![shutterstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/shutterstock-news-outros-templates.jpg)
 
 On Shutterstock, the free trial only offers 10 images, and you will be charged **$0.22-$14.50/image** once the trial limit is over. On the other hand, the Extended license will cost you **$67.96-$99.50.** The downside is that you have to purchase the content pack separately.
@@ -163,10 +146,6 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Part 3\. A Bonus Tip: How To Edit Your News Outro For Your YouTube Video?
 
 After knowing the websites providing News Style Outro, we hope you can find an ideal outro successfully. However, how to use the material you have found, integrate it into your YouTube video, and improve the quality of it?
@@ -181,9 +160,6 @@ Step2 Drag and drop your media file or import it using the **"Click Here to Impo
 
 Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** option. Search for **"News Outros,"** select the one you like, and add it to the **Timeline.**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
@@ -212,9 +188,6 @@ The software is easy-to-use and does not require any editor to customize and use
 
 [Flexclip](https://www.flexclip.com/template/?search=news%20outro)is a free, powerful, and easy-to-use online video maker that helps you create beautiful and engaging content for your business. With Flexclip, you can easily create editable news style outros for your videos from scratch or choose a template and edit it according to your requirements.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![flexclip news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/flexclip-news-outros-templates.jpg)
 
 You can add text, music, elements, overlays, and branding to your templates to make them more stunning and captivating.
@@ -231,9 +204,6 @@ Placeit is easy to use and offers a variety of templates for different purposes,
 
 However, the design rendering process of the editor is slow, there is no AI tool, and you even cannot import fonts that are not available on the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Non-Editable News Outro Template Websites
 
 Some platforms offer non-editable high-resolution news outros that you can integrate into your videos using software programs like [Filmora (guidance in Part 3),](#%5FHow%5FTo%5FEdit) After Effects, etc.
@@ -242,9 +212,6 @@ Some platforms offer non-editable high-resolution news outros that you can integ
 
 Searching for high-quality templates for your next project?[Storyblock](https://www.storyblocks.com/video/search/news+outros) is a website that comes with royalty-free, non-customizable news style outros.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![storyblock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/storyblock-news-outros-templates.jpg)
 
 You can use these templates to create high-quality news intros and outros for your podcast or videos. The platform offers two pricing plans for individual content creators, starting at **$15** per month. While businesses can customize their plans as per their requirements.
@@ -265,6 +232,10 @@ You can find templates for both commercial and non-commercial use, so whatever y
 
 ![videezy news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videezy-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The templates are all ready-made and royalty-free. You can download them for use in your own projects and attach them to your video using any video editing app/software.
 
 The pricing of the platform starts at **$19/file**, which might be expensive for some users. Moreover, in the free version, too many ads are displayed.
@@ -273,9 +244,6 @@ The pricing of the platform starts at **$19/file**, which might be expensive for
 
 [Shutterstock](https://www.shutterstock.com/video/clip-1089743161-world-map-news-intro-blue-background-digital) has various affordable, royalty-free outro templates that you can use for your video/podcast. With a wide selection of styles and price points, this platform has the perfect content for your needs.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![shutterstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/shutterstock-news-outros-templates.jpg)
 
 On Shutterstock, the free trial only offers 10 images, and you will be charged **$0.22-$14.50/image** once the trial limit is over. On the other hand, the Extended license will cost you **$67.96-$99.50.** The downside is that you have to purchase the content pack separately.
@@ -284,9 +252,6 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 
 [iStock](https://www.istockphoto.com/search/2/image?phrase=news%20outro) is a premium website offering royalty-free stock photos, illustrations, and videos divided into numerous categories for easy access. The platform also offers a variety of non-editable **news outro templates** that you can add to your videos or podcasts.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![istock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/istock-news-outros-templates.jpg)
 
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
@@ -305,9 +270,6 @@ Step2 Drag and drop your media file or import it using the **"Click Here to Impo
 
 Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** option. Search for **"News Outros,"** select the one you like, and add it to the **Timeline.**
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
@@ -316,9 +278,6 @@ Step4 Next, adjust the template on your video, and once you are satisfied, click
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've provided a detailed guide on how to create **news outro templates** with simple and easy-to-follow instructions. We also discussed various platforms/editors where you can find customizable and non-customizable templates.
@@ -338,14 +297,19 @@ Hopefully, you find this guide informative and can now create strong news style 
      data-ad-slot="1223367746"></ins>
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Artisan's Guide to Animation Enchantment
 
 # How to Animate and Make Your Own Effects
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Richard Bennett
 
  Nov 01, 2022• Proven solutions
@@ -368,22 +332,18 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 [Video Copilot](#videocopilot)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
  ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
@@ -391,8 +351,9 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
@@ -431,17 +392,66 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 [Video Copilot](#videocopilot)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
  ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
+## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+
+On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+
+Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
+
+What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
+
+## **[Bloop Animation](https://www.bloopanimation.com/)**
+
+ Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
+
+## **[Video Copilot](http://www.videocopilot.net/)**
+
+This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Do you like the animated elements in Wondershare Filmora? Do you want to learn how to make your own?
+
+A little while ago, we posted a list of YouTube channels where you could [get free green screen effects](https://tools.techidaily.com/wondershare/filmora/download/). All of these effects consisted of animations on green backgrounds. To use them, you pull the clip into the PIP track of your Filmora project and use the green screen feature to make the background transparent. It’s pretty easy.
+
+In this post, we’re going to kick things up a bit. Here is a list of places where you can get free lessons on creating your own animated video effects.
+
+**Animated Video Effect Courses:**
+
+[Mt. Mograph](#mtmograph)
+
+[Richard Harrington on Lynda](#lynda)
+
+[Bloop Animation](#bloop)
+
+[Video Copilot](#videocopilot)
+
+ ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
+
+ All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
+
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
@@ -456,16 +466,10 @@ What’s great about this course is that it assumes you have no animation experi
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -501,75 +505,16 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
-
-Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
-
-What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
-
-## **[Bloop Animation](https://www.bloopanimation.com/)**
-
- Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## **[Video Copilot](http://www.videocopilot.net/)**
-
-This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Nov 01, 2022• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Do you like the animated elements in Wondershare Filmora? Do you want to learn how to make your own?
-
-A little while ago, we posted a list of YouTube channels where you could [get free green screen effects](https://tools.techidaily.com/wondershare/filmora/download/). All of these effects consisted of animations on green backgrounds. To use them, you pull the clip into the PIP track of your Filmora project and use the green screen feature to make the background transparent. It’s pretty easy.
-
-In this post, we’re going to kick things up a bit. Here is a list of places where you can get free lessons on creating your own animated video effects.
-
-**Animated Video Effect Courses:**
-
-[Mt. Mograph](#mtmograph)
-
-[Richard Harrington on Lynda](#lynda)
-
-[Bloop Animation](#bloop)
-
-[Video Copilot](#videocopilot)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
- ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
-
- All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
-## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
-
-On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -586,6 +531,10 @@ What’s great about this course is that it assumes you have no animation experi
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -606,6 +555,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-controlling-youtubes-playback-speed-mobile-and-pc/"><u>[New] In 2024, Controlling YouTube's Playback Speed - Mobile and PC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-reinstating-windows-photo-viewer-on-windows-10-a-twin-strategy/"><u>[New] Reinstating Windows Photo Viewer on Windows 10 A Twin Strategy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/otal-guide-to-video-dimensions-and-proportion-harmony-on-youtube-for-2024/"><u>[New] Total Guide to Video Dimensions & Proportion Harmony on YouTube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-nikon-j5-unleashed-embracing-4k-camera-technology/"><u>[Updated] 2024 Approved Nikon J5 Unleashed Embracing 4K Camera Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-fix-confirmed-shorts-are-showing-up/"><u>[Updated] Fix Confirmed Shorts Are Showing Up</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-treasury-of-thought-provoking-youtube-content/"><u>[Updated] In 2024, A Treasury of Thought-Provoking YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-the-map-locating-youtube-studio-content-architects-toolbox/"><u>[Updated] Master the Map Locating YouTube Studio, Content Architect’s Toolbox</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-tips-for-embedding-timestamps-into-youtube-videos/"><u>[Updated] Quick Tips for Embedding Timestamps Into YouTube Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unlock-your-fb-potential-with-these-video-engagement-techniques/"><u>2024 Approved Unlock Your FB Potential with These Video Engagement Techniques</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-gadgets-with-tom-in-depth-analysis-and-guides/"><u>Exploring Gadgets with Tom: In-Depth Analysis and Guides</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-v29-pro-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo V29 Pro Through Google Earth?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xr-without-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XR Without Passcode?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-top-5-online-youtube-mp3-converters-free-and-easy/"><u>In 2024, Top 5 Online YouTube-MP3 Converters, Free and Easy!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/metas-new-ai-feature-introducing-an-internal-image-creation-engine-comparable-to-dall-e/"><u>Meta's New AI Feature: Introducing an Internal Image Creation Engine Comparable to DALL-E</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essentials-of-youtubes-latest-payment-policy-for-2024/"><u>The Essentials of YouTube's Latest Payment Policy for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-mesh-wi-fi-systems-the-ultimate-guide-for-2ebrty/"><u>Top-Rated Mesh Wi-Fi Systems: The Ultimate Guide for 2Ebrty</u></a></li>
+</ul></div>
 

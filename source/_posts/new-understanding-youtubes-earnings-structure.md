@@ -1,7 +1,7 @@
 ---
 title: "[New] Understanding YouTube's Earnings Structure"
-date: 2024-08-01T10:30:22.285Z
-updated: 2024-08-02T10:30:22.285Z
+date: 2024-12-02T18:25:04.009Z
+updated: 2024-12-09T17:26:04.774Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
 # YouTube Monetization: The New Rules Everyone Hates
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,6 +36,10 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 6. [Helpful Blog Posts](#posts)
 7. [Don't Give Up!](#dontquit)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -51,15 +52,17 @@ In order to qualify for YouTube monetization, you must meet these milestones.
  _Trying to get monetization on YouTube can feel like this._
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why YouTube Changed the Monetization Rules
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -79,18 +82,15 @@ Cough. Logan Paul. Cough.
 ####  
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
 2. Link your videos together using cards and interactive end screens/outros.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -99,9 +99,6 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -110,13 +107,15 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -124,4 +123,23 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-direct-to-device-converting-youtube-tracks-for-idevices/"><u>[New] 2024 Approved Direct to Device Converting YouTube Tracks for iDevices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhancing-video-content-iphoneipad-screen-capture-basics/"><u>[New] In 2024, Enhancing Video Content IPhone/iPad Screen Capture Basics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-ensuring-transparency-in-video-creator-incomes/"><u>[New] In 2024, Ensuring Transparency in Video Creator Incomes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-finding-the-ideal-soundtrack-for-unboxing-content/"><u>[New] In 2024, Finding the Ideal Soundtrack for Unboxing Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thumbnail-dimensions-the-key-to-youtube-attraction/"><u>[New] Thumbnail Dimensions The Key to YouTube Attraction</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-explore-the-globe-top-10-travelers-youtube-guide-for-2024/"><u>[Updated] Explore the Globe Top 10 Traveler's YouTube Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-is-rapid-subscription-truly-effective-for-youtube-users/"><u>[Updated] In 2024, Is Rapid Subscription Truly Effective for YouTube Users?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-tricks-to-flawless-screen-casting-on-mobile-and-desktop/"><u>[Updated] In 2024, Tricks to Flawless Screen Casting on Mobile and Desktop</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastery-of-removal-eliminating-downloaded-youtube-clips/"><u>[Updated] Mastery of Removal Eliminating Downloaded YouTube Clips</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-iphone-6s-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the iPhone 6s iCloud Lock</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/behind-the-scenes-how-to-remove-background-in-picsart-for-2024/"><u>Behind the Scenes How to Remove Background in Picsart for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/precision-and-efficiency-incorporating-luts-in-after-effects-for-2024/"><u>Precision and Efficiency Incorporating LUTs in After Effects for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethink-rebrand-update-page-name-and-url/"><u>Rethink, Rebrand: Update Page Name & URL</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-oneplus-11r-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any OnePlus 11R Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtube-revenue-essential-view-count-milestones-for-2024/"><u>Unlocking YouTube Revenue Essential View Count Milestones for 2024</u></a></li>
+</ul></div>
 

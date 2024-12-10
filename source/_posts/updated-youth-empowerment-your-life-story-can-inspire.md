@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Youth Empowerment  Your Life Story Can Inspire\""
-date: 2024-11-26T22:17:21.262Z
-updated: 2024-12-01T20:20:38.351Z
+date: 2024-12-05T16:14:47.670Z
+updated: 2024-12-09T17:25:18.850Z
 tags:
   - ai video
   - ai youtube
@@ -45,21 +45,29 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
 
@@ -69,17 +77,9 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -89,10 +89,6 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
@@ -101,10 +97,14 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,16 +122,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-cognitive-cornerstones-essential-educational-content-yt-for-2024/"><u>[New] Cognitive Cornerstones Essential Educational Content YT for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-ajeys-youtube-profit-milestones/"><u>[New] In 2024, Ajey's YouTube Profit Milestones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-complete-lowdown-navigating-creative-commons-licenses/"><u>[Updated] The Complete Lowdown Navigating Creative Commons Licenses</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-overview-of-the-upcoming-samsung-galaxy-z-flip-groovy-price-breakdowns-anticipated-drop-dates-and-key-functionalities/"><u>Comprehensive Overview of the Upcoming Samsung Galaxy Z Flip Groovy: Price Breakdowns, Anticipated Drop-Dates & Key Functionalities</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-itel-p40-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Itel P40 to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On OnePlus Ace 2V | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/iphones-in-action-capturing-and-altering-slow-motion-content-for-2024/"><u>IPhones in Action Capturing & Altering Slow Motion Content for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/online-mp3-to-mkv-konvertierung-kostenlos-movavi/"><u>Online MP3-to-MKV Konvertierung Kostenlos - Movavi</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/pixel-powerhouse-the-ultimate-game-collection-for-2024/"><u>Pixel Powerhouse The Ultimate Game Collection for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/revolutionizing-photos-through-automated-hdr-techniques/"><u>Revolutionizing Photos Through Automated HDR Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/transforming-raw-footage-into-youtube-gold-via-sony-vegas-for-2024/"><u>Transforming Raw Footage Into YouTube Gold via Sony Vegas for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-top-must-have-gear-items-for-youtubers/"><u>[New] 2024 Approved 10 Top Must-Have Gear Items for YouTubers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channeling-success-emulating-top-video-bloggers-techniques/"><u>[New] In 2024, Channeling Success Emulating Top Video Bloggers' Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevated-viewership-status-symbolized-by-buttons/"><u>[New] In 2024, Elevated Viewership Status Symbolized by Buttons</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-banish-coffee-stains-free-iphone-app-to-remove-red-eyes-for-2024/"><u>[Updated] Banish Coffee Stains Free iPhone App to Remove Red Eyes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhance-viewing-experience-best-youtube-converters-to-avi/"><u>[Updated] In 2024, Enhance Viewing Experience Best YouTube Converters to AVI</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-the-art-of-streaming-pick-from-the-leading-6-cost-free-and-on-demand-short-video-downloads/"><u>[Updated] Master the Art of Streaming Pick From the Leading 6 Cost-Free & On-Demand Short Video Downloads</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/chorus-choice-windows-11s-audio-enhancement-guidebook/"><u>Chorus Choice Windows 11'S Audio Enhancement Guidebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-s23-fe-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy S23 FE Phone?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pushing-boundaries-with-innovative-vsco-techniques-for-2024/"><u>Pushing Boundaries with Innovative VSCO Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stand-out-with-a-signature-style-a-guide-to-youtube-branding-mastery-for-2024/"><u>Stand Out with a Signature Style A Guide to YouTube Branding Mastery for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-complete-video-revenue-playbook-dm-vs-yo-edition-for-2024/"><u>The Complete Video Revenue Playbook Dm Vs. Yo Edition for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-teleporting-technique-upgrading-phones-for-vr-immersion-for-2024/"><u>The Teleporting Technique Upgrading Phones for VR Immersion for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlocking-the-potentials-of-windows-11-movie-maker/"><u>Unlocking the Potentials of Windows 11 Movie Maker</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor 70 Lite 5G | Dr.fone</u></a></li>
 </ul></div>
 

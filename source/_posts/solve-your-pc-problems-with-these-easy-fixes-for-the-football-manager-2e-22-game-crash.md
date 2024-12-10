@@ -1,7 +1,7 @@
 ---
 title: Solve Your PC Problems with These Easy Fixes for the Football Manager 2E 22 Game Crash
-date: 2024-11-28T00:52:25.656Z
-updated: 2024-12-02T03:11:27.174Z
+date: 2024-12-06T22:19:39.442Z
+updated: 2024-12-09T21:59:19.069Z
 tags:
   - win11
   - win10
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/fm-2022.jpeg)
 
  Football Manager 2022 PC players are reporting that the game is crashing at launch or not starting at all. Here is how to fix Football Manager 2022 not launching issue.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to fix Football Manager 2022 launch issues?
 
@@ -48,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 
  Or you can uninstall your antivirus temporarily (note that disabling it won’t work) and be very careful about the websites you’re visiting.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 3\. Update your graphics driver
 
  If you are using the wrong or outdated graphics driver, it can cause launch issues especially in new game titles such as Football Manager 2022\. So, it is recommended to keep your graphics driver up to date. The updated driver should solve the crashing at launch issues and it can also help to boost up the overall game’s performance.
@@ -68,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/fe142fc722967440c0a67173b1e546447bf0e8013
 
 After updating your drivers, restart your PC and test the gameplay.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 4\. Verify the integrity of game files
 
  Football Manager 2022 not launching can be caused by corrupt or missing game files. In that case, you can perform an integrity check to solve this issue. Here’s how:
@@ -76,6 +88,10 @@ After updating your drivers, restart your PC and test the gameplay.
 
 2) Go to LIBRARY, right-click on Football Manager 2022 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
@@ -92,14 +108,10 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-8-1200x758.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 6\. Run the game executable file as admin
@@ -111,16 +123,12 @@ Once complete, launch the game to check if your game is working again.
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) Select **Local Files** and then**Browse local files** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-9.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  3) Locate the game’s executable and run the game as an administrator.
 
@@ -132,17 +140,13 @@ Once complete, launch the game to check if your game is working again.
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
 
  Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 8\. Repair your system files
 
@@ -171,7 +175,7 @@ Once complete, launch the game to check if your game is working again.
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3) You’ll see the summary of detected issues on your PC. Click **START REPAIR** and all the issues will be fixed automatically. (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).
@@ -189,10 +193,6 @@ Once complete, launch the game to check if your game is working again.
  1) On your keyboard, press the Windows logo key and R at the same time to open the Run box. Type**cmd** and press**Ctrl+Shift+Enter** to run Command Prompt as administrator.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/cmd-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Click**Yes** when prompted for permission to make changes to your device.
 
@@ -261,18 +261,14 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-creative-content-vimeo-vs-youtubes-approach/"><u>[New] 2024 Approved Elevating Creative Content Vimeo vs YouTube's Approach</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-avoid-common-errors-while-spinning-videos-in-android-apps/"><u>[New] In 2024, Avoid Common Errors While Spinning Videos in Android Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-channel-prodigy-skyrocketing-with-content-innovation/"><u>[New] In 2024, Channel Prodigy Skyrocketing with Content Innovation</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-uncovering-old-facebook-stories-with-ease/"><u>[Updated] 2024 Approved Uncovering Old Facebook Stories with Ease</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-must-have-filmmaking-tools-for-aspiring-youtubers/"><u>[Updated] Must-Have Filmmaking Tools for Aspiring YouTubers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-perfect-sources-for-dj-template-video-downloads/"><u>[Updated] Perfect Sources for DJ Template Video Downloads</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-optimal-series-premium-webcam-grips/"><u>2024 Approved Optimal Series Premium Webcam Grips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-an-online-empire-ramp-up-video-views/"><u>Building an Online Empire Ramp Up Video Views</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/guide-how-to-properly-set-your-bookmarks-on-flipbuildercom/"><u>Guide: How To Properly Set Your Bookmarks on FlipBuilder.com</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-m54-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy M54 5G Lock Screen Password</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-troubleshoot-and-correct-audiovideo-codec-not-supported-problems/"><u>How to Troubleshoot and Correct 'Audio/Video Codec Not Supported' Problems</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-art-of-creating-youtube-video-thumbnails-for-2024/"><u>The Art of Creating YouTube Video Thumbnails for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/the-ultimate-guide-to-rotating-images-on-win11/"><u>The Ultimate Guide to Rotating Images on Win11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones-for-2024/"><u>[New] Effortless Guide to Share Your Videos as Shorts on Computers & Phones for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-directing-content-flow-uploading-imovie-films-to-youtube/"><u>[New] In 2024, Directing Content Flow Uploading IMovie Films to YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-ultimate-list-of-high-quality-streaming-services-for-cricket-fans/"><u>[New] In 2024, The Ultimate List of High-Quality Streaming Services for Cricket Fans</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-streamlining-google-meets-with-efficient-snap-photography-tips-for-2024/"><u>[New] Streamlining Google Meets with Efficient Snap Photography Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-create-identity-a-quick-walkthrough-of-customizing-your-youtube-url-for-2024/"><u>[Updated] Create Identity A Quick Walkthrough of Customizing Your YouTube Url for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/convert-avi-files-to-aac-format-for-free-with-moveavis-web-service/"><u>Convert AVI Files to AAC Format for Free with Move.AVI's Web Service</u></a></li>
+<li><a href="https://discover-data.techidaily.com/effective-techniques-for-utilizing-windows-11s-volume-shadow-copy-feature-for-data-backups/"><u>Effective Techniques for Utilizing Windows 11'S Volume Shadow Copy Feature for Data Backups</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/how-to-use-manycams-virtual-webcam-functionality-for-professional-quality-livestreams/"><u>How to Use ManyCam's Virtual Webcam Functionality for Professional-Quality Livestreams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-framework-for-an-epic-youtube-series-for-2024/"><u>The Framework for an Epic YouTube Series for 2024</u></a></li>
 </ul></div>
 

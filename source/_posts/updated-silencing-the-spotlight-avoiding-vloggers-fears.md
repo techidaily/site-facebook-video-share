@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Silencing the Spotlight  Avoiding Vlogger's Fears\""
-date: 2024-11-29T16:45:44.171Z
-updated: 2024-12-02T00:36:00.478Z
+date: 2024-12-05T17:15:19.234Z
+updated: 2024-12-09T21:53:26.298Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ My advice is to start with shorter conversations with your camera in public and 
 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. Fear of Being Judged by Others
 
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
@@ -49,16 +53,12 @@ After uploading your vlog online, the next thing you might worry about is being 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Fear of Not Being Interesting Enough
 
 A lot of people fear that they aren’t interesting enough to watch. This fear stops many people from vlogging. Some people get around this self-doubt by focusing their content on something other than themselves. But people are so much more interesting than the tools and objects that they test out and review on YouTube. Even if you’re unable to secure the interest of the masses, there are bound to be a handful of people from all around the world who do find you interesting.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4. Fear of Your Lifestyle Not Being Exciting Enough
 
@@ -67,10 +67,6 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 ### 5. Fear of Losing Your Authenticity
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6. Fear of Your Production Not Being Good Enough
 
@@ -81,10 +77,6 @@ Fearing that your production quality won’t measure up is another common fear t
 Getting a lot of subscribers is a common end goal for many who go into vlogging. This goal can seem impossible to reach with how crowded the vlogosphere has become with so many ambitious vloggers who are competing for views and subscribers.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8. Fear of Being Distracted From the Moment
 
@@ -103,7 +95,7 @@ Even though you might have learned to enjoy and be comfortable with vlogging, yo
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10. Fear of Permanently Leaving a Bad Mark
@@ -116,7 +108,15 @@ In post-production, you can use some video editing software to [delete unwanted 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,24 +133,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-behind-the-scenes-choosing-ideal-winter-backdrops/"><u>[New] 2024 Approved Behind the Scenes Choosing Ideal Winter Backdrops</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-chronic-removal-method-for-youtubes-bite-sized-videos/"><u>[New] 2024 Approved Chronic Removal Method for YouTube's Bite-Sized Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-boosting-engagement-joint-video-strategies-for-growth-for-2024/"><u>[New] Boosting Engagement Joint Video Strategies for Growth for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-exclusive-guide-the-best-4-ringtone-providers/"><u>[New] Exclusive Guide The Best 4 Ringtone Providers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-proficiency-uncovering-the-best-5-online-title-creators/"><u>[New] Exploring Proficiency Uncovering the Best 5 Online Title Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-brevity-in-action-the-process-of-shortening-youtube-videos/"><u>[New] In 2024, Brevity in Action The Process of Shortening YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-the-leading-youtube-to-webm-converter-tools/"><u>[New] In 2024, Discover the Leading YouTube-to-WebM Converter Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-starting-point-for-motion-visual-effects/"><u>[New] In 2024, Starting Point for Motion Visual Effects</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-financial-race-between-dailymovement-and-youtube-channels/"><u>[New] In 2024, The Financial Race Between DailyMovement and YouTube Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-5-best-youtube-video-marketing-strategies/"><u>[Updated] 5 Best YouTube Video Marketing Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-breakdown-of-ad-revenue-average-income-for-youtube-vids-for-2024/"><u>[Updated] Breakdown of Ad Revenue Average Income for YouTube Vids for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-investigating-cash-for-review-scenarios/"><u>[Updated] Investigating Cash-for-Review Scenarios</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-plunge-into-the-magic-9-premium-full-length-christmas-movies-for-free/"><u>[Updated] Plunge Into the Magic 9 Premium Full-Length Christmas Movies for Free</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-creative-playground-explained-with-ease/"><u>[Updated] YouTube's Creative Playground Explained with Ease</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-guide-to-eliminating-latency-in-your-guilty-gear-strive-matches/"><u>Expert Guide to Eliminating Latency in Your Guilty Gear Strive Matches</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-depth-iphone-training-from-high-speed-videos-to-sluggish-movements/"><u>In-Depth iPhone Training From High Speed Videos to Sluggish Movements</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-10-photography-frames-for-2024/"><u>Top 10 Photography Frames for 2024</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-pictures-from-tecno-pova-5-pro-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Tecno Pova 5 Pro.</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-introduction-design-made-simple-and-inexpensive-for-2024/"><u>YouTube Introduction Design Made Simple and Inexpensive for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discovering-the-ultimate-10-free-youtube-artist-collaborators/"><u>[New] 2024 Approved Discovering the Ultimate 10 Free YouTube Artist Collaborators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-insights-on-asmr-videos-unveiled/"><u>[New] 2024 Approved Essential Insights on ASMR Videos Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-above-the-mainstage-significant-youtube-meetings/"><u>[New] In 2024, Above the Mainstage Significant YouTube Meetings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unleash-your-potential-with-these-12-best-flip-screen-cameras/"><u>[New] Unleash Your Potential with These 12 Best Flip-Screen Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-compilation-worlds-leading-youtube-mp3-downloaders/"><u>[Updated] 2024 Approved Compilation World's Leading YouTube Mp3 Downloaders</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-hour-high-viewers-the-best-of-youtube-now-for-2024/"><u>[Updated] Hour-High Viewers The Best of YouTube Now for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-imovie-tips-creating-engaging-youtube-video-intros/"><u>[Updated] IMovie Tips Creating Engaging YouTube Video Intros</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-free-audio-for-youtube-visionaries/"><u>[Updated] In 2024, Cutting-Edge Free Audio for YouTube Visionaries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-guide-to-free-melodies-in-youtube-productions/"><u>[Updated] In 2024, Effortless Guide to Free Melodies in YouTube Productions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-the-art-of-viral-video-marketing/"><u>[Updated] Mastering the Art of Viral Video Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essence-of-earnings-a-3-step-expedient-to-measure-your-youtube-profitability/"><u>[Updated] The Essence of Earnings A 3-Step Expedient to Measure Your YouTube Profitability</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-navigating-the-digital-landscape-without-interrupted-ads/"><u>2024 Approved Navigating the Digital Landscape Without Interrupted Ads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ary-kings-and-queens-youtube-food-experts-for-2024/"><u>Culinary Kings & Queens YouTube Food Experts for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/enhance-video-compatibility-across-browsers-using-our-comprehensive-webm-codec-kit/"><u>Enhance Video Compatibility Across Browsers Using Our Comprehensive WebM Codec Kit</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-roccat-mouse-driver-software-boost-performance-in-minutes/"><u>Free Roccat Mouse Driver Software – Boost Performance in Minutes</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-vivo-t2-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Vivo T2 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/stop-blender-from-crashing-a-guide-to-solve-stability-issues-on-your-computer/"><u>Stop Blender From Crashing: A Guide to Solve Stability Issues on Your Computer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-math-behind-making-money-youtubes-viewer-insights-for-2024/"><u>The Math Behind Making Money YouTube’s Viewer Insights for 2024</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/topmost-essential-tool-the-ultimate-background-removal-app-for-your-mac/"><u>Topmost Essential Tool: The Ultimate Background Removal App for Your Mac</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Words in Motion  A Guide to Lively Animation Methods\""
-date: 2024-08-01T10:22:43.983Z
-updated: 2024-08-02T10:22:43.983Z
+date: 2024-12-02T16:08:11.714Z
+updated: 2024-12-09T21:23:55.776Z
 tags:
   - ai video
   - ai youtube
@@ -26,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/dc4cacbc8b493fc632f86712912ebd59bbc9ecbef
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -47,26 +44,29 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
@@ -82,6 +82,14 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -92,9 +100,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -135,9 +140,6 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -146,12 +148,25 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ioneering-film-making-skills-through-youtube-videos-for-2024/"><u>[New] Pioneering Film Making Skills Through YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-your-videos-potential-with-youtube-link-building-techniques/"><u>[New] Unlock Your Video's Potential with YouTube Link Building Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-download-youtube-videos-anywhere-anytime-free-android-tips/"><u>[Updated] 2024 Approved Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-effective-affordable-youtube-intros-with-templates-for-2024/"><u>[Updated] Crafting Effective, Affordable YouTube Intros with Templates for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-essential-hacks-for-the-elusive-iphone-x-users/"><u>[Updated] Essential Hacks for the Elusive iPhone X Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-kinemaster-tutorials-for-amazing-memes/"><u>2024 Approved KineMaster Tutorials for Amazing Memes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/best-free-software-top-3-windows-dvd-ripper-tools-for-win10-and-win11-full-version-available/"><u>Best Free Software: Top 3 Windows DVD Ripper Tools for Win10 & Win11 - Full Version Available</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-selection-of-youtubes-finest-cosmetics-vloggers-for-2024/"><u>The Ultimate Selection of YouTube's Finest Cosmetics Vloggers for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/understanding-deinterlacing-solving-the-puzzle-of-interlaced-footage-with-three-effective-techniques/"><u>Understanding Deinterlacing: Solving the Puzzle of Interlaced Footage with Three Effective Techniques</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleashing-the-potential-of-chatgpt-as-an-interactive-story-game/"><u>Unleashing the Potential of ChatGPT as an Interactive Story Game</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/windows-10-funf-effektive-methoden-zur-erkennung-und-nutzung/"><u>Windows 10 - Fünf Effektive Methoden Zur Erkennung Und Nutzung</u></a></li>
+</ul></div>
 

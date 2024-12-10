@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-11-29T02:17:29.460Z
-updated: 2024-12-01T17:58:39.268Z
+date: 2024-12-08T16:50:54.850Z
+updated: 2024-12-09T17:43:43.731Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,18 +77,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-mp3-to-youtube-converter-upload-mp3-to-youtube/"><u>[New] MP3 to YouTube Converter Upload MP3 to YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-engineering-video-excerpts-for-online-platforms/"><u>[Updated] 2024 Approved Engineering Video Excerpts for Online Platforms</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-distinguishing-between-youtube-policies-and-cc-clauses-for-2024/"><u>[Updated] Distinguishing Between YouTube Policies and CC Clauses for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>[Updated] In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-top-5-best-live-streaming-webcamscameras-for-twitch-for-2024/"><u>[Updated] Top 5 Best Live Streaming Webcams/Cameras for Twitch for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-revenue-per-million-views-an-insight/"><u>[Updated] YouTube's Revenue Per Million Views An Insight</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-tips-how-to-successfully-resolve-and-prevent-windows-update-error-0x8024401c-in-windows-10-and-11-os/"><u>Expert Tips: How to Successfully Resolve and Prevent Windows Update Error 0X8024401c in Windows 10 & 11 OS</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-asus-rog-phone-7-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Asus ROG Phone 7 Photos An Easy Method Explained.</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-enable-adaptive-hdr-tutorial-for-windows-11/"><u>In 2024, Enable Adaptive HDR Tutorial for Windows 11</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/last-minute-opportunity-top-october-prime-day-202/"><u>Last-Minute Opportunity: Top October Prime Day 202</u></a></li>
-<li><a href="https://win11.techidaily.com/the-blueprint-for-faster-epic-games-downloads-on-pc/"><u>The Blueprint for Faster Epic Games Downloads on PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unleashing-potential-your-guide-to-making-blockbuster-youtube-videos-for-2024/"><u>Unleashing Potential Your Guide to Making Blockbuster Youtube Videos for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/winning-with-windows-11-mastering-video-conferencing-via-zoom/"><u>Winning with Windows 11 Mastering Video Conferencing via Zoom</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-cash-kings-leading-youtube-creators/"><u>[New] In 2024, Digital Cash Kings Leading YouTube Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-film-creation-guide-and-other-options/"><u>[New] In 2024, YouTube Film Creation Guide & Other Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-counterclockwise-watch-how-to-unravel-your-youtube-sequence/"><u>[Updated] 2024 Approved Counterclockwise Watch How to Unravel Your YouTube Sequence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-hosting-youtube-webinars-for-no-charge/"><u>[Updated] Hosting YouTube Webinars for No Charge</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-greatest-of-all-time-reddits-favorite-threads/"><u>[Updated] In 2024, Greatest of All Time Reddit's Favorite Threads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-is-there-a-science-to-youtubes-quick-subscribe-tactic/"><u>[Updated] Is There a Science to YouTube's Quick Subscribe Tactic?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-laying-foundations-for-fresh-content-first-timers-youtube-video-guide-mac-edition/"><u>[Updated] Laying Foundations for Fresh Content First-Timer's Youtube Video Guide, Mac Edition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-premier-10-layouts-ae-text-edition-for-2024/"><u>[Updated] Premier 10 Layouts AE Text Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ultimate-list-of-16-starter-videos-for-more-watchers/"><u>[Updated] Ultimate List of 16 Starter Videos for More Watchers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-understanding-the-economics-youtubes-new-model-for-content-creators-and-viewers/"><u>[Updated] Understanding the Economics YouTube's New Model for Content Creators and Viewers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-prime-5-tools-shake-off-youtube-video-editing/"><u>2024 Approved Prime 5 Tools Shake Off Youtube Video Editing</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/create-professional-pc-video-clips-for-free-master-these-10-techniques-using-movavi/"><u>Create Professional PC Video Clips for Free? Master These 10 Techniques Using Movavi!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-poco-m6-pro-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your Poco M6 Pro 5G Lock Screen Password</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-plus-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Plus to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-binkw32dll-file-not-found-issues/"><u>Resolving 'Binkw32.dll' File Not Found Issues</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/techniques-and-strategies-for-swift-removal-of-comments-for-2024/"><u>Techniques and Strategies for Swift Removal of Comments for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos for 2024\""
-date: 2024-11-26T03:33:25.457Z
-updated: 2024-12-02T04:43:02.260Z
+date: 2024-12-04T17:24:30.105Z
+updated: 2024-12-09T18:41:33.723Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,18 +103,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-charm-with-cost-free-visual-aids/"><u>[New] 2024 Approved Channel Charm with Cost-Free Visual Aids</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-comedic-craftsmanship-the-best-short-video-ideas-to-entertain-viewers-for-2024/"><u>[Updated] Comedic Craftsmanship The Best Short Video Ideas to Entertain Viewers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-perfect-your-yt-thumbnails-with-these-mac-tips/"><u>[Updated] Perfect Your YT Thumbnails with These Mac Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-ultimate-checklist-for-channel-buying-success/"><u>[Updated] Your Ultimate Checklist for Channel Buying Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-bulk-posting-made-easy-a-comprehensive-instagram-tutorial/"><u>2024 Approved Bulk Posting Made Easy A Comprehensive Instagram Tutorial</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/economical-embellishments-free-youtube-template-packs/"><u>Economical Embellishments FREE YouTube Template Packs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/essential-insights-you-should-know-before-investing-in-a-smart-ring/"><u>Essential Insights You Should Know Before Investing in a Smart Ring</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-test-your-microphone-on-windows-10-a-comprehensive-guide/"><u>How to Test Your Microphone on Windows 10: A Comprehensive Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-essential-checklist-for-using-zoom-on-your-windows-pc/"><u>In 2024, The Essential Checklist for Using Zoom on Your Windows PC</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211017429-9791028528423-le-theme-de-cristal-33-pierres-pour-optimiser-vos-potentiels/"><u>Le thème de cristal : 33 pierres pour optimiser vos potentiels | Free Book</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-insights-into-2018-fifa-football-videos-on-youtube-infographic-for-2024/"><u>Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic] for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/uncompromised-zoom-audio-two-key-techniques-revealed-for-2024/"><u>Uncompromised Zoom Audio Two Key Techniques Revealed for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/wealth-accumulation-mr-beasts-journey/"><u>Wealth Accumulation Mr. Beast's Journey</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-advanced-strategies-for-youtube-audio-editing-mastery/"><u>[New] 2024 Approved Advanced Strategies for YouTube Audio Editing Mastery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-hacks-create-youtube-shorts-thumbnails-that-stand-out-quickly/"><u>[New] 2024 Approved Hacks Create YouTube Shorts Thumbnails That Stand Out Quickly</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-essential-guide-to-iphone-voice-recording-techniques/"><u>[New] Essential Guide to iPhone Voice Recording Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-host-a-webinar-on-youtube-for-free/"><u>[New] How to Host a Webinar on YouTube for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-16-youtube-starting-points-to-enhance-view-count/"><u>[New] Top 16 YouTube Starting Points to Enhance View Count</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ace-your-youtube-livestreams-mastering-broadcast-techniques-using-wirecast/"><u>[Updated] 2024 Approved Ace Your Youtube Livestreams Mastering Broadcast Techniques Using WireCast</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-average-profit-per-million-youtube-viewers/"><u>[Updated] 2024 Approved Average Profit per Million YouTube Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>[Updated] In 2024, A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-excellence-in-work-and-online-content/"><u>[Updated] In 2024, Achieving Excellence in Work and Online Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-partnership-reaching-10k-views-quickly/"><u>[Updated] Mastering YouTube Partnership Reaching 10K Views Quickly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mirthful-melodies-comical-cover-tunes/"><u>[Updated] Mirthful Melodies Comical Cover Tunes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unleashing-creativity-essential-tips-for-canva-pros/"><u>[Updated] Unleashing Creativity Essential Tips for Canva Pros</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-as-a-learning-tool-insider-advice-for-teachers/"><u>2024 Approved YouTube as a Learning Tool Insider Advice for Teachers</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/1728487845805-3windows-11/"><u>3つのテクニックでWindows 11における「スリープモード」を有効化する方法</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fast-fixes-for-laptops-that-wont-charge-get-power-back-immediately/"><u>Fast Fixes for Laptops That Won't Charge - Get Power Back Immediately</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/final-cut-pros-top-10-must-have-plug-ins-for-professionals-for-2024/"><u>Final Cut Pro’s Top 10 Must-Have Plug-Ins for Professionals for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-apple-iphone-15-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 15 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/resolve-chromebooks-video-issue-for-2024/"><u>Resolve Chromebook's Video Issue for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-youtube-adsense-optimization-for-2024/"><u>The Ultimate Guide to YouTube AdSense Optimization for 2024</u></a></li>
 </ul></div>
 

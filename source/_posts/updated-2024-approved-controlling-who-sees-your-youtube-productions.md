@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Controlling Who Sees Your Youtube Productions\""
-date: 2024-11-29T21:45:05.432Z
-updated: 2024-12-01T18:57:02.598Z
+date: 2024-12-08T20:01:30.390Z
+updated: 2024-12-09T18:25:59.638Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -61,11 +65,11 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -78,17 +82,21 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
- To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 ## Part 3: Sharing Private Videos
 
@@ -102,15 +110,7 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,17 +127,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-digital-divas-top-ten-gamers-on-youtube/"><u>[New] 2024 Approved Digital Divas Top Ten Gamers on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exploring-earning-potential-an-uncomplicated-triad-technique-for-youtube-profit-analysis/"><u>[New] 2024 Approved Exploring Earning Potential An Uncomplicated Triad Technique for YouTube Profit Analysis</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-elevating-your-channels-profits-with-impactful-and-effective-trailers-for-2024/"><u>[Updated] Elevating Your Channels' Profits with Impactful and Effective Trailers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expert-advice-for-embedding-youtube-playlists-with-ease/"><u>[Updated] In 2024, Expert Advice for Embedding YouTube Playlists with Ease</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>[Updated] Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aging-gracefully-with-multilingual-skills/"><u>Aging Gracefully With Multilingual Skills</u></a></li>
-<li><a href="https://win-able.techidaily.com/anno-1800-and-the-puzzling-directx-issue-solution-guide/"><u>Anno 1800 and the Puzzling DirectX Issue - Solution Guide</u></a></li>
-<li><a href="https://media-tips.techidaily.com/best-techniques-for-eliminating-ambient-sounds-from-your-audio-recordings/"><u>Best Techniques for Eliminating Ambient Sounds From Your Audio Recordings</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-14-pro-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot iPhone 14 Pro Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-freelancers-dream-top-free-3d-text-psd-arsenal/"><u>In 2024, Freelancer’s Dream Top FREE 3D Text PSD Arsenal</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-premier-winpodcast-options-reviewed/"><u>In 2024, Premier WinPodcast Options Reviewed</u></a></li>
-<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-xr-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On iPhone XR?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-build-and-launch-youtube-video-ads-on-budget/"><u>[New] 2024 Approved Build & Launch YouTube Video Ads on Budget</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-beginners-guide-to-youtube-shorts-nuances-for-2024/"><u>[New] A Beginner's Guide to YouTube Shorts Nuances for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quintessential-storytelling-transforming-film-art/"><u>[New] Quintessential Storytelling Transforming Film Art</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-essentials-of-youtubes-cc-license-for-filmakers/"><u>[New] The Essentials of YouTube's CC License for Filmakers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-video-potential-leading-tools-turning-youtubes-to-avis/"><u>[New] Unlock Video Potential Leading Tools Turning YouTubes to Avis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-exploring-the-new-frontier-of-android-gaming-with-kinemaster-for-2024/"><u>[Updated] Exploring the New Frontier of Android Gaming with KineMaster for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-guide-to-producing-impactful-lifestyle-motivational-content/"><u>[Updated] Guide to Producing Impactful Lifestyle Motivational Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-roadmap-to-free-cut-out-imagery/"><u>[Updated] The Roadmap to Free Cut-Out Imagery</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/parents-resource-mastering-chatgpt-and-ai-generation/"><u>Parents' Resource: Mastering ChatGPT and AI Generation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solution-steps-for-when-granblue-fantasy-wont-start-due-to-link-errors/"><u>Solution Steps for When Granblue Fantasy Won't Start Due to Link Errors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-2023-costume-and-etiquette-guide-for-spooktacular-halloween-bashes/"><u>Top 2023 Costume & Etiquette Guide for Spooktacular Halloween Bashes</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/windows-security-issues-resolved-on-windows-11-how-to-fix-unresponsive-panel/"><u>Windows Security Issues Resolved on Windows 11 - How to Fix Unresponsive Panel</u></a></li>
 </ul></div>
 

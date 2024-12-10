@@ -1,7 +1,7 @@
 ---
 title: "\"Streamlining Video Features  YouTube Annotations Guide for 2024\""
-date: 2024-08-01T10:25:16.598Z
-updated: 2024-08-02T10:25:16.598Z
+date: 2024-12-06T18:53:58.067Z
+updated: 2024-12-09T21:48:40.926Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,9 +32,6 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -51,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,6 +56,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click on the "Video Manager" tab
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
@@ -69,16 +71,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -87,18 +87,20 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -144,12 +146,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-alchemy-turning-viewers-into-believers/"><u>[New] 2024 Approved Channel Alchemy Turning Viewers Into Believers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>[New] 2024 Approved Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-digital-dollar-first-steps-in-youtubers-revenue/"><u>[New] 2024 Approved Digital Dollar First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cutting-edge-tools-free-youtube-intro-creators-for-2024/"><u>[New] Cutting-Edge Tools Free YouTube Intro Creators for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-easy-pc-capture-tool-windows-10-free-version-for-2024/"><u>[New] Easy PC Capture Tool - Windows 10 Free Version for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-mastering-facebook-call-recording-a-step-by-step-guide/"><u>[New] In 2024, Mastering Facebook Call Recording A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortless-video-streams-youtube-loops-for-television-viewers/"><u>[Updated] 2024 Approved Effortless Video Streams YouTube Loops for Television Viewers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-harnessing-tools-for-fb-content-extraction/"><u>[Updated] 2024 Approved Harnessing Tools for FB Content Extraction</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered/"><u>[Updated] In 2024, Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-by-step-guide-posting-shorts-on-youtube-from-pcmobile-devices/"><u>[Updated] In 2024, Step-by-Step Guide Posting Shorts on YouTube From PC/Mobile Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-artificer-intelligence-a-gateway-to-novel-methods-in-misleading-the-public/"><u>Is Artificer Intelligence a Gateway to Novel Methods in Misleading the Public?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/key-platforms-ranking-the-best-6-sites-for-business-interaction-for-2024/"><u>Key Platforms Ranking the Best 6 Sites for Business Interaction for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-9gag-a-guide-for-memetic-creation/"><u>Mastering 9GAG A Guide for Memetic Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-producing-hysterical-youtube-video-reactions-3-key-techniques-for-2024/"><u>The Ultimate Guide to Producing Hysterical YouTube Video Reactions (3 Key Techniques) for 2024</u></a></li>
+</ul></div>
 

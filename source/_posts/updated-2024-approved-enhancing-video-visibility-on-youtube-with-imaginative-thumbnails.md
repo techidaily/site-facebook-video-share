@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Video Visibility on YouTube with Imaginative Thumbnails\""
-date: 2024-08-01T10:27:32.081Z
-updated: 2024-08-02T10:27:32.081Z
+date: 2024-12-07T16:48:22.298Z
+updated: 2024-12-09T16:46:37.312Z
 tags:
   - ai video
   - ai youtube
@@ -39,14 +39,11 @@ Here are 5 easy tips for creating thumbnails that get views.
  _Contest now closed._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit Your Videos Before Creating Video Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## 1\. Have a Consistent Layout
@@ -55,14 +52,12 @@ Your thumbnails all must look like part of the same set. You want viewers to rec
 
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -75,6 +70,10 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -82,8 +81,9 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -94,10 +94,11 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -105,12 +106,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-10-best-high-security-androidios-video-calling-tools-available-for-free-for-2024/"><u>[New] 10 Best High-Security Android/iOS Video Calling Tools Available for Free for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-standout-youtube-thumbnails-with-ease/"><u>[New] 2024 Approved Crafting Standout YouTube Thumbnails with Ease</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-hype-generating-headline-author/"><u>[New] Hype-Generating Headline Author</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-visual-wonders-home-made-effects-demystified/"><u>[New] In 2024, Crafting Visual Wonders Home-Made Effects Demystified</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-instantaneous-timestamping-for-your-youtube-urls/"><u>[New] Instantaneous Timestamping for Your YouTube URLs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-your-channels-profits-with-impactful-and-effective-trailers/"><u>[Updated] 2024 Approved Elevating Your Channels' Profits with Impactful and Effective Trailers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-perfecting-video-quality-on-zoom-through-filters-use/"><u>[Updated] 2024 Approved Perfecting Video Quality on Zoom Through Filters Use</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-all-about-triller-diverging-from-standard-tiktok-experience/"><u>[Updated] In 2024, All About Triller Diverging From Standard TikTok Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-sound-with-these-asmr-apps/"><u>[Updated] In 2024, Elevate Sound with These ASMR Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unraveling-the-top-9-free-video-logo-creation-software-list/"><u>[Updated] Unraveling The Top 9 Free Video Logo Creation Software List</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eradicate-flickering-on-your-visual-display-unit/"><u>Eradicate Flickering on Your Visual Display Unit</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-vivo-y100t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Vivo Y100t? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-lava-yuva-3-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Lava Yuva 3 Phone? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-updating-graphics-and-chipset-drivers-on-your-dell-xps-15/"><u>Step-by-Step Guide: Updating Graphics & Chipset Drivers on Your Dell XPS 15</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/traps-in-the-web-avoiding-the-snare-of-buying-non-existent-supporters-for-2024/"><u>Traps in the Web Avoiding the Snare of Buying Non-Existent Supporters for 2024</u></a></li>
+</ul></div>
 

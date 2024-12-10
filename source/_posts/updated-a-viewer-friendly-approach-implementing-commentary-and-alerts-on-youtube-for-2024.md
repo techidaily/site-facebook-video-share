@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube for 2024\""
-date: 2024-08-01T10:23:22.047Z
-updated: 2024-08-02T10:23:22.047Z
+date: 2024-12-07T22:55:57.171Z
+updated: 2024-12-09T18:41:52.785Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c7997379262ae837ce8b40d29f0069413aec90a36
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,9 +32,6 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -51,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -59,12 +57,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -72,14 +71,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -89,15 +87,16 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -135,10 +134,11 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,12 +146,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-direct-hit-the-techno-friendly-way-to-upload-your-short-clips/"><u>[New] 2024 Approved Direct Hit The Techno-Friendly Way to Upload Your Short Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enrich-your-presentations-include-youtube-videos-in-slate-for-2024/"><u>[New] Enrich Your Presentations - Include YouTube Videos in Slate for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breaking-down-the-system-behind-highlighted-video-comments/"><u>[New] In 2024, Breaking Down the System Behind Highlighted Video Comments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cutting-edge-camera-technology-for-youtube-stars/"><u>[New] In 2024, Cutting-Edge Camera Technology For YouTube Stars</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-illustrator-wizards-guide-to-3d-text/"><u>[New] In 2024, The Illustrator Wizard's Guide to 3D Text</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audiovisual-power-evaluating-mirrorless-vs-dslr-cameras/"><u>[Updated] 2024 Approved Audiovisual Power Evaluating Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discovering-video-producers-digital-command-center/"><u>[Updated] 2024 Approved Discovering Video Producers' Digital Command Center</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-flawless-foundations-top-youtube-skincare-routines/"><u>[Updated] Flawless Foundations Top YouTube Skincare Routines</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-a-compre-written-by-daniel-kelley/"><u>[Updated] In 2024, A Compre Written by Daniel Kelley</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-learn-and-create-the-ultimate-youtube-trailer-blueprint-in-filmora-for-2024/"><u>[Updated] Learn and Create The Ultimate YouTube Trailer Blueprint in Filmora for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-avoid-folder-restrictions-on-windows-11/"><u>How to Avoid Folder Restrictions on Windows 11</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/how-to-optimize-and-decrease-processor-load-expert-advice-from-the-team-at-yl-software/"><u>How to Optimize and Decrease Processor Load: Expert Advice From the Team at YL Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-nokia-g22-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Nokia G22 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/laptop-setup-guide-to-initiate-direct-chat-rooms-via-whatsapp-web/"><u>Laptop Setup Guide to Initiate Direct Chat Rooms via WhatsApp Web</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-clearing-usage-locks-in-windows-11/"><u>Mastering the Art of Clearing Usage Locks in Windows 11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/swiftly-expand-your-youtube-following-for-minimal-cost-for-2024/"><u>Swiftly Expand Your YouTube Following for Minimal Cost for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-tier-performance-an-in-depth-look-at-the-apc-gaming-uninterruptible-power-supply/"><u>Top-Tier Performance: An In-Depth Look at the APC Gaming Uninterruptible Power Supply</u></a></li>
+</ul></div>
 

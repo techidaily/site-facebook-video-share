@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-11-29T05:49:23.139Z
-updated: 2024-12-01T20:33:57.866Z
+date: 2024-12-06T21:10:13.668Z
+updated: 2024-12-09T22:33:13.069Z
 tags:
   - win11
   - win10
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 **League of Legends keeps crashing?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  Here’s a list of fixes that have resolved this problem for other LoL players. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -30,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Make sure your PC meets meets the system requirements for League of Legends
@@ -64,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
  If your PC meets the system requirement for League of Legends but the game crashing issue persists, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2: Update your drivers
 
  A missing or outdated driver may also trigger the game crashing issue. If it’s the case, this issue can be easily resolved after you update your drivers.
@@ -100,6 +100,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
  If you need assistance, please contact**Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 3: Install the latest Windows Updates
 
  One of the the dependencies of League of Legends is**DotNet Framework 3.5** . By installing the latest Windows Updates, you can also update DotNet Framework 3.5 to the latest version. If you’re using Windows 10, you can follow the steps below to perform Windows Update:
@@ -111,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  2) Click**Download** if Windows detects any new updates. If not, then click**Check for updates** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3) Wait until Windows downloaded and installed all the updates.
 
@@ -132,6 +132,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click**Initiate Full Repair** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
@@ -140,11 +144,11 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Enable low spec mode
 
@@ -161,10 +165,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap778.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Run League of Legends to see if you resolved this issue.
 
@@ -188,15 +188,24 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-capture-the-action-crafting-best-in-class-sports-films-for-2024/"><u>[New] Capture the Action Crafting Best-in-Class Sports Films for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-newbies-roadmap-building-a-channel-making-cash/"><u>[New] The Ultimate Newbie's Roadmap Building a Channel, Making Cash</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mobile-beat-benders-for-android-and-ios-devices/"><u>[Updated] Mobile Beat Benders for Android and iOS Devices</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-tech-savvy-strategies-to-maximize-whiteboard-functionality-across-devices-for-2024/"><u>[Updated] Tech-Savvy Strategies to Maximize Whiteboard Functionality Across Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-tips-to-improve-visual-integrity-while-watching-youtube-content/"><u>[Updated] Tips to Improve Visual Integrity While Watching YouTube Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-7-iosandroid-apps-for-mobile-friendly-youtube-streaming/"><u>[Updated] Top 7 iOS/Android Apps for Mobile-Friendly YouTube Streaming</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/free-easy-tag-extraction-compilation-of-7-best-no-cost-online-tools-for-2024/"><u>Free, Easy Tag Extraction Compilation of 7 Best No-Cost Online Tools for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-discover-the-truth-is-vn-video-editor-pro-a-top-notch-video-editor/"><u>In 2024, Discover the Truth Is VN Video Editor Pro a Top-Notch Video Editor?</u></a></li>
-<li><a href="https://windows11.techidaily.com/raising-the-roar-the-top-4-apps-to-boost-windows-decibels-over-limit/"><u>Raising the Roar: The Top 4 Apps to Boost Windows’ Decibels Over Limit</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/the-premier-monitors-top-5-for-ps5-and-xbox-players-for-2024/"><u>The Premier Monitors Top 5 for PS5 & Xbox Players for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-free-youtube-to-mp3-converters-you-should-know-onlinewinmac/"><u>[New] In 2024, Best Free YouTube to MP3 Converters You Should Know [Online/Win/Mac]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlining-your-youtube-earnings-post-monetization-processes/"><u>[New] Streamlining Your YouTube Earnings Post-Monetization Processes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-complimentary-access-to-50-premium-youtube-banners/"><u>[New] Your Complimentary Access to 50 Premium YouTube Banners</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-mobile-youtube-usage-on-different-oses/"><u>[Updated] 2024 Approved Exploring Mobile YouTube Usage on Different OSes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-a-beginners-manual-for-phantoms-reverse-footage-for-2024/"><u>[Updated] A Beginner's Manual for Phantom's Reverse Footage for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-success-metrics-subscriber-and-play-buttons-for-2024/"><u>[Updated] Channel Success Metrics Subscriber & Play Buttons for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-demystifying-income-flow-to-creators-within-the-short-video-model/"><u>[Updated] In 2024, Demystifying Income Flow to Creators Within the Short Video Model</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-shuffle-of-your-youtube-playlists/"><u>[Updated] In 2024, Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-trending-video-reactions/"><u>[Updated] In 2024, Exploring Trending Video Reactions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-ranking-of-phones-excellent-at-mobile-video-production/"><u>[Updated] Ranking of Phones Excellent at Mobile Video Production</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/iphonewindows-114/"><u>将iPhone数据转移到Windows 11平台——顶级4技巧🔥🔥</u></a></li>
+<li><a href="https://video-capture.techidaily.com/activate-grid-in-google-meet-for-full-participant-display/"><u>Activate Grid in Google Meet for Full-Participant Display</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/battle-of-wits-assessing-chatgpt-against-googles-bard-for-optimal-performance/"><u>Battle of Wits: Assessing ChatGPT Against Google's Bard for Optimal Performance</u></a></li>
+<li><a href="https://video-capture.techidaily.com/effortless-guide-how-to-automate-recording-of-your-google-gatherings-for-2024/"><u>Effortless Guide How to Automate Recording of Your Google Gatherings for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-windows-10-audio-issues-step-by-step-guide/"><u>How to Fix Windows 10 Audio Issues - Step-by-Step Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-a38-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo A38 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-art-of-disregarding-harmful-youtube-comments-for-2024/"><u>The Art of Disregarding Harmful YouTube Comments for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/webcam-experience-pioneering-high-definition-video-capture/"><u>WebCam Experience Pioneering High-Definition Video Capture</u></a></li>
 </ul></div>
 

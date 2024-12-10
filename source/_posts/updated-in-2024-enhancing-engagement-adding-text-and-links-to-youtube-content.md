@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Enhancing Engagement  Adding Text and Links to YouTube Content\""
-date: 2024-08-01T10:26:34.346Z
-updated: 2024-08-02T10:26:34.346Z
+date: 2024-12-08T19:11:49.207Z
+updated: 2024-12-09T18:17:01.778Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/3b240b43c93d639302106c546caada2668474e961
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,9 +32,6 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -59,13 +53,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -74,11 +73,12 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -89,13 +89,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -133,9 +138,6 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -144,12 +146,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-steps-for-crafting-video-based-gifs-on-mobiledesktop-for-2024/"><u>[New] Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/evolutionizing-video-views-conquering-youtube-millions/"><u>[New] Revolutionizing Video Views, Conquering YouTube Millions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-essential-elements-for-implementing-channel-banners-in-games/"><u>[Updated] 2024 Approved Essential Elements for Implementing Channel Banners in Games</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-addressing-missing-image-display-in-youtubes-shorts-for-2024/"><u>[Updated] Addressing Missing Image Display in YouTubes Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-dial-up-the-impact-with-50-free-branding-graphics-for-2024/"><u>[Updated] Dial Up the Impact with 50 FREE Branding Graphics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-jumpstart-your-channel-with-these-top-10-video-editing-tips/"><u>[Updated] Jumpstart Your Channel with These Top 10 Video Editing Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-gaming-intro-ideas-for-youtube-free-vs-paid-models/"><u>[Updated] Premium Gaming Intro Ideas for YouTube Free vs Paid Models</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-launch-your-stream-top-8-youtube-revenue-tactics/"><u>2024 Approved Launch Your Stream Top 8 YouTube Revenue Tactics</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-guide-to-updating-and-installing-hp-officejet-pro-8720-drivers-for-windows-users/"><u>Easy Guide to Updating & Installing HP OfficeJet Pro 8720 Drivers for Windows Users</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-capturexpress-11-professional/"><u>In 2024, CaptureXpress 11 Professional</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/online-webm-mp4-atlaglosaert-ordogongyilkolo-foldalapokra-egyesitett-merhetovel-es-gyorsan/"><u>Online WebM-MP4 Átlaglósáért: Ördögöngyilkoló Foldalapokra Egyesített, Mérhetővel És Gyorsan</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/precision-and-flair-tailoring-background-imagery-to-stand-out-on-thumbnails-for-2024/"><u>Precision & Flair Tailoring Background Imagery to Stand Out on Thumbnails for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prime-images-storage-centers/"><u>Prime Images Storage Centers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essentials-of-earning-on-youtube-platforms-for-2024/"><u>The Essentials of Earning on YouTube Platforms for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-rated-mp4-codec-tools-for-flawless-hd-video-conversion/"><u>Top Rated MP4 Codec Tools for Flawless HD Video Conversion</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-gpu-heat-impact-in-gaming/"><u>Understanding GPU Heat Impact in Gaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-shorts-fund-how-to-maximize-your-earnings-for-2024/"><u>YouTube Shorts Fund How to Maximize Your Earnings for 2024</u></a></li>
+</ul></div>
 

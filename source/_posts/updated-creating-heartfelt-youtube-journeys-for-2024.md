@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Creating Heartfelt YouTube Journeys for 2024"
-date: 2024-11-30T05:59:23.071Z
-updated: 2024-12-01T21:46:10.863Z
+date: 2024-12-04T17:15:24.436Z
+updated: 2024-12-09T23:21:28.338Z
 tags:
   - ai video
   - ai youtube
@@ -39,15 +39,15 @@ YouTube is a great platform you can use not only to share your gifts and talents
 * [25 Facts About Me](#nine)
 * [YouTube Live/Webinar](#ten)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\.  Channel Trailer
 
 Before posting any videos on your channel, it can be a great idea to [create a “Channel Trailer”](https://tools.techidaily.com/wondershare/filmora/download/) summarizing who you are and what your channel is all about.
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ###  2\.  My YouTube Story
 
@@ -70,42 +70,42 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -122,17 +122,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-guide-the-8-best-zero-price-video-cutting-software/"><u>[New] 2024 Approved Essential Guide The 8 Best Zero Price Video Cutting Software</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-core-auditory-stimulation-channels-for-2024/"><u>[New] Core Auditory Stimulation Channels for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-extract-gif-content-seamlessly-on-various-devices/"><u>[New] How To Extract GIF Content Seamlessly on Various Devices</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-capture-and-store-5-best-ways-to-save-your-favorite-facebook-videos/"><u>[Updated] In 2024, Capture & Store 5 Best Ways to Save Your Favorite Facebook Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-engaging-youtube-videos-using-finalcut-pro-expertise/"><u>[Updated] In 2024, Crafting Engaging YouTube Videos Using FinalCut Pro Expertise</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-sonic-shakers-the-ultimate-audio-rippers-list/"><u>[Updated] Sonic Shakers The Ultimate Audio Rippers List</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-essential-screen-capture-software-top-picks-ranked/"><u>2024 Approved Essential Screen Capture Software - Top Picks Ranked</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-perfecting-your-phones-capability-for-youtube-thumbnail-creation/"><u>2024 Approved Perfecting Your Phone's Capability for YouTube Thumbnail Creation</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-best-wearable-camera-innovations/"><u>In 2024, Best Wearable Camera Innovations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubers-playbook-advanced-techniques-for-engaging-editing/"><u>In 2024, Youtuber's Playbook Advanced Techniques for Engaging Editing</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066329-9789359046327-light-from-the-spirit-world/"><u>Light from the spirit world | Free Book</u></a></li>
-<li><a href="https://windows11.techidaily.com/method-for-startingstopping-windows-installer/"><u>Method for Starting/Stopping Windows Installer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-end-your-videos-professionally-with-these-free-tools-top-6-for-2024/"><u>[New] End Your Videos Professionally with These Free Tools (Top 6) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-ears-10-pro-tips-for-excellent-sound-quality/"><u>[New] In 2024, Elevate Your Ears 10 Pro Tips for Excellent Sound Quality</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-tips-for-using-colored-backdrops-in-video-making-for-2024/"><u>[Updated] Cutting-Edge Tips for Using Colored Backdrops in Video Making for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-your-channels-profits-with-impactful-and-effective-trailers/"><u>[Updated] In 2024, Elevating Your Channels' Profits with Impactful and Effective Trailers</u></a></li>
+<li><a href="https://article-files.techidaily.com/a-step-by-step-guide-to-posting-on-instagram-for-2024/"><u>A Step-by-Step Guide to Posting on Instagram for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-usb-to-rs-232-cable-driver-for-windows-step-by-step-guide/"><u>Download & Install USB to RS-232 Cable Driver for Windows - Step by Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/examining-recordcasts-capabilities-through-honest-lenses/"><u>Examining RecordCast's Capabilities Through Honest Lenses</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-beat-benders-for-android-and-ios-devices-for-2024/"><u>Mobile Beat Benders for Android and iOS Devices for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/smooth-gaming-solve-baldurs-gate-performance-problems-top-6-failsafes/"><u>Smooth Gaming: Solve Baldur's Gate Performance Problems - Top 6 Failsafes!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/total-data-usage-24-hour-videography-in-gbs/"><u>Total Data Usage 24-Hour Videography in GBs</u></a></li>
 </ul></div>
 

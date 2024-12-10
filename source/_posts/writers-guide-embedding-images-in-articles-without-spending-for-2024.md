@@ -1,7 +1,7 @@
 ---
 title: "\"Writers' Guide  Embedding Images in Articles Without Spending for 2024\""
-date: 2024-11-30T01:48:10.732Z
-updated: 2024-12-02T00:59:37.720Z
+date: 2024-12-06T16:36:44.030Z
+updated: 2024-12-09T19:19:55.480Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
@@ -51,16 +47,12 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
@@ -68,17 +60,25 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
@@ -99,7 +99,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -117,22 +117,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-audio-ambition-selecting-top-6-free-downloader-apps-from-youtube-vaults/"><u>[New] 2024 Approved Audio Ambition Selecting Top 6 Free Downloader Apps From YouTube Vaults</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-a-deep-dive-into-youtube-app-features-on-smartphones-for-2024/"><u>[New] A Deep Dive Into YouTube App Features on Smartphones for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-dive-into-makers-earnings-exploring-youtube-shorts-revenue-structure-for-2024/"><u>[New] Dive Into Maker's Earnings Exploring YouTube Shorts Revenue Structure for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-five-mac-friendly-strategies-for-documenting-minecraft-games-for-2024/"><u>[New] Five Mac-Friendly Strategies for Documenting Minecraft Games for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-empower-your-video-creation-blending-youtube-and-imovie-for-impressive-results/"><u>[New] In 2024, Empower Your Video Creation Blending YouTube and iMovie for Impressive Results</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-key-to-a-profitable-yt-channel-accurate-monetization-verification/"><u>[New] The Key to a Profitable YT Channel Accurate Monetization Verification</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-video-editing-apps-for-youtube-creators/"><u>[Updated] 2024 Approved Essential Video Editing Apps for YouTube Creators</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-a-quick-fix-for-quirky-content-mastering-meme-creation-at-9gag/"><u>[Updated] A Quick Fix for Quirky Content Mastering Meme Creation at 9GAG</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-affordable-cameras-for-effective-vloggers/"><u>[Updated] In 2024, Affordable Cameras for Effective Vloggers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-video-experience-best-youtube-to-avi-companions/"><u>[Updated] In 2024, Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
-<li><a href="https://win11.techidaily.com/7-annoying-wins-windows-11s-design-dissonance/"><u>7 Annoying Wins: Windows 11'S Design Dissonance</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/anticipated-release-of-oneplus-10-projection-of-arrival-cost-estimates-and-latest-industry-rumors/"><u>Anticipated Release of OnePlus 10 - Projection of Arrival, Cost Estimates, and Latest Industry Rumors</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-issues-how-to-update-or-repair-compromised-oculus-graphics-drivers/"><u>Fixing Issues: How to Update or Repair Compromised Oculus Graphics Drivers</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-easy-ways-to-transfer-contacts-from-apple-iphone-12-pro-max-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Easy Ways to Transfer Contacts from Apple iPhone 12 Pro Max to Android | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Tecno Phantom V Fold? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/no-money-down-for-vfx-wizards-exclusive-video-tutorials-on-free-green-screen-techniques-from-top-channels-for-2024/"><u>No Money Down for VFX Wizards Exclusive Video Tutorials on Free Green Screen Techniques From Top Channels for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-dialogue-game-top-9-language-skills-hacks/"><u>Transform Your Dialogue Game: Top 9 Language Skills Hacks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-complete-guide-to-utilizing-youtubes-adsense-for-success/"><u>[New] 2024 Approved A Complete Guide to Utilizing YouTube’s AdSense for Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-download-all-youtube-images-for-free/"><u>[New] 2024 Approved Download All YouTube Images for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>[Updated] 2024 Approved Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-aspect-ratio-guide-for-youtube-creators/"><u>[Updated] In 2024, A Step-by-Step Aspect Ratio Guide for YouTube Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content/"><u>[Updated] In 2024, Become a Freelance Transcriber Tips and Tricks for YouTube Content</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-revisiting-your-private-snap-history/"><u>[Updated] The Art of Revisiting Your Private Snap History</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-windows-drivers-for-your-netgear-a610n-router-free/"><u>Get the Latest Windows Drivers for Your Netgear A610n Router - Free!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-6s-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 6s without Apple ID?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-iphone-11-pro-max-with-or-without-password-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on iPhone 11 Pro Max With or Without Password</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-stories-secrets-for-success/"><u>In 2024, Instagram Stories Secrets for Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-tv-deactivation-made-easy-for-2024/"><u>Instagram TV Deactivation Made Easy for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/is-it-possible-to-see-all-chatted-content-of-others-in-2024/"><u>Is It Possible to See All Chatted Content of Others, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/narrative-nuance-a-guide-to-crafting-compelling-film-dialogues-for-2024/"><u>Narrative Nuance A Guide to Crafting Compelling Film Dialogues for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cut-to-go-to-tags-maximizing-your-youtube-impact/"><u>Shortcut to Go-To Tags Maximizing Your YouTube Impact</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] One Arm Wonders  Keeping Photos Steady\""
-date: 2024-08-01T10:27:50.929Z
-updated: 2024-08-02T10:27:50.929Z
+date: 2024-12-03T16:57:29.445Z
+updated: 2024-12-09T21:55:43.762Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,23 +28,19 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
@@ -66,21 +58,18 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -99,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -129,10 +119,11 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,12 +131,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-tactics-for-youtube-short-troubleshooting/"><u>[New] 2024 Approved Essential Tactics for YouTube Short Troubleshooting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-biggest-fifa-visuals-youtube-insights-graphed-for-2024/"><u>[New] Biggest FIFA Visuals YouTube Insights Graphed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-detailed-procedures-for-elevating-youtube-clips-through-wm-maker-for-2024/"><u>[New] Detailed Procedures for Elevating YouTube Clips Through WM Maker for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-science-and-magic-behind-full-circle-films/"><u>[New] The Science and Magic Behind Full Circle Films</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-brief-blueprints-iphone-content-for-desktop/"><u>[Updated] 2024 Approved Brief Blueprints IPhone Content for Desktop</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youngest-millionaire-on-youtube-ryans-unprecedented-wealth-accumulation/"><u>[Updated] 2024 Approved Youngest Millionaire on YouTube Ryan's Unprecedented Wealth Accumulation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-html-techniques-for-youtube-playlist-web-insertion/"><u>[Updated] HTML Techniques for YouTube Playlist Web Insertion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-using-hashtags-for-youtube-gaming-videos/"><u>[Updated] The Ultimate Guide To Using Hashtags For YouTube Gaming Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-visual-vocabulary-complimentary-youtube-art-tools/"><u>[Updated] Visual Vocabulary Complimentary YouTube Art Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-premium-video-gear-guide-selecting-the-right-lens-for-youtube/"><u>2024 Approved Premium Video Gear Guide Selecting the Right Lens for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-revenue-boost-new-500-subs-milestone/"><u>2024 Approved YouTube's Revenue Boost New 500 Subs Milestone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/from-words-to-pictures-how-chatgpt-enables-image-creation-in-ai/"><u>From Words to Pictures: How ChatGPT Enables Image Creation in AI</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Vivo S17 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-stuck-lock-screen-timer-in-windows-1011/"><u>Solving Stuck Lock Screen Timer in Windows 10/11</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/srtmp4-mp4srt/"><u>SRTファイルとMP4動画のシームレスな融合: MP4ビデオへのSRT字幕統合手順</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stand-out-with-custom-youtube-imagery-for-2024/"><u>Stand Out with Custom YouTube Imagery for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-for-unfreezing-call-of-duty-vanguard-gameplay-smoothly/"><u>Troubleshooting Tips for Unfreezing Call of Duty: Vanguard Gameplay Smoothly</u></a></li>
+</ul></div>
 

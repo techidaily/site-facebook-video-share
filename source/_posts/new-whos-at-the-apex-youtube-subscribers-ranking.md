@@ -1,7 +1,7 @@
 ---
 title: "[New] Who's at the Apex? YouTube Subscribers Ranking"
-date: 2024-08-01T10:23:10.742Z
-updated: 2024-08-02T10:23:10.742Z
+date: 2024-12-07T21:00:40.133Z
+updated: 2024-12-09T20:18:48.794Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/0a4429b41076dffc8b778c6281e805f6a7937a0d2
 
 # YouTube Subscriber Chart - 5 Most Subscribed YouTuber
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -55,9 +52,6 @@ In this article, we will take you through the 5 most popular creator channels on
 
 ### 1\.  PewDiePie
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
@@ -72,21 +66,13 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
@@ -94,10 +80,11 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ###  4\.  Smosh
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -106,8 +93,9 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
@@ -121,14 +109,16 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -138,12 +128,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-success-with-youtube-income-streams/"><u>[New] 2024 Approved Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-distinctive-fb-video-aspects/"><u>[New] 2024 Approved Distinctive FB Video Aspects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-the-cold-with-five-cozy-cinematic-elements-for-2024/"><u>[New] Elevating the Cold with Five Cozy Cinematic Elements for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-your-signature-look-a-beginners-blueprint/"><u>[New] Unveiling Your Signature Look A Beginner's Blueprint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-yielding-income-a-streamers-guide-to-earning/"><u>[New] Yielding Income A Streamer's Guide to Earning</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-video-presentations-with-top-30-free-intra-makers/"><u>[Updated] In 2024, Elevate Your Video Presentations with Top 30 Free Intra Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-pivotal-role-of-thumbnails-in-video-success-stories/"><u>[Updated] The Pivotal Role of Thumbnails in Video Success Stories</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-personalizing-interactions-deepening-connections-with-viewers/"><u>2024 Approved Personalizing Interactions Deepening Connections with Viewers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unlocking-potential-the-ultimate-guide-to-whatsapp-hacks/"><u>2024 Approved Unlocking Potential The Ultimate Guide to WhatsApp Hacks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/dont-miss-out-on-the-steep-36-savings-for-an-8tb-samsung-t5-ssd-available-now-at-amazon-after-prime/"><u>Don't Miss Out on the Steep 36% Savings for an 8TB Samsung T5 SSD Available Now at Amazon After Prime</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/gerateverbindung-mit-google-one-schnelles-datenwiederherstellungsprotokoll-unter-windows/"><u>Geräteverbindung Mit Google One - Schnelles Datenwiederherstellungsprotokoll Unter Windows</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-poco-m6-pro-4g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Poco M6 Pro 4G Phone?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-12-pro-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 12 Pro Without a Passcode</u></a></li>
+<li><a href="https://driver-error.techidaily.com/pcie-interrupt-gateway-issue-sorted/"><u>PCIe Interrupt Gateway Issue Sorted</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-most-innovative-free-video-editors-for-idevices-for-2024/"><u>Unveiling the Most Innovative Free Video Editors for iDevices for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From No Cash to YouTube Wealth  Unlocking Earnings at the 500 Subs Level\""
-date: 2024-11-24T20:59:22.317Z
-updated: 2024-12-02T06:12:51.893Z
+date: 2024-12-07T20:27:17.866Z
+updated: 2024-12-09T16:30:43.825Z
 tags:
   - ai video
   - ai youtube
@@ -22,6 +22,10 @@ For small creators on YouTube, getting monetized seemed like an uphill task. You
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 1.** **YouTube Monetization Revamp: 500 Subscribers Minimum Threshold Unveiled**
 
 The recent update in YouTube monetization requirements has made it easier than ever for small creators to make money on the platform. The YPP program changed and reduced the number of subscribers needed to be eligible. It has also reduced the amount of watch time needed. Let’s have a look at what the new eligibility criteria look like:
@@ -37,23 +41,19 @@ The eligibility criteria for the YPP program are now easier and more achievable 
 
 The new requirements are lower than the old ones. Previously, you were required to have at least 1,000 subscribers with over 4,000 public watch hours. By lowering the threshold, YouTube makes it easier for all creators to monetize their content.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 2\. YouTube Monetization with 500 Subscribers: A Brief Guide**
 
 YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Know If You are Eligible**
 
 As a creator, you will want to know if you are eligible for the YouTube monetization 500 subscribers’ plan. Make sure that the notify feature on your channel is active to receive a notification. Go to the Earn area of the YouTube channel, and select Get Notified. Once selected, YouTube will send you an email when reach above the eligibility threshold.
 
 ![notify me](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-2.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **What You Need to Join Expanded YPP**
 
@@ -76,6 +76,10 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 2Click Earn in the left menu
 
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
@@ -85,7 +89,7 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step 4Click Start to set up an AdSense account
@@ -103,10 +107,6 @@ Applying for YouTube monetization on your mobile devices follows the same proces
 
 Once you complete these steps on your computer or mobile, In Progress status will surface in the Get Reviewed step. This means that YouTube will review your channel and provide feedback within a month.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **What Monetization Review Entails**
 
 Once you submit your application, YouTube’s automated systems and human reviewers will look at your channel for a while. They will review it to make sure it follows all the platform’s policies and guidelines. As the reviews are in progress, creators are encouraged to back to the Earn section of YouTube Studio regularly. Typically, you will get the results within a month, but this may be affected by several factors:
@@ -123,6 +123,10 @@ Sometimes the first application may not be successful for some reason. In this c
 The major way of earning money on YouTube is through ads that show in your videos. In the case of Shorts, the ad-sharing revenue involves YouTube sharing the revenue generated from the ads with creators. However, getting accepted to YPP also allows you to start earning with fan funding and Shopping features. This means that creators can earn money directly from their views using these unique features
 
 ![youtube monetization features](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-7.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 YouTube monetization 500 subscribers update allows you to earn money through monetization features that were not there before. This allows creators to interact more with their viewer while generating income. The main fan funding features include:
 
@@ -146,28 +150,24 @@ Filmora offers creators fantastic editing features to create better Shorts. Let�
 YouTube Shorts require quick content that covers everything within 60 seconds. With the Filmora AI Copywriting feature, you can get inspiration and add text to your videos. Express your thoughts more clearly and generate text that makes the video more engaging.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. **Split Screen Video Editor**
 
 YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. **Motion Tracking**
 
 With YouTube Shorts, you need to be more creative. Adding objects to your videos makes them fun and engaging. The motion tracking feature on Filmora allows you to track the movement of an object in the video. You can then pin graphics on the object, making the video more exciting. You can also add specific text and align it to an object, allowing your audience to follow through the story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. **Speed Ramping**
 
 The way you present your video means a lot to the audience. No one wants a boring or a really slow-moving video. With the Speed Ramping feature on Filmora, you can adjust the speed of your Shorts with better control of your keyframes. This allows you to create unique cinematic effects that keep the audience wanting more of the content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -186,17 +186,17 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-perfect-presentation-powerpoint-recordings-on-webcam/"><u>[New] 2024 Approved Perfect Presentation PowerPoint Recordings on Webcam</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-creators-vs-youtubes-profit-policies-for-2024/"><u>[New] Creators Vs. YouTube's Profit Policies for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>[New] From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free.</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-eliminating-robotic-ratings-to-grow-views/"><u>[New] In 2024, Eliminating Robotic Ratings to Grow Views</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-title-genius-ideas-for-your-video-hub/"><u>[Updated] 2024 Approved Channel Title Genius Ideas for Your Video Hub</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-leading-tools-to-monitor-hashtags-on-fb-twitter-and-instagram/"><u>[Updated] 2024 Approved Leading Tools to Monitor Hashtags on FB, Twitter & Instagram</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-mastering-snap-camera-in-ms-teams-for-2024/"><u>[Updated] Mastering Snap Camera in MS Teams for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-reach-unprecedented-numbers-youtube-marketing-wisdom/"><u>[Updated] Reach Unprecedented Numbers YouTube Marketing Wisdom</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722865897374-decoding-digital-expressions-learn-these-10-intriguing-details-about-emojis/"><u>Decoding Digital Expressions: Learn These 10 Intriguing Details About Emojis</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On ZTE Blade A73 5G? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-moto-g84-5g-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Moto G84 5G support AVCHD video?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-oppo-a78-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Oppo A78 in Minutes | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-prominence-mastery-a-comprehensive-youtube-guide/"><u>[New] 2024 Approved Channel Prominence Mastery A Comprehensive YouTube Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-5-top-3d-design-apps-for-engaging-youtube-beginnings/"><u>[New] In 2024, 5 Top 3D Design Apps for Engaging YouTube Beginnings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-best-mac-video-trims-top-6-picks-post-snow-leopard/"><u>[Updated] 2024 Approved Best Mac Video Trims Top 6 Picks Post-Snow Leopard</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-covert-calls-chroniclers-top-secret-audio-gadgets-androidios/"><u>[Updated] 2024 Approved Covert Calls Chroniclers Top-Secret Audio Gadgets (Android/iOS)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-effective-use-of-look-up-tables-in-cinematic-color-grading/"><u>[Updated] Effective Use of Look-Up Tables in Cinematic Color Grading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engaging-presentations-tips-for-uploading-youtube-videos-into-slides-for-2024/"><u>[Updated] Engaging Presentations Tips for Uploading YouTube Videos Into Slides for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-editing-competitors-ranked-top-5-non-youtube-sites-list/"><u>2024 Approved YouTube Editing Competitors Ranked Top 5 Non-YouTube Sites List</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/free-online-converter-transform-wma-to-avi-format-with-movavi/"><u>Free Online Converter: Transform WMA to AVI Format with Movavi</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/829921-9781589795303-gemini/"><u>Gemini | Free Book</u></a></li>
+<li><a href="https://win-community.techidaily.com/how-to-access-taskbar-and-start-menu-settings-via-windows-control-panel-step-by-step-guide-by-yl-software/"><u>How to Access Taskbar and Start Menu Settings via Windows Control Panel - Step-by-Step Guide by YL Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-motorola-edge-40-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Motorola Edge 40 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722874499038-unboxing-samsungs-latest-innovation-the-galaxy-z-fold-series-6-pricing-details-and-release-schedule-revealed/"><u>Unboxing Samsung's Latest Innovation - The Galaxy Z Fold Series 6: Pricing Details and Release Schedule Revealed!</u></a></li>
 </ul></div>
 

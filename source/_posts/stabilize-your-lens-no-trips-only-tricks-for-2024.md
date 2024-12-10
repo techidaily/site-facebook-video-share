@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks for 2024\""
-date: 2024-08-01T10:30:27.534Z
-updated: 2024-08-02T10:30:27.534Z
+date: 2024-12-05T16:55:02.529Z
+updated: 2024-12-09T22:57:35.984Z
 tags:
   - ai video
   - ai youtube
@@ -28,23 +28,18 @@ thumbnail: https://thmb.techidaily.com/7232672881e7d137d3952f765be2610288c45b29a
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -59,20 +54,22 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -91,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -100,6 +98,10 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -129,12 +131,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-earning-on-youtube-a-step-by-step-guide-for-newbies/"><u>[New] 2024 Approved Earning on YouTube A Step-by-Step Guide for Newbies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-channel-boosting-strategies-effortless-sponsorship-securing-tips-for-2024/"><u>[New] Channel Boosting Strategies Effortless Sponsorship Securing Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tarted-streaming-learn-obs-for-youtube-now-for-2024/"><u>[New] Started Streaming? Learn OBS for Youtube Now for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-choosing-your-soundtrack-the-podcast-vs-youtube-showdown/"><u>[Updated] 2024 Approved Choosing Your Soundtrack The Podcast Vs. YouTube Showdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-aesthetic-alchemy-transforming-youtube-videos-for-2024/"><u>[Updated] Aesthetic Alchemy Transforming YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-direct-youtube-stream-of-google-meet-step-by-step-instructions/"><u>[Updated] In 2024, Direct YouTube Stream of Google Meet - Step-by-Step Instructions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mp3-downloader-for-facebook-feeds-for-2024/"><u>[Updated] MP3 Downloader for Facebook Feeds for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-shadows-a-systematic-guide-to-hidden-youtube-content/"><u>[Updated] Unveiling the Shadows A Systematic Guide to Hidden YouTube Content</u></a></li>
+<li><a href="https://blog-min.techidaily.com/conversione-free-di-video-3g2-su-mp4-online-con-il-metodo-effiziente-di-movavi-scopri-come/"><u>Conversione FREE Di Video 3G2 Su MP4 Online Con Il Metodo Effiziente Di Movavi: Scopri Come</u></a></li>
+<li><a href="https://solve-news.techidaily.com/effizientes-konvertierungswerkzeug-fur-dvds-auf-mac-mit-winx-ripper-fur-mobile-gerate/"><u>Effizientes Konvertierungswerkzeug Für DVDs Auf Mac Mit WinX Ripper Für Mobile Geräte</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-spark-20c-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Spark 20C?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-honor-magic-6-lite-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Honor Magic 6 Lite Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/maximize-engagement-and-conversions-harness-the-strengths-of-cookiebot/"><u>Maximize Engagement and Conversions: Harness the Strengths of Cookiebot!</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/streamline-screen-capturing-in-todays-remote-meetings/"><u>Streamline Screen Capturing in Today’s Remote Meetings</u></a></li>
+</ul></div>
 

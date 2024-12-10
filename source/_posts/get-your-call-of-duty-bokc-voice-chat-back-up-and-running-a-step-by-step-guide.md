@@ -1,7 +1,7 @@
 ---
 title: "Get Your Call of Duty: BOKC Voice Chat Back Up and Running - A Step-by-Step Guide"
-date: 2024-11-24T22:43:48.626Z
-updated: 2024-12-02T02:51:49.807Z
+date: 2024-12-08T16:42:12.900Z
+updated: 2024-12-09T17:44:50.981Z
 tags:
   - win11
   - win10
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 6. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Check the connection of your audio device
@@ -62,15 +62,11 @@ First you need to check the default audio device on your system:
 3. Make sure the box next to**Disable** is unchecked, and the slider under**Volume** is set to 100.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/device-properties-and-test-microphone.jpg)
 4. Click **Start test** and tap or speak to your microphone. Then click **Stop test** . If you’re prompted **The highest value we saw was xx (xx > 0) percent** , it means your microphone has been set up correctly.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/sound-test-percent.jpg)
 
@@ -84,7 +80,7 @@ Next, you need to check the voice chat settings in the Battle.net client:
 3. On the menu to your left, select **Voice Chat** . Set **OUTPUT DEVICE** and **INPUT DEVICE** to **System Default Device** . Then click **Done** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/blizzard-voice-chat.jpg)
@@ -92,10 +88,6 @@ Next, you need to check the voice chat settings in the Battle.net client:
 Now launch Black Ops Cold War and see if you can talk to others.
 
  If your mic still doesn’t work in the game, you can try the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4: Update your audio driver
 
@@ -121,11 +113,19 @@ Now launch Black Ops Cold War and see if you can talk to others.
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-pro-update-audio-bluetooth-usb-unifying.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Once you’ve updated your audio driver, restart your PC and test the gameplay in Black Ops Cold War.
 
  If updating the audio driver doesn’t work for you, simply continue to the next fix.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Change the in-game audio settings
 
@@ -135,19 +135,15 @@ Now launch Black Ops Cold War and see if you can talk to others.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-audio-settings.jpg)
 2. Be sure to set both**Speakers/Headphones Voice Chat Device** and**Microphone Device** to**Default Communication Device** . Set**Microphone Activation Mode** to**Open Mic** . Then increase the value of**Open Microphone Sensitivity** to over 50.  
 
-![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-ingame-voice-settings.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-ingame-voice-settings.jpg)
 
  Now you can restart Black Ops Cold War and check if the voice chat is working.
 
  If changing game settings doesn’t help, you can try the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 6: Install all Windows updates
 
@@ -158,6 +154,10 @@ Here’s a quick guide for that:
 1. On your keyboard, press**Win+I** (the Windows logo key and the i key) to open the Windows Settings app. Click**Update & Security** .  
 ![update & security](https://images.drivereasy.com/wp-content/uploads/2020/10/update-security-2.jpg)
 2. Click**Check for updates** . Windows will download and install the available updates. Wait for the process to complete.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
 
@@ -184,16 +184,22 @@ Here’s a quick guide for that:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-11-best-free-youtube-name-generators-you-should-try-for-2024/"><u>[New] 11 Best Free YouTube Name Generators You Should Try for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-crafting-the-next-big-thing-your-guide-to-youtubes-best-video-types-for-2024/"><u>[New] Crafting the Next Big Thing Your Guide to YouTube's Best Video Types for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-harmony-hub-next-gen-unveiled/"><u>[New] Harmony Hub Next Gen Unveiled</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-seamless-shoot-and-stream-perfecting-dslr-broadcasts-from-home-pcsmacs-for-2024/"><u>[New] Seamless Shoot & Stream Perfecting DSLR Broadcasts From Home PCs/Macs for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-filters-through-windows-10-photos-extracting-picture-moments/"><u>[Updated] 2024 Approved Filters Through Windows 10 Photos Extracting Picture Moments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-amplify-your-storytelling-seamlessly-insert-music-into-youtube-videos-for-2024/"><u>[Updated] Amplify Your Storytelling Seamlessly Insert Music Into YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-hitting-the-sweet-spot-top-5-tips-for-channel-growth/"><u>[Updated] In 2024, Hitting the Sweet Spot Top 5 Tips for Channel Growth</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-the-world-of-youtube-live-visual-representations/"><u>[Updated] Navigating the World of YouTube Live Visual Representations</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-step-by-step-setting-up-your-first-xbox-record-session/"><u>2024 Approved Step-by-Step Setting Up Your First Xbox Record Session</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-your-path-to-youtube-stardom-six-simple-steps-for-greater-visibility/"><u>2024 Approved Your Path to YouTube Stardom Six Simple Steps for Greater Visibility</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-nokia-105-classic-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Nokia 105 Classic Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-digital-domain-your-playground-for-1000-titles/"><u>[New] 2024 Approved Digital Domain Your Playground for 1,000 Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-apps-for-3d-video-intros-on-social-platforms-for-2024/"><u>[New] Best Apps for 3D Video Intros on Social Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-content-creation-conundrum-where-to-go-for-2024/"><u>[New] Content Creation Conundrum Where to Go for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-soundtrack-strategists-guide-to-youtube-playlists/"><u>[New] In 2024, The Soundtrack Strategist's Guide to YouTube Playlists</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-striking-the-right-chord-in-your-podcast-summary-for-2024/"><u>[New] Striking the Right Chord in Your Podcast Summary for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-uncover-the-10-best-makeup-experts-on-youtube-you-cant-ignore/"><u>[New] Uncover the 10 Best Makeup Experts on YouTube You Can't Ignore</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhance-clips-best-winter-bgs-for-video-warmth/"><u>[Updated] 2024 Approved Enhance Clips Best Winter Bg's for Video Warmth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-creating-your-own-path-on-youtube-a-course-guide/"><u>[Updated] In 2024, Creating Your Own Path on YouTube A Course Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamlined-mp4-creation-must-have-tools-on-mac/"><u>[Updated] Streamlined MP4 Creation Must-Have Tools on Mac</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-tech-gear-choosing-cameras-for-youtube-success/"><u>[Updated] Top Tech Gear Choosing Cameras for YouTube Success</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-the-ultimate-guide-for-a-solo-show-that-stands-out/"><u>2024 Approved The Ultimate Guide for a Solo Show that Stands Out</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/effective-guide-to-cast-apple-iphone-8-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>Effective Guide to Cast Apple iPhone 8 to MacBook without Hindrance | Dr.fone</u></a></li>
+<li><a href="https://win-great.techidaily.com/guide-complet-identification-et-resolution-des-pannes-disque-avec-windows-11-a-laide-de-3-outils-verificateurs-innovants/"><u>Guide Complet : Identification Et Résolution Des Pannes Disque Avec Windows 11 À L'Aide De 3 Outils Vérificateurs Innovants</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/stop-screen-shiver-in-windows-11/"><u>Stop Screen Shiver in Windows 11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-independent-creators-playbook-earning-big-without-ads-on-youtube-for-2024/"><u>The Independent Creator’s Playbook Earning Big Without Ads on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncovering-the-warmth-of-campfire-tales-an-insightful-analysis-of-minecrafts-new-skin-pack/"><u>Uncovering the Warmth of Campfire Tales - An Insightful Analysis of Minecraft's New Skin Pack</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-itel-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Itel Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

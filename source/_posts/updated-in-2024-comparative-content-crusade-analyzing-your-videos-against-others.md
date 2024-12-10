@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Comparative Content Crusade  Analyzing Your Videos Against Others'\""
-date: 2024-08-01T10:30:49.278Z
-updated: 2024-08-02T10:30:49.278Z
+date: 2024-12-06T20:19:11.790Z
+updated: 2024-12-09T16:09:09.857Z
 tags:
   - ai video
   - ai youtube
@@ -44,19 +44,16 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
 #### 4\.  Traffic sources
@@ -65,19 +62,24 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\.  Audience Retention
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
 #### 7\.  Likes and dislikes
@@ -86,13 +88,14 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8\.  Subscribers
 
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
@@ -105,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
@@ -115,18 +122,12 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
  Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 #### 12\.  Sharing
 
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
 #### 13\.  Videos in playlists
@@ -135,9 +136,6 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## How to analyze your competitors
 
  Although, you can't see the dashboard data of your competitor, there are still some ways to observe and study your competitors' successful videos and from their views, favorites, ratings, and comments find out the driving force behind it.
@@ -150,10 +148,6 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
@@ -166,19 +160,11 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
  Read More to Get: [5 Methods to Go Frame by Frame on YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,12 +172,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-lighten-the-digital-landscape-kapwings-meme-builder/"><u>[New] 2024 Approved Lighten the Digital Landscape Kapwing's Meme Builder</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xpert-techniques-for-uploading-youtubes-on-dailymotion/"><u>[New] Expert Techniques for Uploading YouTubes on Dailymotion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-launching-a-youtube-channel-key-pieces-of-equipment/"><u>[New] Launching a YouTube Channel Key Pieces of Equipment</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-youtubian-beginnings-establishing-your-channel-earning-earnings/"><u>[New] Your Youtubian Beginnings Establishing Your Channel, Earning Earnings</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-accessing-premium-clip-art-at-no-expense/"><u>[Updated] Accessing Premium Clip-Art at No Expense</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-boosting-traffic-on-youtube-mastering-the-art-of-video-outros-for-2024/"><u>[Updated] Boosting Traffic on YouTube Mastering the Art of Video Outros for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-foremost-recommendations-audio-customization-pros-for-2024/"><u>[Updated] Foremost Recommendations Audio Customization Pros for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-confirm-your-youtube-account-securely/"><u>[Updated] How to Confirm Your YouTube Account Securely?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-melody-migration-made-easy-a-guide-to-the-best-free-youtube-downloading-apps/"><u>[Updated] Melody Migration Made Easy A Guide to the Best Free YouTube Downloading Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-optimize-your-videos-quickly-with-story-remix-in-windows-10-photos/"><u>[Updated] Optimize Your Videos Quickly with Story Remix in Windows 10 Photos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-optimize-viewership-with-proficient-timestamp-placement-on-youtube/"><u>2024 Approved Optimize Viewership with Proficient Timestamp Placement on YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-oppo-a59-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Oppo A59 5G</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Realme GT 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-your-inner-filmmaker-sports-videos-101-for-2024/"><u>Unleash Your Inner Filmmaker Sports Videos 101 for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Solving the Mystery: Why Your Final USB Gadget Isn't Working on Windows"
-date: 2024-12-01T02:06:34.864Z
-updated: 2024-12-02T02:46:19.657Z
+date: 2024-12-03T22:20:54.665Z
+updated: 2024-12-09T20:00:54.599Z
 tags:
   - win11
   - win10
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
  **_USB device not recognized – The last USB device you connected to this computer malfunctioned, and Windows does not recognize it._**
 
  making it impossible for you to do whatever you want to do, you’re not alone. Many Windows 10 users are reporting this as well. But no worries, this problem is not that hard to fix at all. If you’re not interested in the cause of this problem, jump ahead to the [fixes](https://uperfect.sjv.io/g1jgba) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why would I see this problem?
 
@@ -48,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
 
  If your problem stops here, the USB port might be at fault, not your USB flash drive. Try to avoid using the same port next time, in case similar problem happens again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 2: Update all possible device drivers
 
  Another possibility for your not-recognized USB device is outdated, missing and/or faulty drivers. You should verify that all your devices have the right drivers, and update those that don’t. This is especially true for your motherboard driver, your USB port drivers, and your external hard drive driver.
@@ -65,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
  2) Run Driver Easy and click the **Scan Now**   button. Driver Easy will then scan your computer and detect any problem drivers.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a37710b44342.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3) Click the **Update**  button next to the flagged drivers to automatically download and install the correct versions (you can do this with the **FREE** version).
 
@@ -94,21 +98,21 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a377814e701a.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) Click to expand**USB settings** and**USB selective suspend setting** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3778a48905d.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  5) Select**Disabled** from the drop-down option. Then click**Apply** and**OK** to save the change.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a377b3cef938.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **NOTE** : If you’re using a laptop, click**On battery** , then**Disabled** from the drop-down menu.
 
@@ -128,11 +132,11 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a378723b37b6.png)
 
- 3) Click to expand**Universal Serial Bus controllers.**
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ 3) Click to expand**Universal Serial Bus controllers.**
 
 ### 3.1) If you see any device drivers marked by**yellow exclamation marks** or**question marks:**
 
@@ -140,16 +144,12 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a37894943164.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3.1.2) Click**Uninstall** to continue.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a37895fbce37.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3.1.3) When the uninstall finishes, restart your computer. Then repeat the same procedure with the rest of the USB controllers marked by yellow exclamation marks or question marks one by one.
@@ -161,7 +161,7 @@ Or click **Update All**  to automatically download and install the correct versi
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a378e629ee28.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3.2.3) When the disable finishes, restart your PC. Repeat the same procedure as above, and if your USB controller driver is not enabled automatically, right-click it and click**Enable device** .
@@ -187,18 +187,18 @@ Or click **Update All**  to automatically download and install the correct versi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-beginners-roadmap-to-professional-sports-edits/"><u>[New] 2024 Approved A Beginner's Roadmap to Professional Sports Edits</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-discover-movie-substitutes-7-recommended-for-2024/"><u>[New] Discover Movie Substitutes, #7 Recommended for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-frame-flair-choosing-the-best-video-cameras-for-deliberate-moves/"><u>[New] Frame Flair Choosing the Best Video Cameras for Deliberate Moves</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-mastering-iphone-video-playback-cycles/"><u>[New] Mastering iPhone Video Playback Cycles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-science-youtube-networks-expand-your-mind/"><u>[Updated] In 2024, Essential Science YouTube Networks Expand Your Mind</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-precision-visuals-mastering-close-ups-in-msteams/"><u>[Updated] Precision Visuals Mastering Close-Ups in MSTEAMS</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-samsung-galaxy-f34-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Samsung Galaxy F34 5G Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Honor Magic5 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/seamless-creation-with-xp-movie-maker-features/"><u>Seamless Creation with XP Movie Maker Features</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transferring-your-information-comprehensive-steps-from-old-device-to-the-latest-iphone-15/"><u>Transferring Your Information: Comprehensive Steps From Old Device to the Latest iPhone 15</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/upcoming-google-smart-tv-stick-announced-unveiling-features-anticipated-cost-and-launch-timeline/"><u>Upcoming Google Smart TV Stick Announced – Unveiling Features, Anticipated Cost & Launch Timeline</u></a></li>
-<li><a href="https://techidaily.com/vivo-data-recovery-recover-lost-data-from-vivo-y02t-by-fonelab-android-recover-data/"><u>Vivo Data Recovery – recover lost data from Vivo Y02T</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-the-pros-and-cons-of-youtube-premium/"><u>Weighing the Pros and Cons of YouTube Premium</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unleash-creativity-discover-free-tools-for-dynamic-voice-alteration/"><u>[New] 2024 Approved Unleash Creativity Discover Free Tools for Dynamic Voice Alteration</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-borrow-without-cost-images-from-leading-youtubers-archives/"><u>[New] In 2024, Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-your-valorant-videos-with-impressive-thumbnails/"><u>[New] In 2024, Elevating Your Valorant Videos with Impressive Thumbnails</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-precision-in-recording-windowsmaciosandroid-edition/"><u>[New] Precision in Recording Windows/Mac/iOS/Android Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtubes-potential-the-25-step-guide/"><u>[New] Unlocking YouTube's Potential The 25-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-video-editing-mastering-green-screen-integration/"><u>[Updated] In 2024, Cutting Edge Video Editing Mastering Green Screen Integration</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocketing-up-the-rankings-hit-10k-views-to-unlock-partnership/"><u>[Updated] Skyrocketing Up the Rankings - Hit 10K Views to Unlock Partnership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-new-era-of-youtube-branding-best-titles-for-video-content-creators-limit-it-to-156-characters/"><u>[Updated] The New Era of YouTube Branding Best Titles for Video Content Creators (Limit It to 156 Characters)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-mycam-recorder-insights-a-thorough-technical-assessment/"><u>2024 Approved MyCam Recorder Insights A Thorough Technical Assessment</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/behind-the-scenes-generative-ais-functioning-and-corporate-implementations/"><u>Behind the Scenes: Generative AI's Functioning & Corporate Implementations</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-s17-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo S17 to Protect Your Individual Information</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-enhancing-engagement-on-igtv-with-well-oriented-videos/"><u>In 2024, Enhancing Engagement on IGTV with Well-Oriented Videos</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-in-2024-the-ultimate-guide-to-learning-all-the-details-about-voice-cloning/"><u>New In 2024, The Ultimate Guide to Learning All the Details About Voice Cloning</u></a></li>
 </ul></div>
 

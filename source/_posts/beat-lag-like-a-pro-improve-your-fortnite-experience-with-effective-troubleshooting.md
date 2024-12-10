@@ -1,7 +1,7 @@
 ---
 title: "Beat Lag Like a Pro: Improve Your Fortnite Experience with Effective Troubleshooting"
-date: 2024-12-01T07:17:27.274Z
-updated: 2024-12-01T23:09:21.709Z
+date: 2024-12-07T19:40:59.088Z
+updated: 2024-12-09T17:02:51.368Z
 tags:
   - win11
   - win10
@@ -20,7 +20,7 @@ thumbnail: https://thmb.techidaily.com/79c7e594da2bcc4e0b5a712ad425c9a3c9c769d43
  But don’t worry If you happen to be on the same boat. This may not be so hard to fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Try these fixes
@@ -54,7 +54,7 @@ thumbnail: https://thmb.techidaily.com/79c7e594da2bcc4e0b5a712ad425c9a3c9c769d43
  If Genshin Impact crashes on your high-end gaming PC, simply continue to the next fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2: Run Genshin Impact as administrator
@@ -73,15 +73,7 @@ Here’s how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/genshin-admin-3.jpg)
 4. Run Genshin Impact and see if the crash has gone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If this fix failed to solve the crash, simply**undo these changes** and move on to the next solution.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Update your graphics driver
 
@@ -111,25 +103,37 @@ Here’s how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/msconfig-clean-boot-1.jpg)
 2. In the pop-up window, navigate to the **Services**  tab and check the box next to **Hide all Microsoft services** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-hide-all-windows-services.jpg)
 3. **Uncheck**  all the services EXCEPT those belong to your hardware manufacturers, such as **Realtek** , **AMD** , **NVIDIA** ,**Logitech** and **Intel** . Then click **OK**  to apply the changes.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-disable-services-except-gpu-audio.jpg)
 4. On your keyboard, press **Ctrl** , **Shift**  and **Esc**  at the same time to open Task Manager, then navigate to the **Startup**  tab.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/task-manager-startup.jpg)
 5. One at a time, select any programs you suspect might be interfering, and click **Disable** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/task-manager-startup-disable-startup-program.jpg)
 6. Restart your PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once done, restart Genshin and see if it crashes again. If not, repeat these steps but disable half of the services to root out the offenders.
 
 If this trick doesn’t work for you, check out the next one below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 5: Install all Windows updates
 
@@ -145,10 +149,6 @@ Here’s how you can install system updates on Windows 10 or 7:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click**Check for updates** again.
 
 #### Windows 7
@@ -156,6 +156,10 @@ Here’s how you can install system updates on Windows 10 or 7:
 1. On your keyboard, press the**Windows logo key** . Select**Control Panel** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/windows-7-install-updates.jpg)
 2. Select**System and Security** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/windows-7-install-updates-3.jpg)
 3. Click**Windows Update** .  
@@ -182,10 +186,6 @@ And here’s how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/genshin-change-resolute-2.jpg)
 3. Continue your game and see if it stops crashing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If this method doesn’t do the trick for you, simply try the next one below.
 
 ### Fix 7: Lower in-game graphics settings
@@ -197,6 +197,10 @@ And just for your reference, here’s my graphics settings:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/genshin-my-settings-1200x648.jpg)
 
  If the crash persists when you’re playing on the lowest graphics, you can check out the next solution.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 8: Run Genshin Impact on another GPU
 
@@ -215,7 +219,7 @@ And just for your reference, here’s my graphics settings:
 2. Under the**Multiple displays** section, click**Graphics settings** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-2.jpg)
@@ -226,10 +230,6 @@ And just for your reference, here’s my graphics settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-4.jpg)
 5. Select**Power saving** and click**Save** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-5.jpg)
 
@@ -249,7 +249,7 @@ Now you can launch Genshin Impact and see if it stops crashing.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/fortect-start-repair.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Fortect comes with a 60-day Money-Back Guarantee. If you’re not satisfied with Fortect, you can contact <support@fortect.com> for a full refund.
@@ -273,22 +273,15 @@ Now you can launch Genshin Impact and see if it stops crashing.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-digital-identity-building-crafting-perfect-channel-images-for-2024/"><u>[New] Digital Identity Building Crafting Perfect Channel Images for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-exploring-youtubes-earnings-mechanism-through-cpm-analysis-for-2024/"><u>[New] Exploring YouTube's Earnings Mechanism Through CPM Analysis for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-ultimate-checklist-for-webinar-video-documentation/"><u>[New] In 2024, The Ultimate Checklist for Webinar Video Documentation</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-muting-background-noise-in-skype-sessions-for-2024/"><u>[New] Muting Background Noise in Skype Sessions for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-expertly-selected-asmr-tools-for-androidios/"><u>[Updated] Expertly Selected ASMR Tools for Android/iOS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-youtube-to-excitement-easy-guide-to-making-animated-gifs/"><u>[Updated] From YouTube to Excitement Easy Guide to Making Animated GIFS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-becoming-a-youtube-guru-essential-production-know-how/"><u>[Updated] In 2024, Becoming a YouTube Guru Essential Production Know-How</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-easy-obs-youtube-live-streaming-guide/"><u>[Updated] In 2024, Easy OBS YouTube Live Streaming Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-vlogs-with-epic-youtube-reactions-discover-3-pro-tips/"><u>[Updated] In 2024, Elevate Your Vlogs with Epic YouTube Reactions – Discover 3 Pro Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-complimentary-access-to-50-premium-youtube-banners/"><u>[Updated] Your Complimentary Access to 50 Premium YouTube Banners</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210579984-9781631957710-a-dream-worth-fighting-for/"><u>A Dream Worth Fighting For | Free Book</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-realme-v30-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Realme V30 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-redmi-note-12r-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Xiaomi Redmi Note 12R to New Android? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/techniques-for-elongated-iphone-photography/"><u>Techniques for Elongated iPhone Photography</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/top-rangige-gratis-synchrone-software-die-allerbeste-optionen/"><u>Top-Rangige Gratis Synchrone Software: Die Allerbeste Optionen</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-nokia-g310-by-drfone-android/"><u>Universal Unlock Pattern for Nokia G310</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-slow-down-time-using-slow-motion-effects-in-windows-live-movie-maker-2023/"><u>Updated 2024 Approved Slow Down Time Using Slow Motion Effects in Windows Live Movie Maker 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-an-easy-to-follow-guide-to-applying-cc-license-types-for-2024/"><u>[New] An Easy-to-Follow Guide to Applying CC License Types for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-channeling-musical-charm-crafting-custom-playlists-on-youtube-for-2024/"><u>[New] Channeling Musical Charm Crafting Custom Playlists on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-frames-to-fun-youtube-gifs-creation-made-simple/"><u>[Updated] From Frames to Fun YouTube GIFs Creation Made Simple</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[Updated] From Space to Nature YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-essential-playbook-youtubes-seo-keywords-guide/"><u>[Updated] In 2024, The Essential Playbook YouTube's SEO Keywords Guide</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/how-to-transform-your-youtube-media-into-high-quality-flac-files-for-macos-and-windows-users/"><u>How to Transform Your YouTube Media Into High-Quality FLAC Files for macOS & Windows Users</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/immersive-editing-unveiling-the-top-15-cine-luts-for-action-cam/"><u>Immersive Editing Unveiling the Top 15 Cine LUTs for Action Cam</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-nubia-red-magic-8s-proplus-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-fixing-the-persistent-issue-of-windows-error-code-0x8000ffff/"><u>Resolved: Fixing the Persistent Issue of Windows Error Code 0X8000FFFF</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-compatibility-get-your-acers-bluetooth-driver-now-instantly/"><u>Seamless Compatibility: Get Your Acer's Bluetooth Driver Now, Instantly</u></a></li>
 </ul></div>
 

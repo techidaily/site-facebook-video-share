@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Comprehensive Review  Camera Lenses for YouTube for 2024\""
-date: 2024-08-01T10:23:20.889Z
-updated: 2024-08-02T10:23:20.889Z
+date: 2024-12-06T17:56:20.002Z
+updated: 2024-12-09T16:26:04.592Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d01c44a9ae23f7efe9fb5e1960e68d56b4d2035c8
 
 # A Vlogger's Guide To Camera Lenses
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -85,16 +82,14 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -110,25 +105,31 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Aperture
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -144,9 +145,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -161,13 +159,15 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -175,4 +175,18 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-expose-your-guide-to-finding-censored-youtube-clips-for-2024/"><u>[New] Exposé Your Guide to Finding Censored YouTube Clips for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-integrating-royalty-free-songs-into-video-projects/"><u>[New] Integrating Royalty-Free Songs Into Video Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-backwards-play-mastering-youtube-video-reversals/"><u>[Updated] In 2024, Backwards Play Mastering YouTube Video Reversals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-scripting-your-storys-visual-heartbeat-at-home/"><u>[Updated] Scripting Your Story's Visual Heartbeat at Home</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/discover-what-waits-in-vision-pros-travel-mode-a-must-read-guide-for-newcomers/"><u>Discover What Waits in Vision Pro's Travel Mode - A Must-Read Guide for Newcomers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-best-windows-video-calls-the-top-8-list/"><u>In 2024, Best Windows Video Calls The Top 8 List</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-focus-and-frame-the-art-of-intimate-movie-filming/"><u>In 2024, Focus & Frame The Art of Intimate Movie Filming</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/mastering-the-art-of-optimal-audio-format-selection-for-2024/"><u>Mastering the Art of Optimal Audio Format Selection for 2024</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/maximize-email-campaign-success-a-comprehensive-6-stage-assessment-framework-using-the-latest-massmail-techniques-2010/"><u>Maximize Email Campaign Success: A Comprehensive 6-Stage Assessment Framework Using the Latest MassMail Techniques (2010)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-trending-memes-right-now-include-image-gifvideo/"><u>Updated 2024 Approved 10 Trending Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Resolved  No Display for YouTube Shorts for 2024\""
-date: 2024-08-01T10:23:11.866Z
-updated: 2024-08-02T10:23:11.866Z
+date: 2024-12-08T20:49:49.902Z
+updated: 2024-12-09T21:45:33.748Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ Well, a YouTube Shorts is said to be YouTube's short-form answer to TikTok. You 
 Here, creators can record, share, and edit short-form video content that's 60 seconds or less and vertically oriented. And, unlike Instagram stories, YouTube Shorts won't disappear but will remain on your channel. So, that’s the brief intro of YouTube Shorts which we think everyone is aware of after YouTube has announced its YouTube Shorts availability globally.
 
 However, certain factors are still there, raising the issue or concern of **YouTube Shorts not showing**. Thus, if you can't find the YouTube Shorts option or videos, or YouTube Shorts disappeared, find a solution in this post.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Why Do YouTube Shorts Not Showing Up?
 
@@ -61,33 +65,29 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 * The video has to be vertical (portrait-style)
 * The video must be 60 seconds or less
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Fix YouTube Shorts Not Showing Up?
 
 Here’s the section covering fixes on YouTube Shorts not showing. Please give it a read and resolve your issue happily!
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Fix 1: Update the YouTube App
 
 As we've already discussed above, check if your YouTube mobile app has the latest version. The newest version of the YouTube mobile app (Version: 16.17.36) has a dedicated Shorts button at the bottom. And, it replaces the Trending button from the YouTube app.
 
 Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap on the **+** icon and hit the **Create a Short** option.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: YouTube Shorts Is Mobile-only
 
@@ -117,9 +117,6 @@ All in all, you must include #shorts to let the YouTube algorithm figure out the
 
 **Solution 3:** If your YouTube Shorts is not getting views, you need to wait more here because it takes a while for YouTube to index a Shorts video and suggest them to people. So, it's the task of the algorithm that varies from person to person. Some Shorts videos take several days while others take weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### If YouTube Shorts Videos Are Not Showing up Correctly
 
 Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on YouTube and other regular content already there in your account. Or, it's your choice to create a new channel for the YouTube shorts videos. If the YouTube shorts not showing correctly, you can try as follows:
@@ -142,6 +139,10 @@ We recommend Wondershare Filmora because it is a production and post-production 
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Moreover, a YouTube Shorts video can be made through Wondershare Filmora using the below-mentioned guide.
 
 **Note:** We are assuming that you have already recorded a vertical video using your smartphone and that it has been transferred to your PC.
@@ -160,24 +161,19 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
       * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
 
@@ -191,15 +187,16 @@ You can adjust the speed of your video in multiple options: keep it at **Auto** 
 
 ![filmora](https://images.wondershare.com/filmora/guide/5-select-motion-speed.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3\. Analyze, and Auto Reframe the Video**
 
 Once you finish the above adjustments, hit the **Analysis** tab. Filmora will take a few seconds to finish analyzing your video project.
 
 Then the video will be automatically and quickly reframed to your specified speed and aspect ratio. You can modify these aspect ratios and speed options by hitting the **Restart** option as well.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
 **Step 4\. Preview the Reframed Video and Check**
@@ -250,10 +247,11 @@ Hopefully, you have resolved the concern of YouTube Shorts not showing. You can 
 
 However, we've mainly defined the editing part of Wondershare Filmora except creating YouTube Shorts through its Auto Reframe feature. But, as you go through Filmora, you will find that editing is not a cumbersome task to follow over this platform. It's the easiest!
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -261,12 +259,28 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-outliers-best-sound-distortion-apps-for-your-device-for-2024/"><u>[New] Audio Outliers Best Sound Distortion Apps for Your Device for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-convenient-compilation-finding-your-yt-comments-for-2024/"><u>[Updated] A Convenient Compilation Finding Your YT Comments for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-audience-market-leaders-in-youtubes-short-clips-downloads-for-2024/"><u>[Updated] Audience’ Market Leaders in YouTube's Short Clips Downloads for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-behind-the-scenes-of-online-content-monetization/"><u>[Updated] In 2024, Behind the Scenes of Online Content Monetization</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-profit-potential-unveiled-making-money-via-youtube/"><u>[Updated] Profit Potential Unveiled Making Money via YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-trailblazers-in-virtual-reality-experience/"><u>[Updated] Trailblazers in Virtual Reality Experience</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-must-have-add-ons-for-your-gopro-adventure/"><u>2024 Approved Must-Have Add-Ons for Your GoPro Adventure</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unlock-your-content-potential-best-ideas-for-youtube-themes/"><u>2024 Approved Unlock Your Content Potential Best Ideas for YouTube Themes</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-apple-iphone-13-mini-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>How to Bypass Apple iPhone 13 mini Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s10e-mastering-miniaturization-without-compromising-on-performance/"><u>Samsung Galaxy S10e: Mastering Miniaturization Without Compromising on Performance</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-for-solving-windows-error-messages/"><u>Strategies for Solving Windows Error Messages</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secret-of-affordable-video-ad-creation-on-youtube-for-2024/"><u>Unveiling the Secret of Affordable Video Ad Creation on YouTube for 2024</u></a></li>
+</ul></div>
 
