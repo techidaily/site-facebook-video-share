@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos for 2024\""
-date: 2024-12-04T17:24:30.105Z
-updated: 2024-12-09T18:41:33.723Z
+date: 2024-12-09T21:11:17.805Z
+updated: 2024-12-15T21:39:54.895Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,24 +103,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-advanced-strategies-for-youtube-audio-editing-mastery/"><u>[New] 2024 Approved Advanced Strategies for YouTube Audio Editing Mastery</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-hacks-create-youtube-shorts-thumbnails-that-stand-out-quickly/"><u>[New] 2024 Approved Hacks Create YouTube Shorts Thumbnails That Stand Out Quickly</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-essential-guide-to-iphone-voice-recording-techniques/"><u>[New] Essential Guide to iPhone Voice Recording Techniques</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-how-to-host-a-webinar-on-youtube-for-free/"><u>[New] How to Host a Webinar on YouTube for Free</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-top-16-youtube-starting-points-to-enhance-view-count/"><u>[New] Top 16 YouTube Starting Points to Enhance View Count</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ace-your-youtube-livestreams-mastering-broadcast-techniques-using-wirecast/"><u>[Updated] 2024 Approved Ace Your Youtube Livestreams Mastering Broadcast Techniques Using WireCast</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-average-profit-per-million-youtube-viewers/"><u>[Updated] 2024 Approved Average Profit per Million YouTube Viewers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>[Updated] In 2024, A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-excellence-in-work-and-online-content/"><u>[Updated] In 2024, Achieving Excellence in Work and Online Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-partnership-reaching-10k-views-quickly/"><u>[Updated] Mastering YouTube Partnership Reaching 10K Views Quickly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mirthful-melodies-comical-cover-tunes/"><u>[Updated] Mirthful Melodies Comical Cover Tunes</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unleashing-creativity-essential-tips-for-canva-pros/"><u>[Updated] Unleashing Creativity Essential Tips for Canva Pros</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-as-a-learning-tool-insider-advice-for-teachers/"><u>2024 Approved YouTube as a Learning Tool Insider Advice for Teachers</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/1728487845805-3windows-11/"><u>3つのテクニックでWindows 11における「スリープモード」を有効化する方法</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fast-fixes-for-laptops-that-wont-charge-get-power-back-immediately/"><u>Fast Fixes for Laptops That Won't Charge - Get Power Back Immediately</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/final-cut-pros-top-10-must-have-plug-ins-for-professionals-for-2024/"><u>Final Cut Pro’s Top 10 Must-Have Plug-Ins for Professionals for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-apple-iphone-15-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 15 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/resolve-chromebooks-video-issue-for-2024/"><u>Resolve Chromebook's Video Issue for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-youtube-adsense-optimization-for-2024/"><u>The Ultimate Guide to YouTube AdSense Optimization for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-channel-milestone-hurdle-cross-the-10k-view-threshold-fast-for-2024/"><u>[New] Channel Milestone Hurdle – Cross the 10K View Threshold Fast for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[New] In 2024, Crafting GIFs Like a Pro Industry Leaders' Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ace-your-viewing-experience-onboarding-av1-in-youtube/"><u>[Updated] 2024 Approved Ace Your Viewing Experience Onboarding AV1 in YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-amplify-your-imovie-with-youtube-audio-streams/"><u>[Updated] 2024 Approved Amplify Your iMovie with YouTube Audio Streams</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-discover-the-top-6-fb-lite-video-export-apps-of-2023/"><u>[Updated] 2024 Approved Discover the Top 6 FB Lite Video Export Apps of 2023</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-expertly-evaluating-webcam-technology-for-professionals/"><u>[Updated] Expertly Evaluating WebCam Technology for Professionals</u></a></li>
+<li><a href="https://win-able.techidaily.com/6-quick-ways-to-fix-oculus-link-black-screennot-working/"><u>6 Quick Ways to Fix Oculus Link Black Screen/Not Working</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guia-paso-a-paso-para-cambiar-de-codificacion-h264-a-h265-sin-perdida-de-calidad-y-con-menor-tamano/"><u>Guía Paso a Paso Para Cambiar De Codificación H.264 A H.265 Sin Pérdida De Calidad Y Con Menor Tamaño</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/trouble-starting-pathfinder-wrath-of-the-righteous-heres-how-to-fix-it/"><u>Trouble Starting Pathfinder: Wrath of the Righteous? Here's How to Fix It</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/video-perfection-a-comprehensive-strategy-for-seamless-subtitle-and-cc-integration-on-youtube-for-2024/"><u>Video Perfection A Comprehensive Strategy for Seamless Subtitle & CC Integration on YouTube for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/yakuza-3-reimagined-fixed-pc-version-no-longer-prone-to-crashes/"><u>Yakuza 3 Reimagined: Fixed PC Version No Longer Prone to Crashes</u></a></li>
 </ul></div>
 

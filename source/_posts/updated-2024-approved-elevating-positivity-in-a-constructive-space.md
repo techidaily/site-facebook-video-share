@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-12-08T16:50:54.850Z
-updated: 2024-12-09T17:43:43.731Z
+date: 2024-12-12T21:03:41.901Z
+updated: 2024-12-16T01:33:16.721Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,22 +77,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-cash-kings-leading-youtube-creators/"><u>[New] In 2024, Digital Cash Kings Leading YouTube Creators</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-film-creation-guide-and-other-options/"><u>[New] In 2024, YouTube Film Creation Guide & Other Options</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-counterclockwise-watch-how-to-unravel-your-youtube-sequence/"><u>[Updated] 2024 Approved Counterclockwise Watch How to Unravel Your YouTube Sequence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-hosting-youtube-webinars-for-no-charge/"><u>[Updated] Hosting YouTube Webinars for No Charge</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-greatest-of-all-time-reddits-favorite-threads/"><u>[Updated] In 2024, Greatest of All Time Reddit's Favorite Threads</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-is-there-a-science-to-youtubes-quick-subscribe-tactic/"><u>[Updated] Is There a Science to YouTube's Quick Subscribe Tactic?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-laying-foundations-for-fresh-content-first-timers-youtube-video-guide-mac-edition/"><u>[Updated] Laying Foundations for Fresh Content First-Timer's Youtube Video Guide, Mac Edition</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-premier-10-layouts-ae-text-edition-for-2024/"><u>[Updated] Premier 10 Layouts AE Text Edition for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-ultimate-list-of-16-starter-videos-for-more-watchers/"><u>[Updated] Ultimate List of 16 Starter Videos for More Watchers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-understanding-the-economics-youtubes-new-model-for-content-creators-and-viewers/"><u>[Updated] Understanding the Economics YouTube's New Model for Content Creators and Viewers</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-prime-5-tools-shake-off-youtube-video-editing/"><u>2024 Approved Prime 5 Tools Shake Off Youtube Video Editing</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/create-professional-pc-video-clips-for-free-master-these-10-techniques-using-movavi/"><u>Create Professional PC Video Clips for Free? Master These 10 Techniques Using Movavi!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-poco-m6-pro-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your Poco M6 Pro 5G Lock Screen Password</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-plus-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Plus to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/resolving-binkw32dll-file-not-found-issues/"><u>Resolving 'Binkw32.dll' File Not Found Issues</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/techniques-and-strategies-for-swift-removal-of-comments-for-2024/"><u>Techniques and Strategies for Swift Removal of Comments for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-the-perfect-aesthetic-with-controlled-lighting-for-2024/"><u>[New] Crafting the Perfect Aesthetic with Controlled Lighting for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-dollar-first-steps-in-youtubers-revenue/"><u>[New] In 2024, Digital Dollar First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-engagement-strategies-for-video-thumbnail-design/"><u>[New] Maximizing Engagement Strategies for Video Thumbnail Design</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-editing-to-sharing-using-premiere-with-youtube/"><u>[Updated] From Editing to Sharing Using Premiere with YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-best-history-youtube-channels-for-students-and-history-lovers/"><u>[Updated] In 2024, 10 Best History YouTube Channels for Students & History Lovers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dial-up-beats-easy-audio-posting-to-youtubes/"><u>[Updated] In 2024, Dial-Up Beats Easy Audio Posting to YouTubes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-angle-arsenal-samsung-vs-lg-comparison-for-2024/"><u>[Updated] The Ultimate Angle Arsenal Samsung Vs LG Comparison for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-view-count-value-how-much-does-1-million-matter/"><u>2024 Approved View Count Value How Much Does 1 Million Matter?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-boost-your-posts-with-these-8-instagram-scheduling-apps/"><u>In 2024, Boost Your Posts with These 8 Instagram Scheduling Apps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-gym-goer-to-broadcayer-set-up-a-sports-vlog-on-macos/"><u>In 2024, From Gym Goer to Broadcayer Set Up a Sports Vlog on macOS</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-oneplus-12r-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your OnePlus 12R Lock Screen Password</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/restore-files-from-a-quick-format-on-windows-1011-drives-simple-methods/"><u>Restore Files From a Quick Format on Windows 10/11 Drives - Simple Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-unveiling-the-top-8-youtube-boosters-for-2024/"><u>The Ultimate Guide Unveiling the Top 8 Youtube Boosters for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/ultimate-guide-to-transferring-videos-from-evo-to-ipad-2-best-converters-reviewed/"><u>Ultimate Guide to Transferring Videos From EVO to iPad 2 - Best Converters Reviewed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-the-secrets-to-picking-an-outstanding-selfie-pole-a-guide-with-six-tips/"><u>Unlock The Secrets To Picking An Outstanding Selfie Pole - A Guide With Six Tips</u></a></li>
 </ul></div>
 

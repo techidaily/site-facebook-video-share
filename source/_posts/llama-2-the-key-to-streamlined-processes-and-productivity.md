@@ -1,7 +1,7 @@
 ---
 title: "Llama 2: The Key to Streamlined Processes and Productivity"
-date: 2024-12-03T21:29:09.370Z
-updated: 2024-12-09T22:32:32.564Z
+date: 2024-12-13T21:19:26.099Z
+updated: 2024-12-16T00:09:24.994Z
 tags:
   - chatgpt
   - open-ai
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
 
 ## OpenAI Rolls Out Tailored GPT Experience: Learn How to Access and Utilize the Custom Store Now
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [How to Access the GPT Store](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#how-to-access-the-gpt-store)
@@ -22,7 +26,7 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
 * [Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#is-it-worth-upgrading-to-chatgpt-plus-to-use-custom-gpts)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Key Takeaways
@@ -36,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
  ChatGPT's custom GPT Store is open right now, and this is how you can use it to find the pre-programmed AI tools you need.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Access the GPT Store
@@ -50,7 +54,7 @@ How do you know when you've been granted access?
  On the left sidebar of the ChatGPT interface, you should see**Explore GPTs** instead of simply**Explore** . Once you see this, you can start using the GPT Store! Remember, the whole idea of the GPT Store is to help users browse and access a wide range of GPTs built by the community. So, how can you use it to find the right GPT for your tasks?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Find the Best Custom GPTs in the GPT Store
@@ -62,10 +66,6 @@ How do you know when you've been granted access?
 ![Screenshot of the GPT store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store.jpg)
 3. You can also use the search bar to find GPTs by keyword or related terms.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![GPT Store search screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store-search-screen.jpg)
 4. When you find a GPT you want to try, click on it to open the individual GPT page.
 
@@ -73,11 +73,11 @@ How do you know when you've been granted access?
 6. After testing a GPT that solves your problem well, take one important extra step—click on the GPT name in the top left corner of the page, then click**Keep in sidebar** . This saves that GPT to the sidebar along with your chat history for easy future access.  
 ![Adding a GPT to sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/adding-a-gpt-to-sidebar.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  However, you should note that at the time of writing, the GPT Store isn't reviewed, and there is no rating system or otherwise. We're hoping that OpenAI will introduce some type of rating system in the near future, as currently, without any system in place, you're effectively on your own when it comes to figuring out what works well. By extension, it seems likely that some form of rating or review system will be implemented once GPT Store revenue sharing is launched, but OpenAI hasn't given any fixed timeline for this.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?
 
@@ -102,19 +102,21 @@ How do you know when you've been granted access?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-continuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[New] 2024 Approved Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-augmented-reality-stickers-by-google-unveiled-and-compared/"><u>[New] Augmented Reality Stickers by Google Unveiled and Compared</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-leading-software-lineup-8-linux-editing-sleuths/"><u>[New] Leading Software Lineup 8 Linux Editing Sleuths</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-framework-for-captivating-streams-on-youtube/"><u>[New] The Ultimate Framework for Captivating Streams on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>[Updated] 2024 Approved Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-no-cash-to-youtube-wealth-unlocking-earnings-at-the-500-subs-level/"><u>[Updated] In 2024, From No Cash to YouTube Wealth Unlocking Earnings at the 500 Subs Level</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-locating-your-own-playlists-on-youtube/"><u>[Updated] Locating Your Own Playlists on Youtube</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-prime-fb-experience-the-ultimate-ten-players-for-2024/"><u>[Updated] Prime FB Experience The Ultimate Ten Players for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-proven-methods-for-youtube-success-top-8-tools/"><u>[Updated] Proven Methods for YouTube Success - Top 8 Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-your-potential-with-these-free-online-channels-for-fine-artists/"><u>[Updated] Unleash Your Potential with These Free Online Channels for Fine Artists</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-guide-to-gathering-gold-from-guided-goods-gazes-online-for-2024/"><u>A Guide to Gathering Gold From Guided Goods' Gazes Online for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/popular-and-powerful-discovering-the-highly-adaptable-laptop-that-wows-testers-alike-exclusive-review/"><u>Popular and Powerful: Discovering the Highly Adaptable Laptop That Wows Testers Alike - Exclusive Review</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/revving-into-excellence-winning-10-srt-converter-titles-for-2024/"><u>Revving Into Excellence Winning 10 SRT Converter Titles for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-itel-p55-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Itel P55 5G Location | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-presentations-tips-for-uploading-youtube-videos-into-slides/"><u>[New] 2024 Approved Engaging Presentations Tips for Uploading YouTube Videos Into Slides</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-electrical-upgrades-for-2024/"><u>[New] Electrical Upgrades for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-expert-strategies-for-efficient-funimate-use/"><u>[New] In 2024, Expert Strategies for Efficient Funimate Use</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-copying-safely-on-tiktok-a-2023-guide-to-rights-checks/"><u>[Updated] 2024 Approved Copying Safely on TikTok A 2023 Guide to Rights Checks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-charting-your-course-in-the-realm-of-youtube-shorts/"><u>[Updated] Charting Your Course in the Realm of YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engaging-subjects-for-consistent-vlogging-for-2024/"><u>[Updated] Engaging Subjects for Consistent Vlogging for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-million-sub-milestone-the-youtube-guide/"><u>[Updated] In 2024, Achieving Million-Sub Milestone The YouTube Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-your-asmr-empire-key-concepts-and-best-practices/"><u>[Updated] In 2024, Building Your ASMR Empire Key Concepts and Best Practices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-5-snug-scenarios-for-your-snowy-youtube-sessions/"><u>[Updated] Top 5 Snug Scenarios for Your Snowy Youtube Sessions</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-mp3-from-twitter-media-simple-extraction-techniques/"><u>2024 Approved MP3 From Twitter Media Simple Extraction Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-friend-requests-unwritten-rules-and-hidden-settings/"><u>Facebook Friend Requests: Unwritten Rules and Hidden Settings</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-samsung-galaxy-a05-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Samsung Galaxy A05 Devices</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-audioinsight-dacast-and-its-rivals/"><u>In 2024, AudioInsight DaCast & Its Rivals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-step-by-step-equipment-plan-for-youtube-beginnings/"><u>In 2024, Your Step-by-Step Equipment Plan for YouTube Beginnings</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-guide-to-saving-gpt-chats/"><u>The Ultimate Guide to Saving GPT Chats</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-the-impact-steams-revised-stance-on-ai-games/"><u>Understanding the Impact: Steam’s Revised Stance on AI Games</u></a></li>
 </ul></div>
 

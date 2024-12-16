@@ -1,7 +1,7 @@
 ---
 title: Guide to Repairing HyperX Cloud Alpha Microphone Failures
-date: 2024-12-03T20:44:07.886Z
-updated: 2024-12-09T18:12:52.106Z
+date: 2024-12-14T19:08:34.835Z
+updated: 2024-12-15T23:05:20.177Z
 tags:
   - win11
   - win10
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/hx-product-headset-alpha-s-black-1-zm-lg-1200x1200.jpg)
 
  Cloud Alpha S is still one of the most popular products of HyperX. But some users have reported their headset mic is not working. If you’re on the same boat, don’t worry. It’s rather easy to fix, and we’ve put together some working fixes for you. Read on and find out what they are…
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Try these fixes…
 
@@ -49,23 +53,23 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_16-48-56.jpg)
 2. Go to the**Recording** tab and you should see your headset. If you can’t find it, it could be hidden or disabled. You can right-click an empty area then select Show**Disabled Devices** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_16-57-37.jpg)
 3. Right-click your headset, then click**Enable** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-05-17.jpg)
 4. Click**Apply** then**OK** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-06-58.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If your headset is enabled for recording but the microphone is still not working, move on to the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 3: Set your headset as the audio input device
 
@@ -75,11 +79,15 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/search-sound-input.jpg)
 2. **Select your headset as the input device** . It could be shown as HyperX Cloud Alpha S or Headset.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/set-input-device.jpg)
 3. Test your microphone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If your headset is set as the input device but the mic still won’t work, try the next fix.
@@ -92,15 +100,7 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-08-05.jpg)
 2. Click**Change** , then**turn on the microphone access** **for this device** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-10-26.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If this doesn’t fix your mic problem, try the next fix.
 
@@ -119,12 +119,12 @@ If this doesn’t fix your mic problem, try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-35.jpg)
 3. Click the **Update**  button next to the flagged audio driver to automatically download the correct version of the driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the [Pro version](https://tools.techidaily.com/drivereasy/download/) which comes with full support and a 30-day money-back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-43.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -149,24 +149,18 @@ If this doesn’t fix your mic problem, try the next fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-diy-youtube-thumbnails-made-simple/"><u>[New] 2024 Approved DIY YouTube Thumbnails Made Simple</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/utting-edge-techniques-youtube-trailers-through-filmoras-lens/"><u>[New] Cutting Edge Techniques YouTube Trailers Through Filmora's Lens</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-9-powerful-youtube-video-downloader-for-android/"><u>[New] In 2024, 9 Powerful YouTube Video Downloader for Android</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-echoing-ethos-with-closing-credits/"><u>[New] In 2024, Echoing Ethos with Closing Credits</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-15-best-free-youtube-introduction-tools/"><u>[Updated] 2024 Approved 15 Best Free YouTube Introduction Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-deceptions-toll-consequences-of-fake-supporters-in-video-markets-for-2024/"><u>[Updated] Deception's Toll Consequences of Fake Supporters in Video Markets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-digital-dynamos-8-youtube-channels-surging-forward/"><u>[Updated] In 2024, Digital Dynamos 8 YouTube Channels Surging Forward</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-the-red-zones-best-unraveling-zombie-gaming-delights/"><u>[Updated] In 2024, The Red Zone's Best Unraveling Zombie Gaming Delights</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-premier-10-sound-scaling-options-pcs-and-phones/"><u>[Updated] Premier 10 Sound Scaling Options PCs & Phones</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-average-profit-per-million-youtube-viewers/"><u>2024 Approved Average Profit per Million YouTube Viewers</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ekwb-admits-mistakes-publicly-apologizes-for-late-employee-and-supplier-payouts-promises-change/"><u>EKWB Admits Mistakes – Publicly Apologizes for Late Employee & Supplier Payouts, Promises Change</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/macs-secret-shortcuts-to-instantaneous-screen-recording-for-2024/"><u>Mac's Secret Shortcuts to Instantaneous Screen Recording for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/mastery-at-hand-essential-methods-to-decode-qr-codes-on-windows/"><u>Mastery at Hand: Essential Methods to Decode QR Codes on Windows</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/next-gen-sound-on-a-budget-see-why-zdnet-says-new-beats-solo-earbuds-match-up-against-the-iconic-under-100-airpods/"><u>Next-Gen Sound on a Budget? See Why ZDNet Says New Beats Solo Earbuds Match Up Against the Iconic Under-$100 AirPods</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/packaging-as-a-sales-catalyst/"><u>Packaging as a Sales Catalyst</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/step-by-step-tutorial-for-successful-youtube-video-submissions-for-2024/"><u>Step-By-Step Tutorial for Successful YouTube Video Submissions for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/thriving-in-zoom-chats-key-techniques-for-engaging-online-conversations/"><u>Thriving in Zoom Chats Key Techniques for Engaging Online Conversations</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-11-tips-how-to-reinstate-your-missing-system-enhancements/"><u>Windows 11 Tips: How to Reinstate Your Missing System Enhancements</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-creator-studio-vs-youtube-studio-beta-which-one-is-better-for-2024/"><u>YouTube Creator Studio Vs. YouTube Studio (Beta) Which One Is Better for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-accessing-global-hitters-the-1-6-short-video-downloaders-for-2024/"><u>[New] Accessing Global Hitters The #1-#6 Short Video Downloaders for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-live-the-world-in-minutes/"><u>[New] In 2024, Facebook Live The World in Minutes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-superior-audio-options-for-video-makers/"><u>[New] Superior Audio Options for Video Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-time-saving-methodology-for-removing-video-comments/"><u>[New] Time-Saving Methodology for Removing Video Comments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-deleted-history-uncovered-your-guide-to-online-video-retrieval-for-2024/"><u>[Updated] Deleted History Uncovered Your Guide to Online Video Retrieval for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-yt-marketing-essential-tips-for-higher-rankings-for-2024/"><u>[Updated] Elevate Your YT Marketing Essential Tips for Higher Rankings for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ultimate-guide-prime-video-stabilizers/"><u>[Updated] Ultimate Guide Prime Video Stabilizers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/high-res-horizon-a-comprehensive-look-at-the-sony-xperia-xz-for-2024/"><u>High-Res Horizon - A Comprehensive Look at the Sony Xperia XZ for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-lava-blaze-pro-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Lava Blaze Pro 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/marlin-equitys-investment-in-abbyy-official-announcement-and-press-statement/"><u>Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/new-microsoft-excel-feature-added-support-for-checkboxes/"><u>New Microsoft Excel Feature: Added Support for Checkboxes</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-how-to-restore-illumination-on-your-non-responsive-corsair-keyboard/"><u>Solved: How to Restore Illumination on Your Non-Responsive Corsair Keyboard</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/form-your-video-appeal-incorporating-own-thumbnails/"><u>Transform Your Video Appeal Incorporating Own Thumbnails</u></a></li>
 </ul></div>
 
