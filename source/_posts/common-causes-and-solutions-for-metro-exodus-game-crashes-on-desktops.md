@@ -1,7 +1,7 @@
 ---
 title: Common Causes and Solutions for Metro Exodus Game Crashes on Desktops
-date: 2024-12-11T22:04:43.671Z
-updated: 2024-12-15T23:52:12.965Z
+date: 2024-12-20T20:02:31.737Z
+updated: 2024-12-24T17:03:01.270Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/647ef78b4d08f0529cf98c1ddda37990b536ba3da
 
 Hearthstone keeps crashing on startup or during a match? Making like a thousand attempts to relaunch it but it ends up not responding or shutting down? If you’re in the same situation, don’t panic. This post is going to help you with the irritating Hearthstone crashing on PC.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Before getting started
 
  Before you begin troubleshooting, make sure your computer meets the minimum system requirements to launch Hearthstone. If it doesn’t, you have to run Hearthstone on another computer or upgrade your PC.
@@ -33,6 +29,10 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 | **Storage**          | 3 GB available HD space                                      |
 
  After confirming your computer meets the minimum specs, you can move on towards the fixes below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fixes to try
 
@@ -48,10 +48,6 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 6. **[Perform a clean boot](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Reinstall Hearthstone](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1 – Run Hearthstone as administrator
 
  Windows runs Hearthstone in user mode by default, but that might keep it from accessing certain files and cause the crashes. To see if that’s the case, you could run Hearthstone as administrator and relaunch the game.
@@ -59,10 +55,6 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 **1)** Right click the Hearthstone icon on your desktop and select**Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/3-1-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **2)** Select the**Compatibility** tab, check**Run this program as an administrator** , and click**OK** .
 
@@ -73,7 +65,7 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2 – Update your graphics driver
@@ -91,6 +83,10 @@ There are two ways you can update the graphics driver:
 **2)** Run Driver Easy and click the**Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/7-1-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **3)** Click the**Update** button next to the flagged graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the**FREE version** ).
 
@@ -121,10 +117,6 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/2-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Wait for the scan and repair to finish, then relaunch your game to see if the crashing issue is settled. If not, try the next method.
 
 ---
@@ -140,6 +132,10 @@ There are two ways you can update the graphics driver:
  If the anti-virus applications aren’t to blame for your crashing issue, go ahead with Fix 5.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5 – Delete the Hearthstone folder
 
@@ -157,6 +153,10 @@ There are two ways you can update the graphics driver:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 6 – Perform a clean boot
 
  Some services or applications running in the background may also conflict with Hearthstone. A clean boot allows Windows to start up with only critical drivers and programs, so you’ll know if any other software is hindering your game.
@@ -166,16 +166,12 @@ There are two ways you can update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-1-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **2)** Select the**Services** tab. Then, check**Hide all Microsoft services** , and click**Disable all** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **3)** Select the**Startup** tab, and click**Open Task Manager** .
 
@@ -187,10 +183,6 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **5)** Go back to the System Configuration window, and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-3-1.jpg)
@@ -200,7 +192,7 @@ There are two ways you can update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  After your computer restarts, launch Hearthstone to test if the issue has been solved.
@@ -213,6 +205,10 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/9-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2)** Click the**Normal startup** button, and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/9-2-1.jpg)
@@ -224,6 +220,10 @@ There are two ways you can update the graphics driver:
  Your computer will start normally after you finish this step. If the crashing issue persists, we’ve got a last fix for you.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 7 – Reinstall Hearthstone
 
@@ -262,18 +262,22 @@ There are two ways you can update the graphics driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-complete-annihilation-of-youtube-shorts-accessibility/"><u>[New] In 2024, Complete Annihilation of YouTube Shorts Accessibility</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expert-tips-for-enhancing-youtube-videos-through-seo-mastery/"><u>[Updated] In 2024, Expert Tips for Enhancing YouTube Videos Through SEO Mastery</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-obs-walkthrough-turn-your-screen-into-a-youtube-live-showcase/"><u>[Updated] OBS Walkthrough Turn Your Screen Into a Youtube Live Showcase</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-superior-mics-for-video-blogging-professionals/"><u>[Updated] Superior Mics for Video Blogging Professionals</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-video-potential-the-best-vlogging-cameras-ranked/"><u>[Updated] Unlocking Video Potential The Best Vlogging Cameras Ranked</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-worldwide-leaders-in-short-video-download-hubs-free-for-2024/"><u>[Updated] Worldwide Leaders in Short Video Download Hubs (FREE) for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-lava-yuva-3-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Lava Yuva 3 ProMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-long-should-my-question-be-to-stay-within-chatgpts-range/"><u>How Long Should My Question Be to Stay Within ChatGPT's Range?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-efficiently-manage-your-tasks-with-slack-reminders/"><u>How To Efficiently Manage Your Tasks with Slack Reminders</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-restore-windows-spotlight-feature-on-windows-11-devices/"><u>How To Restore Windows Spotlight Feature On Windows 11 Devices</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo S18e | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/shrink-high-wmi-cpu-load-in-win1011/"><u>Shrink High WMI CPU Load in Win10/11</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/template-mastery-a-step-by-step-to-epic-gamers-logos-for-2024/"><u>Template Mastery A Step-by-Step to Epic Gamers' Logos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-direct-your-media-essential-flv-to-youtube-applications-ranked/"><u>[New] 2024 Approved Direct Your Media Essential Flv-to-YouTube Applications Ranked</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-effective-color-difference-filters-in-film-making/"><u>[New] 2024 Approved Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-your-personalized-playbook-for-nba-live-streaming-top-15-essentials/"><u>[New] 2024 Approved Your Personalized Playbook for NBA Live Streaming (Top 15 Essentials)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decrypting-the-mystery-understanding-unlisted-content-on-youtube-for-2024/"><u>[New] Decrypting the Mystery Understanding 'Unlisted' Content on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-popular-youtube-comment-sections/"><u>[New] In 2024, Explore Popular YouTube Comment Sections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-10-best-youtube-music-rippers-for-android-and-ios/"><u>[New] The 10 Best YouTube Music Rippers for Android and iOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transform-viewing-habits-the-top-6-choices-for-cost-free-and-online-short-film-downloads/"><u>[New] Transform Viewing Habits The Top 6 Choices for Cost-Free & Online Short Film Downloads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-diy-movie-making-on-youtube-and-comparable-creative-tools/"><u>[Updated] 2024 Approved DIY Movie Making on YouTube & Comparable Creative Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-to-use-platforms-for-free-youtube-thumbnail-extracting/"><u>[Updated] 2024 Approved Easy-to-Use Platforms for Free YouTube Thumbnail Extracting</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-cutting-edge-capture-top-10-windows-11-cam-recorders-for-2024/"><u>[Updated] Cutting-Edge Capture Top 10 Windows 11 Cam Recorders for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-passive-watchers-to-profit-youtube-monetization/"><u>[Updated] From Passive Watchers To Profit YouTube Monetization</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-turn-your-images-darker/"><u>[Updated] Step-by-Step Turn Your Images Darker</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-art-of-audio-integration-in-online-journals/"><u>[Updated] The Art of Audio Integration in Online Journals</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-superior-software-packages-to-improve-webcam-videos/"><u>2024 Approved Superior Software Packages to Improve Webcam Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-can-you-extend-your-workspace-connect-3-monitors-now/"><u>How Can You Extend Your Workspace? Connect 3 Monitors Now!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-apple-vision-pro-backstory-inside-reddits-top-7-reasons-for-its-popularity-zdnet/"><u>The Apple Vision Pro Backstory: Inside Reddit's Top 7 Reasons for Its Popularity | ZDNet</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tvdvd-digiarty/"><u>정품 TV/DVD 및 비디오 변환 솔루션 - Digiarty 소프트웨어 제공 회사</u></a></li>
 </ul></div>
 

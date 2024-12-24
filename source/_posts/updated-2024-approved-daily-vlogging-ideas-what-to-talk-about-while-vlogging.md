@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-12-03T17:04:03.692Z
-updated: 2024-12-09T19:20:53.759Z
+date: 2024-12-20T21:47:02.693Z
+updated: 2024-12-24T21:51:58.367Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -52,7 +56,7 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -72,7 +76,7 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What did you learn today?
@@ -91,16 +95,12 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
@@ -108,7 +108,7 @@ You could also just flick the camera on and tell the full story of your day like
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -132,22 +132,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-ensuring-legitimacy-of-your-youtube-sign-in/"><u>[New] 2024 Approved Ensuring Legitimacy of Your YouTube Sign-In</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-an-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>[New] In 2024, An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-unveiling-the-top-10-youtube-makeup-maestros-to-follow/"><u>[New] In 2024, Unveiling the Top 10 YouTube Makeup Maestros to Follow</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-ultimate-guide-to-bandicam-the-2023-comprehensive-overview/"><u>[New] Ultimate Guide to Bandicam The 2023 Comprehensive Overview</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-obs-youtube-live-streaming-guide/"><u>[Updated] 2024 Approved Easy OBS YouTube Live Streaming Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled-for-2024/"><u>[Updated] Climbing the YouTube Search Rankings Key SEO Strategies Unveiled for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-discover-the-best-12-free-and-paid-video-game-openings-for-yt-for-2024/"><u>[Updated] Discover the Best 12 Free and Paid Video Game Openings for YT for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-discover-top-affordable-video-editors-of-2023-today/"><u>[Updated] Discover Top Affordable Video Editors of 2023 Today!</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-quickest-photo-scanner-in-windows-land/"><u>2024 Approved Quickest Photo Scanner in Windows Land</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-yt-outro-guidelines-keeping-viewers-hooked/"><u>2024 Approved YT Outro Guidelines Keeping Viewers Hooked</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-poco-x6-pro-unlock-without-password-by-drfone-android/"><u>5 Solutions For Poco X6 Pro Unlock Without Password</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fallout-76-performance-boosting-techniques-say-goodbye-to-low-fps/"><u>Fallout 76 Performance Boosting Techniques - Say Goodbye to Low FPS</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-m-audio-fast-track-ultra-driver-installer-at-no-cost/"><u>Get Your M-Audio Fast Track Ultra Driver Installer at No Cost</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/professional-tips-integrating-closed-captions-with-ease-on-youtube-for-2024/"><u>Professional Tips Integrating Closed Captions with Ease on YouTube for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/securing-stipends-by-scrutinizing-subscriptions-on-streaming-services-for-2024/"><u>Securing Stipends by Scrutinizing Subscriptions on Streaming Services for 2024</u></a></li>
-<li><a href="https://discover-able.techidaily.com/ultimate-guide-breaking-kindles-digital-lock-how-to-liberate-ebooks-and-enjoy-them-everywhere/"><u>Ultimate Guide: Breaking Kindle's Digital Lock - How to Liberate Ebooks & Enjoy Them Everywhere</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-tecno-camon-20-pro-5g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Tecno Camon 20 Pro 5G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-add-more-minutes-to-youtube-content-for-2024/"><u>[New] Add More Minutes to YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-15-online-audio-haven-sites-for-video-content-makers/"><u>[New] In 2024, 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-techniques-crafting-youtube-shorts-images-on-the-fly-for-2024/"><u>[Updated] Effortless Techniques Crafting YouTube Shorts Images on the Fly for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-freenfb-harmonies-instantly/"><u>[Updated] FreenFB Harmonies, Instantly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionize-viewing-experience-the-best-yt-reaction-methods/"><u>[Updated] Revolutionize Viewing Experience The Best YT Reaction Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-sound-savings-guide-youtubers-selection-of-affordable-mics/"><u>[Updated] Sound Savings Guide Youtuber's Selection of Affordable Mics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-art-of-visual-anonymity-in-videos-for-2024/"><u>[Updated] The Art of Visual Anonymity in Videos for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-weaving-wonders-a-tiktok-fabric-fundamentals-series/"><u>[Updated] Weaving Wonders A TikTok Fabric Fundamentals Series</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ais-leap-critical-upgrades-expected-in-gpt-5/"><u>AI's Leap: Critical Upgrades Expected in GPT-5</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-easy-steps-to-change-fins-sounds-in-windows/"><u>In 2024, Easy Steps to Change Fins' Sounds in Windows</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-sony-xperia-5-v-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Sony Xperia 5 V Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-infinix-hot-40-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Infinix Hot 40 Phone Now with These Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-creative-commons-a-guide-for-videographers/"><u>In 2024, YouTube’s Creative Commons A Guide for Videographers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-gpus-a-comprehensive-list/"><u>Top Rated GPUs : A Comprehensive List</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transforming-trivial-talent-into-thriving-tv-subscribers-triumphs/"><u>Transforming Trivial Talent Into Thriving TV (Subscribers) Triumphs</u></a></li>
 </ul></div>
 

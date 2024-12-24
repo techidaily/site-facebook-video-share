@@ -1,7 +1,7 @@
 ---
 title: "Llama 2: The Key to Streamlined Processes and Productivity"
-date: 2024-12-13T21:19:26.099Z
-updated: 2024-12-16T00:09:24.994Z
+date: 2024-12-22T22:34:41.814Z
+updated: 2024-12-24T22:01:21.935Z
 tags:
   - chatgpt
   - open-ai
@@ -16,7 +16,7 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
 ## OpenAI Rolls Out Tailored GPT Experience: Learn How to Access and Utilize the Custom Store Now
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Quick Links
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
 * [How to Access the GPT Store](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#how-to-access-the-gpt-store)
 * [How to Find the Best Custom GPTs in the GPT Store](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#how-to-find-the-best-custom-gpts-in-the-gpt-store)
 * [Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?](https://www.makeuseof.com/how-to-use-chatgpt-custom-gpt-store/#is-it-worth-upgrading-to-chatgpt-plus-to-use-custom-gpts)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -40,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
  ChatGPT's custom GPT Store is open right now, and this is how you can use it to find the pre-programmed AI tools you need.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Access the GPT Store
@@ -53,10 +49,6 @@ How do you know when you've been granted access?
 
  On the left sidebar of the ChatGPT interface, you should see**Explore GPTs** instead of simply**Explore** . Once you see this, you can start using the GPT Store! Remember, the whole idea of the GPT Store is to help users browse and access a wide range of GPTs built by the community. So, how can you use it to find the right GPT for your tasks?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Find the Best Custom GPTs in the GPT Store
 
  Using the GPT Store is quite straightforward. Here's how you can browse and search for custom GPTs:
@@ -66,6 +58,10 @@ How do you know when you've been granted access?
 ![Screenshot of the GPT store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store.jpg)
 3. You can also use the search bar to find GPTs by keyword or related terms.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![GPT Store search screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store-search-screen.jpg)
 4. When you find a GPT you want to try, click on it to open the individual GPT page.
 
@@ -73,10 +69,14 @@ How do you know when you've been granted access?
 6. After testing a GPT that solves your problem well, take one important extra step—click on the GPT name in the top left corner of the page, then click**Keep in sidebar** . This saves that GPT to the sidebar along with your chat history for easy future access.  
 ![Adding a GPT to sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/adding-a-gpt-to-sidebar.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  However, you should note that at the time of writing, the GPT Store isn't reviewed, and there is no rating system or otherwise. We're hoping that OpenAI will introduce some type of rating system in the near future, as currently, without any system in place, you're effectively on your own when it comes to figuring out what works well. By extension, it seems likely that some form of rating or review system will be implemented once GPT Store revenue sharing is launched, but OpenAI hasn't given any fixed timeline for this.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?
@@ -102,21 +102,19 @@ How do you know when you've been granted access?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-presentations-tips-for-uploading-youtube-videos-into-slides/"><u>[New] 2024 Approved Engaging Presentations Tips for Uploading YouTube Videos Into Slides</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-electrical-upgrades-for-2024/"><u>[New] Electrical Upgrades for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-expert-strategies-for-efficient-funimate-use/"><u>[New] In 2024, Expert Strategies for Efficient Funimate Use</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-copying-safely-on-tiktok-a-2023-guide-to-rights-checks/"><u>[Updated] 2024 Approved Copying Safely on TikTok A 2023 Guide to Rights Checks</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-charting-your-course-in-the-realm-of-youtube-shorts/"><u>[Updated] Charting Your Course in the Realm of YouTube Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-engaging-subjects-for-consistent-vlogging-for-2024/"><u>[Updated] Engaging Subjects for Consistent Vlogging for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-million-sub-milestone-the-youtube-guide/"><u>[Updated] In 2024, Achieving Million-Sub Milestone The YouTube Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-your-asmr-empire-key-concepts-and-best-practices/"><u>[Updated] In 2024, Building Your ASMR Empire Key Concepts and Best Practices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-5-snug-scenarios-for-your-snowy-youtube-sessions/"><u>[Updated] Top 5 Snug Scenarios for Your Snowy Youtube Sessions</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-mp3-from-twitter-media-simple-extraction-techniques/"><u>2024 Approved MP3 From Twitter Media Simple Extraction Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-friend-requests-unwritten-rules-and-hidden-settings/"><u>Facebook Friend Requests: Unwritten Rules and Hidden Settings</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-samsung-galaxy-a05-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Samsung Galaxy A05 Devices</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-audioinsight-dacast-and-its-rivals/"><u>In 2024, AudioInsight DaCast & Its Rivals</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-step-by-step-equipment-plan-for-youtube-beginnings/"><u>In 2024, Your Step-by-Step Equipment Plan for YouTube Beginnings</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-ultimate-guide-to-saving-gpt-chats/"><u>The Ultimate Guide to Saving GPT Chats</u></a></li>
-<li><a href="https://games-able.techidaily.com/understanding-the-impact-steams-revised-stance-on-ai-games/"><u>Understanding the Impact: Steam’s Revised Stance on AI Games</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>[New] 2024 Approved Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-master-the-art-of-live-sound-capture-on-the-internet/"><u>[New] 2024 Approved Master the Art of Live Sound Capture on the Internet</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-boosting-visuals-with-photoshops-motion-blur-effect-tutorial/"><u>[New] Boosting Visuals with Photoshop's Motion Blur Effect Tutorial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-captivating-features-the-allure-of-filmora-editing/"><u>[New] In 2024, Captivating Features The Allure of Filmora Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-content-creation-battleground-choosing-between-vimeo-youtube-dailymotion/"><u>[Updated] 2024 Approved Content Creation Battleground Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[Updated] Directing Content Destination From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-capitalize-on-your-youtube-shorts-for-cash-flow/"><u>[Updated] How to Capitalize on Your YouTube Shorts for Cash Flow</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-freeweb-cams-features-uncovered-in-detail/"><u>2024 Approved FreeWeb Cam's Features Uncovered in Detail</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-devices-to-desktops-proven-file-transfer-ways/"><u>2024 Approved From Devices to Desktops Proven File Transfer Ways</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/free-online-conversion-change-audio-units-from-au-to-high-quality-mp3-with-movavi/"><u>Free Online Conversion: Change Audio Units From AU to High-Quality MP3 with Movavi</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfecting-online-visuals-beauty-focused-color-correction-for-2024/"><u>Perfecting Online Visuals Beauty-Focused Color Correction for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/remedying-unresponsive-netflix-application-on-pc/"><u>Remedying Unresponsive Netflix Application on PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stand-out-in-a-sea-of-content-our-offer-includes-50-free-banners-for-2024/"><u>Stand Out in a Sea of Content - Our Offer Includes 50 Free Banners for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-awareness-tactics-for-social-media-visibility/"><u>YouTube Awareness Tactics for Social Media Visibility</u></a></li>
 </ul></div>
 

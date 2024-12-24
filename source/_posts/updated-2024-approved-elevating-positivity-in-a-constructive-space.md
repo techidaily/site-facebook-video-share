@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-12-12T21:03:41.901Z
-updated: 2024-12-16T01:33:16.721Z
+date: 2024-12-21T21:42:09.016Z
+updated: 2024-12-24T19:29:23.536Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,20 +77,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-crafting-the-perfect-aesthetic-with-controlled-lighting-for-2024/"><u>[New] Crafting the Perfect Aesthetic with Controlled Lighting for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-dollar-first-steps-in-youtubers-revenue/"><u>[New] In 2024, Digital Dollar First Steps in YouTubers' Revenue</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-engagement-strategies-for-video-thumbnail-design/"><u>[New] Maximizing Engagement Strategies for Video Thumbnail Design</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-editing-to-sharing-using-premiere-with-youtube/"><u>[Updated] From Editing to Sharing Using Premiere with YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-best-history-youtube-channels-for-students-and-history-lovers/"><u>[Updated] In 2024, 10 Best History YouTube Channels for Students & History Lovers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dial-up-beats-easy-audio-posting-to-youtubes/"><u>[Updated] In 2024, Dial-Up Beats Easy Audio Posting to YouTubes</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-angle-arsenal-samsung-vs-lg-comparison-for-2024/"><u>[Updated] The Ultimate Angle Arsenal Samsung Vs LG Comparison for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-view-count-value-how-much-does-1-million-matter/"><u>2024 Approved View Count Value How Much Does 1 Million Matter?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-boost-your-posts-with-these-8-instagram-scheduling-apps/"><u>In 2024, Boost Your Posts with These 8 Instagram Scheduling Apps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-from-gym-goer-to-broadcayer-set-up-a-sports-vlog-on-macos/"><u>In 2024, From Gym Goer to Broadcayer Set Up a Sports Vlog on macOS</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-oneplus-12r-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your OnePlus 12R Lock Screen Password</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/restore-files-from-a-quick-format-on-windows-1011-drives-simple-methods/"><u>Restore Files From a Quick Format on Windows 10/11 Drives - Simple Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-unveiling-the-top-8-youtube-boosters-for-2024/"><u>The Ultimate Guide Unveiling the Top 8 Youtube Boosters for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/ultimate-guide-to-transferring-videos-from-evo-to-ipad-2-best-converters-reviewed/"><u>Ultimate Guide to Transferring Videos From EVO to iPad 2 - Best Converters Reviewed</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unlock-the-secrets-to-picking-an-outstanding-selfie-pole-a-guide-with-six-tips/"><u>Unlock The Secrets To Picking An Outstanding Selfie Pole - A Guide With Six Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhanced-audio-experience-top-5-game-headsets-for-streaming/"><u>[New] In 2024, Enhanced Audio Experience Top 5 Game Headsets for Streaming</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagrams-video-opposites-a-tutorial/"><u>[New] In 2024, Mastering Instagram's Video Opposites A Tutorial</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-10-free-youtube-playlist-downloaders-onlinepcandroidios2/"><u>[Updated] 2024 Approved 10 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]2</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dive-into-ios-screenshots-a-comprehensive-youtube-guide/"><u>[Updated] 2024 Approved Dive Into iOS Screenshots A Comprehensive YouTube Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-viewing-experience-enable-av1-on-youtube/"><u>[Updated] 2024 Approved Elevate Viewing Experience – Enable AV1 on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-access-unlimited-stock-photos-via-four-noteworthy-youtubes/"><u>[Updated] In 2024, Access Unlimited Stock Photos via Four Noteworthy YouTubes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker/"><u>[Updated] In 2024, Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-refine-your-youtube-identity-with-efficient-descriptions/"><u>[Updated] Refine Your YouTube Identity with Efficient Descriptions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-best-of-the-best-12-youtube-video-game-openers-freepaid/"><u>[Updated] The Best of the Best 12 YouTube Video Game Openers (FREE/PAID)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-world-of-sound-on-ios-apple-point-and-click-guide/"><u>[Updated] Unlocking the World of Sound on iOS Apple' Point-and-Click Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-best-purchasers-of-monetized-youtube-channels/"><u>[Updated] Unveiling the Best Purchasers of Monetized YouTube Channels</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/free-access-to-gpt-4-unlocked-discover-6-compelling-reasons-for-remaining-a-chatgpt-plus-user/"><u>Free Access to GPT-4 Unlocked: Discover 6 Compelling Reasons for Remaining a ChatGPT Plus User</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-google-pixel-fold-by-fonelab-android-recover-music/"><u>How to recover old music from your Google Pixel Fold</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-seamlessly-upgrade-scansnap-ix500-driver-software-in-windows/"><u>How to Seamlessly Upgrade ScanSnap iX500 Driver Software in Windows</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/in-depth-analysis-of-the-razer-blade-14-miniature-elegance-with-maximum-capability-and-costs/"><u>In-Depth Analysis of the Razer Blade 14: Miniature Elegance with Maximum Capability and Costs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/m4v3g2-online-movavi/"><u>M4V/3G2 비디오를 무료로 Online 변환 - Movavi</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-watermark-free-video-joining-7-top-rated-solutions/"><u>New 2024 Approved Watermark-Free Video Joining 7 Top-Rated Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/profitable-content-creation-on-youtube-through-smart-adsense-use-for-2024/"><u>Profitable Content Creation on YouTube Through Smart AdSense Use for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/restore-the-xbox-one-controller-connection-to-pc-games/"><u>Restore the Xbox One Controller Connection to PC Games</u></a></li>
 </ul></div>
 

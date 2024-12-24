@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevating Positivity in a Constructive Space for 2024"
-date: 2024-08-01T10:09:39.494Z
-updated: 2024-08-02T10:09:39.494Z
+date: 2024-12-18T18:33:07.743Z
+updated: 2024-12-24T17:12:33.001Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/K2daziL6GvG3Cuz3jYEV-Zsh8f8=/540x405/fi
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,17 +27,9 @@ thumbnail: https://www.lifewire.com/thmb/K2daziL6GvG3Cuz3jYEV-Zsh8f8=/540x405/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -67,10 +56,11 @@ thumbnail: https://www.lifewire.com/thmb/K2daziL6GvG3Cuz3jYEV-Zsh8f8=/540x405/fi
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -78,12 +68,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-best-practices-in-choosing-the-perfect-format-for-youtube-videos-for-2024/"><u>[New] Best Practices in Choosing the Perfect Format for YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-tips-for-crafting-top-notch-video-hashtags-for-2024/"><u>[New] Expert Tips for Crafting Top-Notch Video Hashtags for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-extract-subtitles-for-free-top-10-tools-reviewed-for-2024/"><u>[New] Extract Subtitles for Free Top 10 Tools Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-marketing-game-free-50-youtube-adornments-here/"><u>[New] In 2024, Elevate Your Marketing Game - Free 50 YouTube Adornments Here</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-secure-and-speedy-transfer-of-big-video-files-between-ios-and-os-x/"><u>[New] Secure and Speedy Transfer of Big Video Files Between iOS & OS X</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ethical-approaches-to-extract-and-convert-youtube-videos/"><u>[Updated] In 2024, Ethical Approaches to Extract and Convert YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-making-your-slides-come-alive-with-youtube-in-ppt/"><u>[Updated] Making Your Slides Come Alive with YouTube in PPT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-orchestrating-a-journey-through-hidden-youtube-archives/"><u>[Updated] Orchestrating a Journey Through Hidden YouTube Archives</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-synchronizing-mac-writers-flows-efficiently-with-mixer/"><u>[Updated] Synchronizing Mac' Writers' Flows Efficiently With Mixer</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-top-creative-apps-roundup-choose-from-the-best-8-photo-edits-for-smartphones-for-2024/"><u>[Updated] Top Creative Apps Roundup Choose From the Best 8 Photo Edits for Smartphones for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-video-organization-the-art-of-chapter-addition/"><u>[Updated] YouTube Video Organization The Art of Chapter Addition</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-infinix-note-30-vip-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Infinix Note 30 VIP Device</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/innovate-humorous-gifry-on-giphy-network-for-2024/"><u>Innovate Humorous Gifry on Giphy Network for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-someone-secretly-following-me-how-to-determine-if-an-airtag-has-been-attached-digital-security-guide/"><u>Is Someone Secretly Following Me? How to Determine if an AirTag Has Been Attached – Digital Security Guide</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-chromebook-friendly-audacity-getting-it-up-and-running-and-out-quickly/"><u>New In 2024, Chromebook-Friendly Audacity Getting It Up and Running (And Out) Quickly</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/simple-solution-resolving-steams-disk-write-failed-issue-without-a-hitch/"><u>Simple Solution: Resolving Steam's 'Disk Write Failed' Issue Without a Hitch</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-small-business-video-marketing-playbook-for-2024/"><u>The Small Business Video Marketing Playbook for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/war-thunder-frame-rate-fixes-proven-tips-to-achieve-smooth-gameplay-in-the-new-update-202n/"><u>War Thunder Frame Rate Fixes - Proven Tips to Achieve Smooth Gameplay in the New Update (202N)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-microsofts-upscaler-elevates-gaming-experience-in-the-new-copilotplus-era/"><u>Why Microsoft's Upscaler Elevates Gaming Experience in the New Copilot+ Era</u></a></li>
+</ul></div>
 

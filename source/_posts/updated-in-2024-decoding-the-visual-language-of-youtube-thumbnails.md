@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Decoding the Visual Language of YouTube Thumbnails"
-date: 2024-12-11T21:06:58.536Z
-updated: 2024-12-15T16:37:04.987Z
+date: 2024-12-23T19:09:15.498Z
+updated: 2024-12-24T20:15:08.861Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ Here are some examples of popular thumbnail styles.
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
@@ -83,7 +83,7 @@ The three main elements of the Emotional Laser thumbnail are a background (usual
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
@@ -108,6 +108,10 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -125,10 +129,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -142,10 +142,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -186,7 +182,7 @@ Type your video’s title or topic into the search engine on YouTube and look at
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: Animated YouTube Thumbnails
@@ -196,6 +192,10 @@ Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will ch
 As of now, this only works in the Google Chrome desktop browser. Videos have to be at least 30 seconds long to get moving thumbnails.
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
@@ -220,22 +220,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-practices-for-youtube-outro-design/"><u>[New] 2024 Approved Best Practices for YouTube Outro Design</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-decision-making-in-the-workplace-a-neurological-approach-to-efficacy-and-ethics-for-2024/"><u>[New] Decision-Making in the Workplace A Neurological Approach to Efficacy and Ethics for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-profit-sharing-in-youtube-short-creation/"><u>[New] In 2024, Exploring Profit Sharing in YouTube Short Creation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-list-best-asmr-on-smartphones/"><u>[New] Ultimate List Best ASMR on Smartphones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-building-blocks-for-successful-channel-branding-and-growth-for-2024/"><u>[Updated] Building Blocks for Successful Channel Branding and Growth for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-content-top-8-no-cost-video-editing-software/"><u>[Updated] In 2024, Elevate Your Content Top 8 No-Cost Video Editing Software</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-ultimate-gif-hack-top-twitter-tool-2024/"><u>[Updated] Ultimate GIF Hack Top Twitter Tool 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-visionary-composer-sensory-media-masterpiece-for-2024/"><u>[Updated] Visionary Composer Sensory Media Masterpiece for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-strategies-for-multi-group-facebook-group-posting/"><u>Efficient Strategies for Multi-Group Facebook Group Posting</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/fun-and-educational-movies-for-kids-on-netflix/"><u>Fun & Educational Movies for Kids on Netflix</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-spark-10-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Spark 10 Pro to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-visual-vocabulary-complimentary-youtube-art-tools/"><u>In 2024, Visual Vocabulary Complimentary YouTube Art Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/nightshade-strategies-protecting-your-art-from-generative-replicas/"><u>Nightshade Strategies: Protecting Your Art From Generative Replicas</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/optimizing-videos-expert-insights-on-effective-tagging-for-2024/"><u>Optimizing Videos Expert Insights on Effective Tagging for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-problems-with-rokus-caption-settings-simple-ways-to-enable-cc/"><u>Resolving Problems with Roku's Caption Settings – Simple Ways to Enable CC</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-to-updating-your-windows-11-graphics-drivers/"><u>Step-by-Step Guide to Updating Your Windows 11 Graphics Drivers</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-the-premier-laptop-steals-of-prime-day-in-oct-24-exclusive-insights-from-zdnet/"><u>Unveiling the Premier Laptop Steals of Prime Day in Oct '24 - Exclusive Insights From ZDNet</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-your-videos-value-anywhere-on-multiple-devices/"><u>[New] 2024 Approved Amplify Your Video's Value Anywhere on Multiple Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-demystifying-video-seo-on-youtube-as-a-novice/"><u>[New] 2024 Approved Demystifying Video SEO on YouTube as a Novice</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-youtube-to-mp3-conversion-apps-reviewed-for-2024/"><u>[New] Essential YouTube to Mp3 Conversion Apps Reviewed for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-add-border-to-instagram-photos-for-2024/"><u>[New] How to Add Border to Instagram Photos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-youtube-community-terms-and-policies/"><u>[New] In 2024, Decoding YouTube Community Terms and Policies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtube-partnership-reaching-10k-views-quickly/"><u>[New] Mastering YouTube Partnership Reaching 10K Views Quickly</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-resource-list-of-3d-fonts-online/"><u>[New] Ultimate Resource List of 3D Fonts Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-snippets-overview-explained/"><u>[New] YouTube Snippets Overview Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-expert-advice-on-lighting-your-youtube-content-perfectly/"><u>[Updated] 2024 Approved Expert Advice on Lighting Your YouTube Content Perfectly</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-smilesketcher-generate-memes-with-a-click/"><u>[Updated] In 2024, SmileSketcher Generate Memes with a Click</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-swift-sonic-speed-changer-tools-index/"><u>[Updated] Swift Sonic Speed Changer Tools Index</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-solutions-for-function-key-failures-on-computers/"><u>Effective Solutions for Function Key Failures on Computers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/from-mundane-to-memorable-transform-your-social-media-identity-with-these-tips/"><u>From Mundane to Memorable Transform Your Social Media Identity with These Tips</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-unified-iptv-streaming-services/"><u>In 2024, Unified IPTV Streaming Services</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-collaboration-for-effective-content-delivery/"><u>In 2024, YouTube Collaboration for Effective Content Delivery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-content-protection-can-you-record-playbacks/"><u>In 2024, YouTube Content Protection Can You Record Playbacks?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210508945-9781088017265-prayer-in-the-presence-of-god/"><u>PRAYER in the PRESENCE of GOD | Free Book</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-sony-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Sony</u></a></li>
 </ul></div>
 

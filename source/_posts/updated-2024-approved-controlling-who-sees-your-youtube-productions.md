@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Controlling Who Sees Your Youtube Productions\""
-date: 2024-12-08T20:01:30.390Z
-updated: 2024-12-09T18:25:59.638Z
+date: 2024-12-22T18:47:10.901Z
+updated: 2024-12-24T17:42:10.609Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Public VS Unlisted VS Private
@@ -65,11 +65,11 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -82,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -93,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
@@ -109,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -127,17 +127,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-build-and-launch-youtube-video-ads-on-budget/"><u>[New] 2024 Approved Build & Launch YouTube Video Ads on Budget</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-a-beginners-guide-to-youtube-shorts-nuances-for-2024/"><u>[New] A Beginner's Guide to YouTube Shorts Nuances for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-quintessential-storytelling-transforming-film-art/"><u>[New] Quintessential Storytelling Transforming Film Art</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-essentials-of-youtubes-cc-license-for-filmakers/"><u>[New] The Essentials of YouTube's CC License for Filmakers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlock-video-potential-leading-tools-turning-youtubes-to-avis/"><u>[New] Unlock Video Potential Leading Tools Turning YouTubes to Avis</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-exploring-the-new-frontier-of-android-gaming-with-kinemaster-for-2024/"><u>[Updated] Exploring the New Frontier of Android Gaming with KineMaster for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-guide-to-producing-impactful-lifestyle-motivational-content/"><u>[Updated] Guide to Producing Impactful Lifestyle Motivational Content</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-roadmap-to-free-cut-out-imagery/"><u>[Updated] The Roadmap to Free Cut-Out Imagery</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/parents-resource-mastering-chatgpt-and-ai-generation/"><u>Parents' Resource: Mastering ChatGPT and AI Generation</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solution-steps-for-when-granblue-fantasy-wont-start-due-to-link-errors/"><u>Solution Steps for When Granblue Fantasy Won't Start Due to Link Errors</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-2023-costume-and-etiquette-guide-for-spooktacular-halloween-bashes/"><u>Top 2023 Costume & Etiquette Guide for Spooktacular Halloween Bashes</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/windows-security-issues-resolved-on-windows-11-how-to-fix-unresponsive-panel/"><u>Windows Security Issues Resolved on Windows 11 - How to Fix Unresponsive Panel</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-getting-started-with-your-youtube-channel-essentials/"><u>[New] 2024 Approved Getting Started with Your YouTube Channel – Essentials</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-syncing-twitter-to-snapchat-video-uploading-techniques/"><u>[New] 2024 Approved Syncing Twitter to Snapchat Video Uploading Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-diving-deep-youtubes-best-immersive-experiences-for-2024/"><u>[New] Diving Deep YouTube's Best Immersive Experiences for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ultimate-compact-player-guide-for-on-the-go-movie-lovers/"><u>[New] In 2024, Ultimate Compact Player Guide for On-The-Go Movie Lovers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-masterpiece-maker-top-free-editors-for-android-devices/"><u>[New] Masterpiece Maker Top Free Editors for Android Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audiovisual-innovators-best-portable-devices-for-editors/"><u>[Updated] 2024 Approved Audiovisual Innovators Best Portable Devices for Editors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-step-by-step-approach-to-ad-revenue-in-youtube-videos-for-2024/"><u>[Updated] A Step-by-Step Approach to Ad Revenue in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-get-inspired-from-top-10-recruitment-videos/"><u>[Updated] Get Inspired From Top 10 Recruitment Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-breaking-down-8-common-blunders-in-early-stage-youtube-success/"><u>[Updated] In 2024, Breaking Down 8 Common Blunders in Early-Stage YouTube Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-progression-reach-and-maintain-10k-viewer-threshold/"><u>[Updated] In 2024, Channel Progression Reach and Maintain 10K Viewer Threshold</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-infiltrating-the-top-channels-in-youtube-space/"><u>[Updated] Infiltrating the Top Channels in YouTube Space</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfecting-your-youtube-videos-for-igtv-integration/"><u>[Updated] Perfecting Your Youtube Videos for IGTV Integration</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1726029577448-avimov/"><u>AVIビデオ形式をMov形式に適切に変換する手順</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-laptop-analysis-an-unpretentious-midrange-performance-machine/"><u>Dell Inspiron 3671 Laptop Analysis: An Unpretentious Midrange Performance Machine</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exclusive-early-access-to-octobers-biggest-prime-day-savings-on-products-dont-miss-out/"><u>Exclusive Early Access to October's Biggest Prime Day Savings on Products - Don't Miss Out!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-nubia-z50-ultra-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Nubia Z50 Ultra Phone Network-Ready</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pioneering-a-new-world-in-visual-storytelling-spotlighting-the-top-10-budget-friendly-youtube-sites-for-2024/"><u>Pioneering a New World in Visual Storytelling Spotlighting the Top 10 Budget-Friendly YouTube Sites for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/robust-and-versatile-heres-what-you-need-to-know-about-the-fujitsu-scansnap-ix1600/"><u>Robust and Versatile, Here's What You Need to Know About the Fujitsu ScanSnap iX1600</u></a></li>
+<li><a href="https://fox-making.techidaily.com/top-beste-software-zur-wiederherstellung-von-bitlocker-passwortern-fur-windows-10-8-7-und-macos-big-sur/"><u>TOP-BESTE Software Zur Wiederherstellung Von BitLocker Passwörtern Für Windows 10, 8, 7 Und macOS Big Sur</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-12-08T19:03:19.781Z
-updated: 2024-12-15T16:15:23.033Z
+date: 2024-12-18T20:14:48.806Z
+updated: 2024-12-24T18:12:06.558Z
 tags:
   - win11
   - win10
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 * [Fix 5: Enable low spec mode](https://tools.techidaily.com/drivereasy/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Make sure your PC meets meets the system requirements for League of Legends
 
@@ -92,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-84.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can do it for free if you like, but it’s partly manual.
 
  If you need assistance, please contact**Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
@@ -108,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3) Wait until Windows downloaded and installed all the updates.
 
 4) Restart Windows and run League of Legends again.
@@ -119,7 +115,7 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  See if you can play the game without crashes. If so, you’ve fixed this issue! If not, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 4: Repair corrupted game files
@@ -132,6 +128,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click**Initiate Full Repair** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
@@ -140,10 +140,14 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 5: Enable low spec mode
@@ -161,10 +165,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap778.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Run League of Legends to see if you resolved this issue.
 
@@ -188,22 +188,24 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-aural-clarity-unleashed-secrets-to-high-quality-audio-for-2024/"><u>[New] Aural Clarity Unleashed Secrets to High-Quality Audio for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-best-screen-grabber-gadgets-for-youtube-channels-for-2024/"><u>[New] Best Screen Grabber Gadgets for YouTube Channels for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-cut-the-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt-for-2024/"><u>[New] Cut the Clutter, Convert Videos Discover the Best Alternatives for Flv to YT for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-tips-for-discarding-unwanted-youtube-files/"><u>[New] The Essential Tips for Discarding Unwanted YouTube Files</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-10-ultimate-immersive-vr-video-hits/"><u>[Updated] 2024 Approved 10 Ultimate Immersive VR Video Hits</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-best-macos-sierra-tools-for-optimized-video-transformation/"><u>[Updated] Best macOS Sierra Tools for Optimized Video Transformation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-channel-transformation-unleash-potential-with-tubebuddy-for-2024/"><u>[Updated] Channel Transformation Unleash Potential with TubeBuddy for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-craft-a-unique-channel-look-for-free-for-2024/"><u>[Updated] Craft a Unique Channel Look for Free for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-script-to-screen-effective-editing-on-windows-10-for-filmmakers/"><u>[Updated] From Script to Screen Effective Editing on Windows 10 for Filmmakers</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/1728467243589-aomei-backupper/"><u>AOMEI Backupperでタスクをカスタマイズする詳細ガイド</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/bridging-platforms-for-broad-sharing-instagram-and-facebook-for-2024/"><u>Bridging Platforms for Broad Sharing Instagram & Facebook for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-essential-hash-monitors-for-facebook-twitter-instagram/"><u>In 2024, Essential Hash Monitors for Facebook, Twitter, Instagram</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-link-building-101-a-content-marketers-guide/"><u>In 2024, YouTube Link-Building 101 A Content Marketer's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/runners-choice-the-elite-selection-of-running-watches-for-2eo4/"><u>Runner's Choice: The Elite Selection of Running Watches for 2Eo4</u></a></li>
-<li><a href="https://discover-best.techidaily.com/troubleshooting-windows-drivers-that-wont-run-expert-advice-by-yl-software-experts/"><u>Troubleshooting Windows Drivers That Won't Run – Expert Advice by YL Software Experts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/visionblend-editor-for-2024/"><u>VisionBlend Editor for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixed-minecraft-launcher-error-0x803f8001-in-windows-1110/"><u>[Fixed] Minecraft Launcher Error 0X803f8001 in Windows 11/10</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-8-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[New] 2024 Approved 8 Best Webspots FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-pixelated-palace-beginner-friendly-home-design-guide/"><u>[New] 2024 Approved Pixelated Palace Beginner-Friendly Home Design Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-best-microphone-for-youtuber-for-2024/"><u>[New] Best Microphone for YouTuber for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-embark-on-the-journey-defining-and-developing-style-and-niche-for-2024/"><u>[New] Embark on the Journey Defining & Developing Style and Niche for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-break-free-from-linearity-mastering-jump-cut-transitions/"><u>[New] In 2024, Break Free From Linearity Mastering Jump Cut Transitions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-riches-guide-ranking-the-top-earner-posts/"><u>[New] Instagram Riches Guide Ranking the Top Earner Posts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thwart-bots-surge-in-authentic-youtube-interest/"><u>[New] Thwart Bots, Surge in Authentic YouTube Interest</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-decode-your-youtube-preferences-with-these-6-fan-favorite-questionnaires/"><u>[Updated] 2024 Approved Decode Your YouTube Preferences with These 6 Fan-Favorite Questionnaires</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-choosing-platforms-youtube-shorts-vs-tiktok-best-for-minis/"><u>[Updated] In 2024, Choosing Platforms YouTube Shorts Vs. TikTok – Best for Minis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enjoy-uninterrupted-youtube-with-effective-adblocking-methods/"><u>[Updated] In 2024, Enjoy Uninterrupted YouTube with Effective Adblocking Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pixels-and-power-revisiting-magix-manager/"><u>[Updated] Pixels and Power Revisiting MAGIX Manager</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-silent-story-consumers-leading-anonymity-apps/"><u>[Updated] Silent Story Consumers Leading Anonymity Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/10-steps-to-perfectly-plated-food-vids/"><u>10 Steps to Perfectly Plated Food Vids</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-achieving-smooth-volume-decreases-using-lumafusion/"><u>2024 Approved Achieving Smooth Volume Decreases Using Lumafusion</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/breakthrough-14-text-animation-samples/"><u>Breakthrough 14 Text Animation Samples</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-epicurean-envoys-the-best-food-vloggers-to-watch/"><u>In 2024, Epicurean Envoys The Best Food Vloggers to Watch</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-immersive-videography-the-360-journey/"><u>In 2024, Exploring Immersive Videography The 360° Journey</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/protecting-data-while-transforming-youtube-videos-into-mp3-files-for-2024/"><u>Protecting Data While Transforming YouTube Videos Into MP3 Files for 2024</u></a></li>
 </ul></div>
 

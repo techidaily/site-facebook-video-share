@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Free Templates for Dynamic YouTube Channel Closures"
-date: 2024-12-13T22:02:49.124Z
-updated: 2024-12-15T21:05:33.236Z
+date: 2024-12-17T20:46:05.200Z
+updated: 2024-12-24T20:12:50.111Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Free End Screen Templates Download
 
@@ -65,6 +69,10 @@ Those who do not have PhotoShop can use Taha Chimar’s end screen designs that 
 
 ![taha-chimar-youtube-end-screen](https://images.wondershare.com/filmora/article-images/taha-chimar-youtube-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To download, you will have to follow a URL link in the description box of the YouTube videos. Be careful, though, as a lot of the links lead to free hosting websites with pop-ups that can harm your computer if you are easily fooled by them.
 
 #### 4. SoapyEdits
@@ -81,10 +89,6 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
@@ -94,10 +98,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -110,7 +110,7 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
@@ -118,7 +118,7 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
@@ -130,22 +130,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -162,22 +162,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exploring-youtubes-regular-income-mechanism/"><u>[New] 2024 Approved Exploring YouTube's Regular Income Mechanism</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-into-the-unknown-how-to-start-and-flourish-as-a-travel-videographer/"><u>[New] 2024 Approved Into the Unknown How To Start & Flourish As a Travel Videographer</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-junior-road-rules-and-racer-revelry/"><u>[New] 2024 Approved Junior Road Rules & Racer Revelry</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-video-quality-the-best-cameras-for-vloggers-dreams/"><u>[Updated] 2024 Approved Boosting Video Quality The Best Cameras for Vloggers' Dreams</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-capturing-coziness-ideal-winter-scenes-for-yt-video/"><u>[Updated] 2024 Approved Capturing Coziness Ideal Winter Scenes for YT Video</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-can-youtube-sub4sub-really-enhance-viewing-experience-for-2024/"><u>[Updated] Can YouTube Sub4Sub Really Enhance Viewing Experience for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elevate-your-channel-hit-the-10000-view-mark-fast-for-2024/"><u>[Updated] Elevate Your Channel Hit the 10,000 View Mark Fast for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-enhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data-for-2024/"><u>[Updated] Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-quick-resize-youtube-videos-to-right-aspect-ratio-on-mac/"><u>[Updated] Quick Resize YouTube Videos to Right Aspect Ratio on Mac</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-superior-quality-recordings-the-1-to-18-camera-list/"><u>[Updated] Superior Quality Recordings - The #1 to #18 Camera List</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/disastrous-moments-in-tech-the-top-seven-failures-on-tv-and-online/"><u>Disastrous Moments in Tech: The Top Seven Failures on TV and Online</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-parrot-mambo-complete-review/"><u>In 2024, Parrot Mambo Complete Review</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-integration-a-beginners-guide-to-google-meet/"><u>In 2024, YouTube Integration A Beginner's Guide to Google Meet</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/simple-guide-installing-drivers-on-windows-with-one-click-solutions/"><u>Simple Guide: Installing Drivers on Windows with One-Click Solutions</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/smartwatch-showdown-how-to-decide-on-the-apple-watch-ultra-versus-the-series-8/"><u>Smartwatch Showdown: How to Decide on the Apple Watch Ultra Versus the Series 8</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-essential-blueprint-for-inspiring-valorant-video-thumbnails-for-2024/"><u>The Essential Blueprint for Inspiring Valorant Video Thumbnails for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-fine-art-of-focusing-enhanced-zoom-on-roblox-games-for-2024/"><u>The Fine Art of Focusing Enhanced Zoom on Roblox Games for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-diy-guide-to-turning-youtube-screen-time-into-a-free-screencast/"><u>[New] 2024 Approved DIY Guide to Turning YouTube Screen Time Into a FREE Screencast</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-elite-transcribers-for-youtube-clips/"><u>[New] 2024 Approved Elite Transcribers for YouTube Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-quality-without-the-mic-a-practical-guide/"><u>[New] 2024 Approved Enhancing Quality without the Mic A Practical Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-content-with-youtube-tags-and-notes-for-2024/"><u>[New] Enhancing Content with YouTube Tags & Notes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-broadcast-brilliance-with-cost-effective-templates/"><u>[New] In 2024, Broadcast Brilliance with Cost-Effective Templates</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-optimal-6-solutions-for-video-captioning/"><u>[Updated] 2024 Approved Optimal 6 Solutions for Video Captioning</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-trending-video-reactions/"><u>[Updated] Exploring Trending Video Reactions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-6-best-youtube-to-mp3-downloader-for-android/"><u>[Updated] FREE 6 Best YouTube to MP3 Downloader for Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-bypassing-youtubes-copyright-strike-legal-strategies-and-precautions/"><u>[Updated] In 2024, Bypassing YouTube's Copyright Strike Legal Strategies and Precautions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-deconstructing-the-legal-framework-of-youtube-and-cc-licenses/"><u>[Updated] In 2024, Deconstructing the Legal Framework of Youtube & CC Licenses</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-how-to-restore-windows-photo-viewer-in-windows-10-2-methods/"><u>2024 Approved How to Restore Windows Photo Viewer in Windows 10 (2 Methods)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-maximizing-social-sharing-uploading-360-degree-images-on-mobile-platforms/"><u>In 2024, Maximizing Social Sharing Uploading 360-Degree Images on Mobile Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-depth-review-of-manycams-game-changing-recorder-tech/"><u>In-Depth Review of ManyCam's Game-Changing Recorder Tech</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/knowledge-base-articles-and-resources-toolkit-for-ms-sql/"><u>Knowledge Base Articles & Resources Toolkit for MS SQL</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolve-print-spooler-problems-in-win10/"><u>Resolve Print Spooler Problems in WIN10</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-complete-guide-to-affordable-online-passport-photo-services/"><u>The Complete Guide to Affordable Online Passport Photo Services</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-create-music-for-free-top-10-recording-software-options/"><u>Updated 2024 Approved Create Music for Free Top 10 Recording Software Options</u></a></li>
 </ul></div>
 
