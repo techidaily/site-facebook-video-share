@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Excellence Exchange  Global Creators\""
-date: 2024-12-23T18:00:23.126Z
-updated: 2024-12-24T22:30:01.900Z
+date: 2024-12-28T07:27:34.541Z
+updated: 2025-01-02T09:32:53.357Z
 tags:
   - ai video
   - ai youtube
@@ -59,21 +59,21 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -81,19 +81,15 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -102,7 +98,7 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -112,6 +108,10 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -130,18 +130,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[New] In 2024, Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-premier-selector-master-your-video-grabs/"><u>[New] The Premier Selector Master Your Video Grabs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-transformative-tactics-youtube-visibility-strategies/"><u>[New] Transformative Tactics YouTube Visibility Strategies</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-twitter-elite-moments-live-on-snapchat/"><u>[Updated] 2024 Approved Twitter Elite Moments Live on Snapchat</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-constructing-coherent-youtube-video-sequences-for-2024/"><u>[Updated] Constructing Coherent YouTube Video Sequences for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-elite-software-solutions-capturing-every-discord-moment/"><u>[Updated] Elite Software Solutions Capturing Every Discord Moment</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-7-best-total-war-games-for-2024/"><u>[Updated] The 7 Best Total War Games for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-8-real-life-strategies-to-increase-youtube-reach/"><u>[Updated] Top 8 Real-Life Strategies to Increase YouTube Reach</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-virtual-vanguard-over-a-hundred-games-galore/"><u>[Updated] Virtual Vanguard Over a Hundred Games Galore</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-creating-a-memorable-podcast-niche-top-ai-name-generators/"><u>2024 Approved Creating a Memorable Podcast Niche – Top AI Name Generators</u></a></li>
-<li><a href="https://article-posts.techidaily.com/crafting-a-resume-that-shines-in-design-industry-for-2024/"><u>Crafting a Resume that Shines in Design Industry for 2024</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-vivo-v27-pro-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Vivo V27 Pro Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-xiaomi-14-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Xiaomi 14 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-exclusive-ig-edits-for-apple-and-android-users-for-2024/"><u>[New] Exclusive IG Edits for Apple & Android Users for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-surpassing-the-ranks-essential-factors-uncovered/"><u>[New] Surpassing the Ranks Essential Factors Uncovered</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-tales-for-twilight-film-analysis/"><u>[New] Tales for Twilight Film Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-engaging-with-the-online-gaming-community/"><u>[New] The Art of Engaging with the Online Gaming Community</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-artisans-almanac-makeup-tools-and-more-on-youtube/"><u>[New] The Artisan's Almanac Makeup, Tools & More on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-view-count-prime-hashtags-strategy-for-2024/"><u>[Updated] Elevate View Count Prime Hashtags Strategy for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-learn-how-to-directly-control-your-iphones-orientation/"><u>[Updated] In 2024, Learn How to Directly Control Your iPhone's Orientation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-to-custom-youtube-thumbnail-sizes/"><u>[Updated] Step-by-Step Guide to Custom YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-visual-storytelling-in-business-marketing/"><u>[Updated] Visual Storytelling in Business Marketing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-expert-takes-best-camcorders-for-video/"><u>2024 Approved Expert Takes Best Camcorders for Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-blueprint-for-channel-empowerment-via-studio-mastery/"><u>2024 Approved The Blueprint for Channel Empowerment via Studio Mastery</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-xiaomi-redmi-a2plus-by-drfone-android/"><u>How to Bypass FRP from Xiaomi Redmi A2+?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-lenovo-thinkphone-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Lenovo ThinkPhone to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-to-prevent-new-world-game-from-keep-stopping-or-crashing-on-pcs/"><u>Troubleshooting Guide to Prevent New World Game From Keep Stopping or Crashing on PCs</u></a></li>
 </ul></div>
 

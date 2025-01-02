@@ -1,7 +1,7 @@
 ---
 title: "\"Writers' Guide  Embedding Images in Articles Without Spending for 2024\""
-date: 2024-12-22T21:25:53.291Z
-updated: 2024-12-24T22:39:27.081Z
+date: 2024-12-28T00:24:34.629Z
+updated: 2025-01-01T21:38:14.433Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -40,6 +44,10 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
@@ -47,16 +55,12 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
@@ -65,7 +69,7 @@ Besides presentation software, you can also use video editing software products 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
@@ -82,10 +86,6 @@ Now it’s time to add the text video and the background video to the project me
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
 Optionally you can enhance the colors in the background video or adjust the size of the text before exporting your project from Filmora.
@@ -99,7 +99,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -117,21 +117,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/easy-steps-for-converting-your-tta-recordings-to-popular-music-codes-such-as-flac-wav-or-mp3/"><u>[Easy Steps for Converting Your TTA Recordings to Popular Music Codes Such as FLAC, WAV, or MP3]</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-chromatic-mastery-image-transformation-techniques/"><u>[New] 2024 Approved Chromatic Mastery Image Transformation Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audience-allure-powerful-hashtags-that-transform-youtube-shorts/"><u>[New] In 2024, Audience Allure Powerful Hashtags That Transform YouTube Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unleash-your-youtube-earnings-achieving-prosperity-at-the-50-written-excerpt/"><u>[New] Unleash Your YouTube Earnings Achieving Prosperity at the 50 Written Excerpt</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-leveraging-camera-roll-for-social-media-step-by-step-guide-for-2024/"><u>[Updated] Leveraging Camera Roll for Social Media - Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-strategies-for-watching-multiple-youtube-videos/"><u>[Updated] Strategies for Watching Multiple YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-thriving-on-screen-time-maximize-your-youtube-impact/"><u>[Updated] Thriving on Screen Time Maximize Your YouTube Impact</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-transformative-teleportation-effects-techniques-for-2024/"><u>[Updated] Transformative Teleportation Effects Techniques for 2024</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/expert-tips-transforming-mxf-media-to-mp4-top-8-easy-steps-for-mac-and-pc-enthusiasts/"><u>Expert Tips: Transforming MXF Media to MP4 – Top 8 Easy Steps for Mac & PC Enthusiasts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebook-cover-video-aspect-ratio/"><u>Facebook Cover Video Aspect Ratio</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-disabled-outlook-notification-settings-in-windows/"><u>Fixing Disabled Outlook Notification Settings in Windows</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-vivo-s18e-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Vivo S18e for Free? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-copyrights-demystified-understanding-and-managing-strikes/"><u>In 2024, YouTube Copyrights Demystified Understanding and Managing Strikes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-mystery-of-unlisted-content-on-youtube-explored-for-2024/"><u>The Mystery of Unlisted Content on YouTube Explored for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-quick-content-crusade-youtubes-shortform-versus-tiktoks-trendsetting-for-2024/"><u>The Quick Content Crusade YouTube's Shortform Versus TikTok’s Trendsetting for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/untangling-the-steam-cloud-desync-challenge-expert-tips-and-tricks/"><u>Untangling the Steam Cloud Desync Challenge: Expert Tips and Tricks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-voters-victories-reddits-most-popular-threads-top-10/"><u>[New] 2024 Approved Voters' Victories Reddit’s Most Popular Threads (Top 10)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audiovisual-symphony-adding-music-to-your-youtube-masterpieces/"><u>[Updated] 2024 Approved Audiovisual Symphony Adding Music to Your YouTube Masterpieces</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ace-your-video-masterful-use-of-hash-tags-in-games-for-2024/"><u>[Updated] Ace Your Video Masterful Use of Hash Tags in Games for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-explore-8-best-strategies-for-increasing-youtube-traffic/"><u>[Updated] Explore 8 Best Strategies for Increasing Youtube Traffic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elite-7-cameras-elevating-interactive-learning-vlogs-and-tutorials/"><u>[Updated] In 2024, Elite 7 Cameras Elevating Interactive Learning Vlogs & Tutorials</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-premier-online-videography-tools-to-eye/"><u>[Updated] Premier Online Videography Tools to Eye</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-viral-vortex-keywords-that-propel-you-into-social-media-spotlight/"><u>[Updated] Viral Vortex Keywords that Propel You Into Social Media Spotlight</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-stabilizing-high-flying-camera-work-a-guide/"><u>2024 Approved Stabilizing High-Flying Camera Work A Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-red-magic-8s-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Red Magic 8S Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-a-step-by-step-approach-to-generating-income-with-trailers/"><u>In 2024, A Step-by-Step Approach to Generating Income with Trailers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leveraging-microsofts-copilot-for-unparalleled-ai-visual-creation/"><u>Leveraging Microsoft's Copilot for Unparalleled AI Visual Creation</u></a></li>
+<li><a href="https://win-trending.techidaily.com/migratez-efficacement-de-votre-disque-dur-traditionnel-a-un-ssd-sous-windows-10-ou-11-methodes-simplifiees-et-conseils-pratiques/"><u>Migratez Efficacement De Votre Disque Dur Traditionnel À Un SSD Sous Windows 10 Ou 11 : Méthodes Simplifiées Et Conseils Pratiques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/syma-x5c-reviewed-ideal-entry-level-flying-machine-for-2024/"><u>Syma X5C Reviewed Ideal Entry-Level Flying Machine for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/why-cant-you-get-the-newest-apple-ai-tech-the-pricey-limitations-for-older-iphones-insights/"><u>Why Can’t You Get the Newest Apple AI Tech? The Pricey Limitations for Older iPhones | Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-growth-hacking-for-new-videographers-for-2024/"><u>YouTube Growth Hacking for New Videographers for 2024</u></a></li>
 </ul></div>
 

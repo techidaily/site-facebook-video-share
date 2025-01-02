@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2024-12-22T21:35:22.272Z
-updated: 2024-12-24T16:31:36.411Z
+date: 2024-12-28T07:07:37.543Z
+updated: 2025-01-02T06:15:49.838Z
 tags:
   - win11
   - win10
@@ -37,11 +37,19 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 4. [**Lower in-game graphics settings**](https://tools.techidaily.com/drivereasy/download/)
 5. [**Turn off unnecessary programs**](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1: Check your home network
 
  A bad network connection can often cause your game to freeze, lag or even crash, so you may want to**restart your network** by turning off your modem and router for at least 20 seconds then turning them back on.
 
  If you’re using a Wi-Fi connection, try using an ethernet cable. An ethernet cable can provide a more stable internet connection. If that’s not an option, you can instead, move your computer closer to your router as the distance between your PC and the Router could also affect your Wi-Fi connection and your gaming performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 2: Update your graphics driver
 
@@ -59,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
@@ -74,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Relaunch the game to test your issue. If it’s still occurring, try the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 3: Verify Warframe cache files
 
@@ -87,15 +95,15 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_15-35-03.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)**  After the process is complete, click**Optimize** .
 
 **4)** Launch the game to test your issue.
 
 Your game still freezes? Try the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 4: Lower in-game graphics settings
 
@@ -107,27 +115,19 @@ Your game still freezes? Try the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If your issue persists, then move on to the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 5: Turn off unnecessary programs
 
@@ -166,24 +166,18 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breaking-the-mold-how-to-create-a-standout-youtube-channel-name/"><u>[New] In 2024, Breaking the Mold How to Create a Standout YouTube Channel Name</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-syncing-sound-with-visuals-on-facebook-essential-guide-for-2024/"><u>[New] Syncing Sound with Visuals on Facebook - Essential Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-techniques-to-improve-visibility-during-youtube-playback/"><u>[New] Techniques to Improve Visibility During YouTube Playback</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-guide-selecting-8-exquisite-weddings-vids/"><u>[New] Ultimate Guide Selecting 8 Exquisite Weddings - Vids</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-wallet-friendly-mirrorless-choices/"><u>[Updated] 2024 Approved Wallet-Friendly Mirrorless Choices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-advanced-editing-for-published-youtube-videos-for-2024/"><u>[Updated] Advanced Editing for Published YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-discovering-your-youtube-unique-slot-for-2024/"><u>[Updated] Discovering Your YouTube Unique Slot for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-how-to-build-a-career-in-graphic-design/"><u>[Updated] How to Build A Career In Graphic Design</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-guide-to-edit-youtube-videos-in-finalcut/"><u>[Updated] In 2024, A Step-by-Step Guide to Edit YouTube Videos in FinalCut</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-content-youtube-video-editing-secrets-revealed/"><u>[Updated] In 2024, Elevate Your Content YouTube Video Editing Secrets Revealed</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-guide-to-the-dell-inspiron-3671-desk-computer-perfect-middle-ground-tech/"><u>Comprehensive Guide to the Dell Inspiron 3671 Desk Computer - Perfect Middle Ground Tech</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-13-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/htc-vives-diving-into-depth-a-vr-experience-review-for-2024/"><u>HTC Vive's Diving Into Depth A VR Experience Review for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-playlist-building-step-by-step-expertise/"><u>In 2024, YouTube Playlist Building Step-by-Step Expertise</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/pro-tips-for-captivating-vr-videos-top-9-strategies-for-2024/"><u>Pro Tips for Captivating VR Videos Top 9 Strategies for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/stepwise-guide-to-antiquated-visual-effects-in-videos-for-2024/"><u>Stepwise Guide to Antiquated Visual Effects in Videos for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-future-is-here-with-macos-15-sequoia-projection-of-release-dates-and-innovative-features/"><u>The Future Is Here with MacOS 15 (Sequoia): Projection of Release Dates & Innovative Features</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-samsung-galaxy-s23-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Samsung Galaxy S23 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-remote-collaboration-via-chatgpt-use/"><u>Transforming Remote Collaboration via ChatGPT Use</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-igtv-creation-and-monetization-the-ultimate-cheat-sheet-for-2024/"><u>[New] Mastering IGTV Creation & Monetization The Ultimate Cheat Sheet for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-youtube-channels-crafting-brands-that-attract-viewers/"><u>[New] The Art of YouTube Channels Crafting Brands That Attract Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtubes-encrypted-video-secrets/"><u>[New] Unlocking YouTube's Encrypted Video Secrets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-engaging-life-journeys-in-video-formats/"><u>[Updated] 2024 Approved Crafting Engaging Life Journeys in Video Formats</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-android-without-a-wire-heres-your-free-games-list-for-2024/"><u>[Updated] Android Without A Wire? Here's Your Free Games List for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-content-creation-evolution-choosing-studio-over-beta/"><u>2024 Approved Video Content Creation Evolution Choosing Studio Over Beta</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/usb-c-lightning-iphone/"><u>如何利用 USB-C / Lightning 線接頭進行iPhone之間的有線資料轉移：步驟解析</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/accidentally-secured-your-smartphone-unlock-and-erase-techniques-covered/"><u>Accidentally Secured Your Smartphone? Unlock & Erase Techniques Covered</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722160974791-embrace-free-gpt-4-but-dont-ignore-the-exclusive-perks-available-to-plus-users/"><u>Embrace Free GPT-4; But Don’t Ignore the Exclusive Perks Available to Plus Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/generation-rapide-et-gratuite-de-gifs-a-partir-de-fichiers-mkv-en-ligne-avec-laide-de-movavi/"><u>Génération Rapide Et Gratuite De GIFs À Partir De Fichiers MKV en Ligne Avec L'aide De Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-on-nokia-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Videos Not Playing on Nokia ?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-strategies-for-dealing-with-playback-tone-issues/"><u>Step-by-Step Strategies for Dealing with 'Playback Tone Issues'</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-yearly-list-prime-free-video-editing-software-for-2024/"><u>Your Yearly List Prime Free Video Editing Software for 2024</u></a></li>
 </ul></div>
 

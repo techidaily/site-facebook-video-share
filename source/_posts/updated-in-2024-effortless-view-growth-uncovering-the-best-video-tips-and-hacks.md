@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Effortless View Growth  Uncovering the Best Video Tips and Hacks\""
-date: 2024-08-01T10:07:45.220Z
-updated: 2024-08-02T10:07:45.220Z
+date: 2024-12-31T00:59:55.696Z
+updated: 2025-01-02T01:45:20.902Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c
 
 # YouTube Shortcuts You Should Know in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +32,10 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -45,9 +45,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -68,8 +65,9 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -79,10 +77,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -95,9 +89,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -122,6 +113,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -135,12 +130,9 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -152,6 +144,10 @@ In this section, you will learn how to pull up the list of important YouTube sho
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -169,12 +165,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-how-to-download-part-of-a-youtube-videos-in-2024/"><u>[New] How to Download Part of a YouTube Videos, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-how-to-make-youtube-video/"><u>[New] In 2024, How to Make YouTube Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leveraging-ergonomics-for-superior-team-dynamics-in-the-workplace/"><u>[New] In 2024, Leveraging Ergonomics for Superior Team Dynamics in the Workplace</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-revolutionize-virtual-participation-with-top-10-free-recorder-software/"><u>[New] In 2024, Revolutionize Virtual Participation with Top 10 Free Recorder Software</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-prioritizing-visibility-a-guide-to-insta-highlights-perfection-for-2024/"><u>[New] Prioritizing Visibility A Guide to Insta Highlights Perfection for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-video-game-youtube-production-mastery/"><u>[Updated] 2024 Approved Elevate Your Video Game YouTube Production Mastery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unlocking-digital-expression-the-joy-of-creating-metaverse-memes/"><u>[Updated] 2024 Approved Unlocking Digital Expression The Joy of Creating Metaverse Memes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-channelenas-expensive-check-out-our-11-free-name-generators-guide-for-2024/"><u>[Updated] Elevate Your Channel'enas Expensive? Check Out Our 11 Free Name Generators Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-insights-into-crafting-dynamic-youtube-shorts-templates-for-2024/"><u>[Updated] Expert Insights Into Crafting Dynamic YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-perks-and-pitfalls-of-mcn-alliances-for-2024/"><u>[Updated] Exploring the Perks and Pitfalls of MCN Alliances for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-detailed-insights-into-youtubes-perfected-aspect-ratios/"><u>[Updated] In 2024, Detailed Insights Into YouTube's Perfected Aspect Ratios</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>[Updated] In 2024, Experience the New Unleash a Set of 50 Designs for Free</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-30-free-mac-speech-to-text-software-youve-missed-for-2024/"><u>[Updated] Top 30 Free Mac Speech-to-Text Software You've Missed for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pioneering-metaverse-brand-presence/"><u>In 2024, Pioneering Metaverse Brand Presence</u></a></li>
+<li><a href="https://some-tips.techidaily.com/revolutionizing-the-financial-sector-how-rpa-and-nlp-offer-innovative-solutions/"><u>Revolutionizing the Financial Sector: How RPA and NLP Offer Innovative Solutions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-essential-technique-of-applying-trendlines-in-microsoft-excel-visualizations/"><u>The Essential Technique of Applying Trendlines in Microsoft Excel Visualizations</u></a></li>
+</ul></div>
 

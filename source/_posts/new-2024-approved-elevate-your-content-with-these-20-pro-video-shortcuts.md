@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Elevate Your Content With These 20 Pro Video Shortcuts\""
-date: 2024-08-01T10:00:38.881Z
-updated: 2024-08-02T10:00:38.881Z
+date: 2024-12-28T01:41:55.883Z
+updated: 2025-01-02T02:28:39.601Z
 tags:
   - ai video
   - ai youtube
@@ -29,8 +29,9 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
@@ -45,8 +46,9 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -65,6 +67,10 @@ This section talks about the shortcut keys to skim the video forward and backwar
 If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
 
@@ -86,6 +92,10 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -124,8 +134,9 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -136,9 +147,6 @@ In this section, you will learn how to pull up the list of important YouTube sho
 
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 **Conclusion**
@@ -147,14 +155,8 @@ Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorial
 
 As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -163,12 +165,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-download-free-mcb-skin-designs-for-2024/"><u>[New] Download Free MCB Skin Designs for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-10-best-cost-free-subtitle-grabs-from-youtube/"><u>[New] In 2024, 10 Best Cost-Free Subtitle Grabs From YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elite-content-consummation/"><u>[New] In 2024, Elite Content Consummation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exclusive-access-to-premium-playlists-on-mobile-devices/"><u>[New] In 2024, Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-essential-tips-and-templates-for-impactful-ig-footage/"><u>[Updated] 2024 Approved Essential Tips & Templates for Impactful IG Footage</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-canva-enthusiasts-reveal-their-top-10-editor-steps/"><u>[Updated] In 2024, Canva Enthusiasts Reveal Their Top 10 Editor Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-craft-the-ultimate-outro-with-pro-maker-advice/"><u>[Updated] In 2024, Craft the Ultimate Outro with Pro Maker Advice</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-iphones-leading-selfie-aids-8-edition/"><u>[Updated] Iphone's Leading Selfie Aids - #8 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-online-video-resources-for-enhanced-learning-experiences/"><u>[Updated] Online Video Resources for Enhanced Learning Experiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-professional-tips-for-enhancing-your-youtube-videos-with-captions/"><u>[Updated] Professional Tips for Enhancing Your YouTube Videos with Captions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-scouting-grounds-websites-for-finding-sponsorships-in-videography/"><u>[Updated] Scouting Grounds Websites for Finding Sponsorships in Videography</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-shorts-dividing-profits-among-making-crew/"><u>[Updated] YouTube Shorts Dividing Profits Among Making Crew</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-11-pro-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone 11 Pro Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-itel-a60s-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Itel A60s Is Unlocked</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-poco-x6-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Poco X6 Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-huawei-p60-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Huawei P60 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-transforming-visuals-10-must-try-text-upgrades-in-videos/"><u>In 2024, Transforming Visuals 10 Must-Try Text Upgrades in Videos</u></a></li>
+</ul></div>
 

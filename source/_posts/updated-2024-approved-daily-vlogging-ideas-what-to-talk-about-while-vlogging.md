@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-12-20T21:47:02.693Z
-updated: 2024-12-24T21:51:58.367Z
+date: 2024-12-28T01:54:02.472Z
+updated: 2025-01-01T21:07:56.582Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -45,10 +49,6 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -56,7 +56,7 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -64,6 +64,10 @@ By commenting on what you’re watching/reading you have a better chance of capi
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -76,7 +80,7 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What did you learn today?
@@ -100,16 +104,12 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
@@ -132,20 +132,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-add-more-minutes-to-youtube-content-for-2024/"><u>[New] Add More Minutes to YouTube Content for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-15-online-audio-haven-sites-for-video-content-makers/"><u>[New] In 2024, 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-techniques-crafting-youtube-shorts-images-on-the-fly-for-2024/"><u>[Updated] Effortless Techniques Crafting YouTube Shorts Images on the Fly for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-freenfb-harmonies-instantly/"><u>[Updated] FreenFB Harmonies, Instantly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionize-viewing-experience-the-best-yt-reaction-methods/"><u>[Updated] Revolutionize Viewing Experience The Best YT Reaction Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-sound-savings-guide-youtubers-selection-of-affordable-mics/"><u>[Updated] Sound Savings Guide Youtuber's Selection of Affordable Mics</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-art-of-visual-anonymity-in-videos-for-2024/"><u>[Updated] The Art of Visual Anonymity in Videos for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-weaving-wonders-a-tiktok-fabric-fundamentals-series/"><u>[Updated] Weaving Wonders A TikTok Fabric Fundamentals Series</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ais-leap-critical-upgrades-expected-in-gpt-5/"><u>AI's Leap: Critical Upgrades Expected in GPT-5</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-easy-steps-to-change-fins-sounds-in-windows/"><u>In 2024, Easy Steps to Change Fins' Sounds in Windows</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-sony-xperia-5-v-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Sony Xperia 5 V Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-infinix-hot-40-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Infinix Hot 40 Phone Now with These Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-creative-commons-a-guide-for-videographers/"><u>In 2024, YouTube’s Creative Commons A Guide for Videographers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-gpus-a-comprehensive-list/"><u>Top Rated GPUs : A Comprehensive List</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/transforming-trivial-talent-into-thriving-tv-subscribers-triumphs/"><u>Transforming Trivial Talent Into Thriving TV (Subscribers) Triumphs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-premier-10-drone-teams-for-cinematic-mastery/"><u>[New] 2024 Approved Premier 10-Drone Teams for Cinematic Mastery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-artistic-anomaly-top-10-unique-affordable-mac-drawers-free-for-2024/"><u>[New] Artistic Anomaly Top 10 Unique, Affordable Mac Drawers (Free) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-amplify-your-storytelling-seamlessly-insert-music-into-youtube-videos/"><u>[New] In 2024, Amplify Your Storytelling Seamlessly Insert Music Into YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-efficient-methods-for-compiling-songs-on-youtube/"><u>[New] In 2024, Discover Efficient Methods for Compiling Songs on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-your-youtube-presence-with-effective-tags/"><u>[Updated] 2024 Approved Elevating Your YouTube Presence with Effective Tags</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-navigating-free-art-online-a-guide-and-top-sites/"><u>[Updated] 2024 Approved Navigating Free Art Online A Guide & Top Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-discovering-your-curated-collection-of-tunes-in-youtubes-depths-for-2024/"><u>[Updated] Discovering Your Curated Collection of Tunes in YouTube's Depths for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-download-youtube-gallery-files-instantly-for-2024/"><u>[Updated] Download YouTube Gallery Files Instantly for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevating-your-video-content-for-a-fanbase-boom-for-2024/"><u>[Updated] Elevating Your Video Content for a Fanbase Boom for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-how-to-convert-youtube-to-mp4-safely/"><u>[Updated] In 2024, How to Convert YouTube to MP4 Safely?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-masterful-picture-arrangement-10-leading-tools/"><u>[Updated] In 2024, Masterful Picture Arrangement 10 Leading Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/disable-microsofts-assistant-service-on-pc/"><u>Disable Microsoft's Assistant Service on PC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-zte-axon-40-lite-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For ZTE Axon 40 Lite</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-tecno-spark-20-pro-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Tecno Spark 20 Pro</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-oppo-find-n3-flip-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Oppo Find N3 Flip to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-speedy-viewing-manipulating-stories-frame-rate-on-instagram/"><u>In 2024, Speedy Viewing Manipulating Stories' Frame Rate on Instagram</u></a></li>
 </ul></div>
 

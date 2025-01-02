@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Guides on Creating Cost-Free YouTube Beginnings & Conclusions\""
-date: 2024-08-01T10:06:37.799Z
-updated: 2024-08-02T10:06:37.799Z
+date: 2024-12-28T05:28:16.450Z
+updated: 2025-01-01T19:15:23.596Z
 tags:
   - ai video
   - ai youtube
@@ -18,11 +18,6 @@ thumbnail: https://thmb.techidaily.com/778dacc021ae6d569afd3e62fa61bf15ba6fe429d
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -46,8 +41,9 @@ The powerful video editing program for your Windows PC</a>
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -74,11 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -90,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -125,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -136,12 +134,30 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-branding-mastery-securing-a-loyal-youtube-subscriber-base/"><u>[New] 2024 Approved Channel Branding Mastery Securing a Loyal YouTube Subscriber Base</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-visuals-using-chroma-key-effectively/"><u>[New] 2024 Approved Enhancing Visuals Using Chroma Key Effectively</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-experience-the-power-of-visuals-discover-all-50-banners-in-our-digital-collection/"><u>[New] 2024 Approved Experience the Power of Visuals Discover All 50 Banners in Our Digital Collection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-8-linux-software-for-editors-for-2024/"><u>[New] Essential 8 Linux Software for Editors for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-from-monochrome-moments-to-multicolor-movies/"><u>[New] In 2024, From Monochrome Moments to Multicolor Movies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-history-button-navigating-old-facebook-stories/"><u>[New] In 2024, The History Button Navigating Old Facebook Stories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-manual-for-youtube-playlist-reordering/"><u>[New] The Ultimate Manual for YouTube Playlist Reordering</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-asmr-channel-discoveries/"><u>[Updated] 2024 Approved Essential ASMR Channel Discoveries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-approach-to-professional-video-sharing/"><u>[Updated] In 2024, A Step-by-Step Approach to Professional Video Sharing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-free-to-do-approach-for-text-and-video-combination/"><u>[Updated] The Free-to-Do Approach for Text & Video Combination</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-optimal-gameplay-tools-on-the-big-screen/"><u>2024 Approved Optimal Gameplay Tools on the Big Screen</u></a></li>
+<li><a href="https://app-tips.techidaily.com/how-to-effortlessly-backup-and-restore-whatsapp-messages-from-one-android-phone-to-another/"><u>How to Effortlessly Backup and Restore WhatsApp Messages From One Android Phone to Another</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-automatic-high-quality-imaging-the-role-of-auto-and-smart-hdr-3-and-4/"><u>In 2024, Automatic High-Quality Imaging The Role of Auto and Smart HDR 3 & 4</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-how-to-record-webcam-and-screen-simultaneously/"><u>In 2024, How to Record Webcam and Screen Simultaneously</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcome-your-cyberpunk-2077-sound-problems-in-windows-11-expert-fixes-revealed/"><u>Overcome Your Cyberpunk 2077 Sound Problems in Windows 11 – Expert Fixes Revealed</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unleash-the-full-potential-of-your-iphone-expert-tips-on-mastering-secret-siri-shortcuts-techsavvy/"><u>Unleash the Full Potential of Your iPhone: Expert Tips on Mastering Secret Siri Shortcuts | TechSavvy</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Optimizing YouTube Content With Social Blade - A Stats Journey for 2024\""
-date: 2024-08-01T09:58:45.890Z
-updated: 2024-08-02T09:58:45.890Z
+date: 2024-12-29T00:13:36.604Z
+updated: 2025-01-02T01:50:38.590Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/0f5fc285546b265c973fbaa96cd3591b73387ac3a
 
 # Use Social Blade for YouTube Analytics - Stats & How to Use Them
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -37,24 +34,16 @@ While many of the stats you can find on Social Blade are also available right on
 2. [**Spying on Other Channels**](#spy)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your YouTube Analytics
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
 
@@ -75,8 +64,9 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -89,17 +79,19 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
  That's how you can use Social Blade for YouTube - have you ever used it?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Make Your Videos Stand Out with Powerful Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -107,12 +99,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-easing-into-your-youtube-watches-3-methods-50-chars/"><u>[New] In 2024, Easing Into Your YouTube Watches 3 Methods (50 Chars)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-key-strategies-for-gaining-facebooks-top-marker/"><u>[New] In 2024, Key Strategies for Gaining Facebook's Top Marker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-love-in-full-view-discovering-youtube-and-vimeos-top-7-wedding-movies/"><u>[New] Love in Full View Discovering Youtube & Vimeo's Top 7 Wedding Movies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-digging-through-youtube-conversations/"><u>[Updated] 2024 Approved Digging Through YouTube Conversations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boost-your-video-impact-expert-tips-on-using-wm-maker/"><u>[Updated] In 2024, Boost Your Video Impact Expert Tips on Using WM Maker</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-depth-analysis-of-altering-facial-gender-on-social-platforms-for-2024/"><u>[Updated] In-Depth Analysis of Altering Facial Gender on Social Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-guide-to-video-extraction-from-youtube/"><u>[Updated] Quick Guide to Video Extraction From YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-techniques-for-discarding-backlogged-youtube-videos/"><u>[Updated] Techniques for Discarding Backlogged YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-top-ten-accelerating-youtube-sectors-of-thought/"><u>[Updated] The Top Ten Accelerating YouTube Sectors of Thought</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-masterclass-analyzing-the-updated-lg-bp550/"><u>2024 Approved Masterclass Analyzing the Updated LG BP550</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-without-carolyn-in-facebook-ads/"><u>A New Chapter Without Carolyn in Facebook Ads</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-realme-c51-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-vivo-y200-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Vivo Y200 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-notch-ae-extensions-selection/"><u>In 2024, Top-Notch AE Extensions Selection</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Methods to Change GPS Location On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prodigious-platform-professionals-for-2024/"><u>Prodigious Platform Professionals for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-on-apple-iphone-14-pro-max-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock On Apple iPhone 14 Pro Max You Should Try Out</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-battle-of-broadcads-vimeo-and-youtubes-face-off-for-2024/"><u>The Battle of Broadcads Vimeo & YouTube's Face-Off for 2024</u></a></li>
+</ul></div>
 

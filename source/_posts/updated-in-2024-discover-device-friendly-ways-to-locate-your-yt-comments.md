@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Discover Device-Friendly Ways to Locate Your YT Comments\""
-date: 2024-12-20T20:09:02.080Z
-updated: 2024-12-24T16:58:29.190Z
+date: 2024-12-27T00:44:23.705Z
+updated: 2025-01-01T20:01:52.124Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ YouTube allows you to post comments on any video only if you are signed in to yo
 
 You can learn how to find all the comments you have posted on YouTube while using your preferred device by following the instructions given below:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Find Your YouTube Comments on a Desktop or Laptop Computer
 
 **Step 1: Sign In to Your YouTube Account**
@@ -53,15 +57,15 @@ Click the **Menu</strong > button from the top-left corner of the page, and then
 
 ![YouTube History Menu](https://images.wondershare.com/filmora/article-images/youtube-history-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Access/View Your Past Comments**
 
 Click **Comments** from the right of the **History** page to view all the comments that you have posted earlier.
 
 ![YouTube History Menu  Comments](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Find Your YouTube Comments on an iPhone
 
@@ -83,10 +87,6 @@ Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **Hi
 
 ![Access the Desktop Version of YouTube](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Find Your YouTube Comments on an Android Smartphone
 
 As it is with iOS, the YouTube app for Android doesn’t allow you to view your comments history either. However, the workaround of using a web browser works pretty well on Android smartphones too, but with a few tweaks. The process of doing so is given below:
@@ -106,16 +106,12 @@ When the confirmation box pops up at the bottom, choose your preferred web brows
 Once you are signed in to your account, tap the **Menu** icon from the top-left corner of the YouTube page, and tap **History** from the menu that appears. When the **History** page opens up, tap **Comments** from the right pane to view and/or access your past YouTube comments.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Find All YouTube Comments Your Channel Has Received?
 
 If you own a YouTube channel and have posted several videos there, it is likely that you also have received a decent number of comments. Usually, these remarks are pretty helpful as they tell you how to improve your production quality, and what your audience prefers to watch in the future. Therefore, it is imperative to learn how to find all the comments that your YouTube channel has received, and the process given below explains exactly that:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Find Your Channel’s YouTube Comments on a Desktop or Laptop Computer
 
@@ -127,10 +123,6 @@ Open your favorite Internet browser, go to <https://www.youtube.com>, and sign i
 
 ![Access  YouTube Your videos Page](https://images.wondershare.com/filmora/article-images/youtube-your-videos-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: View the Comments**
 
 Make sure that the **Uploads** tab is selected on the **Channel content** window, and check the number under the **Comments** column of each video to see how many comments that particular film has received. You can click the number for any video to view its comments.
@@ -138,7 +130,7 @@ Make sure that the **Uploads** tab is selected on the **Channel content** window
 ![Find  YouTube Comments List](https://images.wondershare.com/filmora/article-images/find-youtube-video-comments-list.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Hide or Hold a Comment for Approval**
@@ -150,7 +142,7 @@ Click the **More** icon from the right of the comment you want to moderate, and 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
@@ -190,7 +182,7 @@ Go to your or any other’s YouTube video, and click **Load All** from the top-r
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/load-all-comments-with-youtube-comment-search-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Search Comments from a Particular User**
@@ -200,7 +192,7 @@ Choose **Comments** from the search type drop-down list, enter the name of the u
 ![Serach  YouTube Comments of specific users](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Edit and Reply to YouTube Comments?
@@ -233,6 +225,10 @@ Go to the **Community** category from the left pane, and go to the **Defaults** 
 
 ![set  YouTube Community Comments moderation](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -242,6 +238,10 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * Be genuine while leaving feedback. However, make sure to choose polite words while typing a comment
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -272,16 +272,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-achieving-a-million-on-the-map-a-strategic-view-to-sub-guide/"><u>[New] 2024 Approved Achieving a Million on the Map A Strategic View-to-Sub Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-effective-streaming-across-platforms-including-facebook-and-twitch-for-2024/"><u>[New] Effective Streaming Across Platforms, Including Facebook and Twitch for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-chasing-channel-currency-the-updated-youtube-partner-guide/"><u>[New] In 2024, Chasing Channel Currency The Updated Youtube Partner Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-expert-speaker-change-devices-for-youtube-gurus/"><u>[New] In 2024, Expert Speaker Change Devices for YouTube Gurus</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-end-screen-design-made-easy-with-our-templates-and-tutorials/"><u>[Updated] 2024 Approved End-Screen Design Made Easy with Our Templates & Tutorials</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-boost-production-value-with-free-sfx-libraries/"><u>[Updated] Boost Production Value with Free SFX Libraries!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enter-the-next-gen-realm-pick-your-favorite-from-rift-vive-and-playstation-vr/"><u>[Updated] In 2024, Enter the Next-Gen Realm Pick Your Favorite From Rift, Vive, and PlayStation VR</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-funimate-on-your-phone-unzipping-the-apk-guide/"><u>In 2024, Funimate on Your Phone Unzipping the APK Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/step-by-step-on-streaming-google-meet-directly-to-youtube-channel-for-2024/"><u>Step by Step on Streaming Google Meet Directly to YouTube Channel for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-compact-tablet-rankings-for-2eo-expertly-evaluated-and-critiqued-zdnet/"><u>Ultimate Compact Tablet Rankings for 2Eo: Expertly Evaluated and Critiqued | ZDNET</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-iphones-audio-upgrade-discover-best-software-for-youtube-to-mp3/"><u>[New] IPhone's Audio Upgrade Discover Best Software for YouTube-to-MP3</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-keep-them-coming-back-top-6-ways-to-enhance-your-audiences-staying-power-on-youtube/"><u>[New] Keep Them Coming Back Top 6 Ways To Enhance Your Audience's Staying Power on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-buyers-guide-top-gpus-for-youtube-streamers/"><u>[New] Ultimate Buyer's Guide Top GPUs for YouTube Streamers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-channel-with-these-top-11-budget-friendly-tools/"><u>[Updated] 2024 Approved Elevate Your Channel with These Top 11 Budget-Friendly Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-becoming-snapstreak-savvy-tips-for-uninterrupted-connection-for-2024/"><u>[Updated] Becoming Snapstreak Savvy Tips for Uninterrupted Connection for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-upgrade-the-beginners-roadmap-to-video-mastery-for-2024/"><u>[Updated] Channel Upgrade The Beginner's Roadmap to Video Mastery for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-expand-your-visual-palette-in-after-effects-for-2024/"><u>[Updated] Expand Your Visual Palette in After Effects for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-ranked-graphics-cards-for-optimal-online-streaming-quality/"><u>[Updated] Top-Ranked Graphics Cards for Optimal Online Streaming Quality</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-connecting-worlds-mastering-video-chats-on-xbox-one-with-zoom/"><u>2024 Approved Connecting Worlds Mastering Video Chats on Xbox One with Zoom</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-streamers-to-millionaires-the-monetization-blueprint/"><u>2024 Approved From Streamers to Millionaires The Monetization Blueprint</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/befreiem-wege-om-usb-lijnen-verloren-bestanden-te-herstellen-de-5-gouden-regels/"><u>Befreiem Wege Om USB-Lijnen Verloren Bestanden Te Herstellen - De 5 Gouden Regels</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-downloads-realtek-pci-e-fe-series-driver-setup-guide-for-windows-10/"><u>Free Downloads: Realtek PCI-E FE Series Driver Setup Guide for Windows 10</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/navigating-the-world-of-telegram-online-with-ease/"><u>Navigating the World of Telegram Online with Ease</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/seagate-backup-plus-5tb-restoration-het-top-titol-in-herstelsoftware/"><u>Seagate Backup Plus 5TB Restoration: Het Top-Titol in Herstelsoftware</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/srt-deep-dive-knowledge-at-your-fingertips/"><u>SRT Deep Dive Knowledge at Your Fingertips</u></a></li>
 </ul></div>
 

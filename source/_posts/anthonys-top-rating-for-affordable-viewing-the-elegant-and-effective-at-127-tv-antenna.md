@@ -1,7 +1,7 @@
 ---
 title: "Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
-date: 2024-12-17T20:46:41.782Z
-updated: 2024-12-24T22:17:59.589Z
+date: 2024-12-28T05:22:41.332Z
+updated: 2025-01-01T19:51:59.920Z
 categories:
   - BestProducts
 description: "This Article Describes Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 ## Extollo LANSocket 1500 Powerline Adapter
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/bp3nz_Kph6TOTz5TF4sk7NQJt4w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -41,6 +37,10 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon](https://www.amazon.com/Extollo-Powerline-LANSocket-1500-HomePlug/dp/B00Y3XRRI8/?tag=lifewire-onsite-prod-20&ascsubtag=4778158%7Cneae2cae292c94a2b9373551f10cd366c17%7CB00Y3XRRI8)
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Extollo LANSocket 1500 Powerline Adapter
 
@@ -74,6 +74,10 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -88,10 +92,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Pain-free plug and play**
@@ -106,10 +114,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/BvO_NJ8pdby7NqO2Fq-orJ_NbFI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-02-40358222569c4a55b4d04e7aadf01af7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 ## **Connectivity: MIMO with beamforming**
@@ -117,10 +121,6 @@ Lifewire / Jeremy Laukkonen
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -152,10 +152,6 @@ Lifewire / Jeremy Laukkonen
 
  The embedded Linux distro does open up some security concerns, but they can be mostly erased if you connect through a firewalled router. You can find cheaper options, but the bottom line is that you won’t find a cheaper alternative that provides the same high speed, low latency, video buffering, and pass-through socket that you get with the LANSocket 1500.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Decent price for such good performance**
 
  The Extollo LANSocket 1500 has an MSRP of $90 for a set of two. That places these adapters right in the same general price range as other similar devices. You can find HomePlug AV2 compatible adapters for a little less, but they typically don’t perform quite as well.
@@ -163,7 +159,7 @@ Lifewire / Jeremy Laukkonen
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Wins on transfer speeds with some security concerns**
@@ -187,6 +183,10 @@ Lifewire / Jeremy Laukkonen
  **Buy this powerline adapter kit, but secure it behind a firewall.**
 
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -218,18 +218,19 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-growth-hacks-the-ultimate-list-of-5-youtube-strategies/"><u>[New] 2024 Approved Channel Growth Hacks – The Ultimate List of 5 YouTube Strategies</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-explore-top-7-live-streaming-iosandroid-apps-perfect-for-youtube-channel-creators-for-2024/"><u>[New] Explore Top 7 Live Streaming iOS/Android Apps Perfect for YouTube Channel Creators for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-advice-on-free-youtube-events-without-extra-cost/"><u>[New] In 2024, Expert Advice on Free Youtube Events without Extra Cost</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-newbies-guide-to-av1-codec/"><u>[New] The Newbie's Guide to AV1 Codec</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlimited-visual-potential-free-themes-for-channels/"><u>[New] Unlimited Visual Potential – Free Themes for Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-avoiding-strikes-youtube-edition/"><u>[Updated] In 2024, Avoiding Strikes YouTube Edition</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-next-level-play-the-best-gaming-tech-on-display/"><u>[Updated] Next-Level Play The Best Gaming Tech on Display</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-jump-cut-strategies-for-compelling-vlogs/"><u>2024 Approved Jump Cut Strategies for Compelling Vlogs</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-oppo-f25-pro-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Oppo F25 Pro 5G FRP</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/macwindows4/"><u>如何重新打開被遮蔽的電子檔案:Mac与Windows电脑使用4种方法解决方法</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/identifying-key-windows-movie-maker-alternatives/"><u>Identifying Key Windows Movie Maker Alternatives</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-shares-essential-smarts-for-social-media-users/"><u>The Language of Likes and Shares: Essential SMARTs for Social Media Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-youtube-premium-subscription-deserves-a-look/"><u>Why YouTube Premium Subscription Deserves a Look</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-for-effortless-apple-podcast-acquisition-swift-and-smooth/"><u>[New] How-To for Effortless Apple Podcast Acquisition – Swift & Smooth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-youtube-apex-with-smart-management-tools/"><u>[New] In 2024, Achieving YouTube Apex with Smart Management Tools</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-stealthy-editing-blur-faces-with-picsart/"><u>[New] In 2024, Stealthy Editing Blur Faces With Picsart</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-streamsurf-skimming-above-dacast/"><u>[New] StreamSurf Skimming Above DaCast</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ultimate-guide-for-elevating-videos-from-basic-sdr-to-breathtaking-hdr-splendor-for-2024/"><u>[New] Ultimate Guide for Elevating Videos From Basic SDR to Breathtaking HDR Splendor for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-playlist-reordering-simplified/"><u>[New] YouTube Playlist Reordering Simplified</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-your-shorts-image-visible-again/"><u>[Updated] How to Make Your Shorts' Image Visible Again</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-playbook-for-youtube-shorts-income-boost/"><u>[Updated] The Ultimate Playbook for YouTube Shorts Income Boost</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-transformative-techniques-to-mute-background-noise/"><u>[Updated] Transformative Techniques to Mute Background Noise</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-visual-narratives-at-your-fingertips-explore-the-10-best-banner-designers/"><u>[Updated] Visual Narratives at Your Fingertips Explore the 10 Best Banner Designers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-12-mini-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone 12 mini iCloud Lock</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/bewegungsfreie-dvd-duplikate-auf-microsd-schreiben-unter-macoswindows-10-schnelllosung/"><u>Bewegungsfreie DVD Duplikate Auf microSD Schreiben Unter macOS/Windows 10 – Schnelllösung</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-windows-task-sequence-failure-error-0x8007000f/"><u>Navigating Through Windows' Task Sequence Failure (Error 0X8007000f)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/rise-above-struggles-10-empowering-movies-for-life/"><u>Rise Above Struggles 10 Empowering Movies for Life</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Solving the Mystery: Why Your Final USB Gadget Isn't Working on Windows"
-date: 2024-12-19T21:40:11.222Z
-updated: 2024-12-24T21:09:09.669Z
+date: 2024-12-30T03:03:32.827Z
+updated: 2025-01-02T07:46:29.251Z
 tags:
   - win11
   - win10
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
 
  making it impossible for you to do whatever you want to do, you’re not alone. Many Windows 10 users are reporting this as well. But no worries, this problem is not that hard to fix at all. If you’re not interested in the cause of this problem, jump ahead to the [fixes](https://uperfect.sjv.io/g1jgba) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why would I see this problem?
 
  The exact cause to this problem varies on different combinations of computer environments. It could be caused by malfunctioned USB ports, USB controllers bugs, or outdated, missing or faulty USB ports.
@@ -40,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
  Method 3: [**Disable USB selective suspend settings**](https://exvist.pxf.io/dkpnky)
  Method 4:[](https://homestyler.sjv.io/y209g3) [**Re-enable USB controller driver**](https://bluettifr.pxf.io/bax2bv)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: Try another USB port
 
  If you are with a desktop, try to connect your USB device to your computer via the USB ports at the back of your computer case. The USB ports at the back usually have stronger electricity power coming through, which will allow a more stable power supply to your USB device.
@@ -51,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
  If you are with a laptop, try unplugging your USB device from its current port and plug it into a different one. Try not to use any USB hubs.
 
  If your problem stops here, the USB port might be at fault, not your USB flash drive. Try to avoid using the same port next time, in case similar problem happens again.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Update all possible device drivers
 
@@ -73,7 +77,7 @@ Or click **Update All**  to automatically download and install the correct versi
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a37721186152.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4) You need to restart your PC for the updated drivers to work properly. Check if your USB device is recognized now.
@@ -94,20 +98,20 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3777c0a811b.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click**Change advanced power settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a377814e701a.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  4) Click to expand**USB settings** and**USB selective suspend setting** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3778a48905d.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  5) Select**Disabled** from the drop-down option. Then click**Apply** and**OK** to save the change.
@@ -128,10 +132,6 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3786b06277a.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) On the top bar, click**View** and then**Show hidden devices** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a378723b37b6.png)
@@ -148,11 +148,11 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a37895fbce37.png)
 
- 3.1.3) When the uninstall finishes, restart your computer. Then repeat the same procedure with the rest of the USB controllers marked by yellow exclamation marks or question marks one by one.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ 3.1.3) When the uninstall finishes, restart your computer. Then repeat the same procedure with the rest of the USB controllers marked by yellow exclamation marks or question marks one by one.
 
 ### 3.2) If you don’t see any drivers marked by yellow exclamation mark or question mark
 
@@ -160,13 +160,13 @@ Or click **Update All**  to automatically download and install the correct versi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a378e629ee28.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3.2.3) When the disable finishes, restart your PC. Repeat the same procedure as above, and if your USB controller driver is not enabled automatically, right-click it and click**Enable device** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a378e29c15b5.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 4) Your USB device should be recognized now.
 
@@ -187,18 +187,22 @@ Or click **Update All**  to automatically download and install the correct versi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2023s-premier-ios-solutions-best-psp-game-simulators/"><u>[New] 2023'S Premier iOS Solutions Best PSP Game Simulators</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-comprehensive-picsart-insight-for-enhanced-creativity/"><u>[New] 2024 Approved Comprehensive PicsArt Insight for Enhanced Creativity</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-effortless-facial-obscurity-in-photos-for-2024/"><u>[New] Effortless Facial Obscurity in Photos for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-mastering-iphones-mirror-images-in-photos-for-2024/"><u>[Updated] Mastering iPhone's Mirror Images in Photos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-validating-your-yt-channels-earnings/"><u>[Updated] The Ultimate Guide to Validating Your YT Channel's Earnings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-power-8-best-no-cost-software-for-videographers-and-editors/"><u>[Updated] Unlock the Power 8 Best No-Cost Software for Videographers & Editors</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-windows-movie-maker-tips-for-youtube-editing-excellence/"><u>[Updated] Windows Movie Maker Tips for YouTube Editing Excellence</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-turning-viewers-into-vendors-mastery-of-youtube-income-streams/"><u>2024 Approved Turning Viewers Into Vendors Mastery of YouTube Income Streams</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/in-depth-analysis-by-toms-electronics-guide/"><u>In-Depth Analysis by Tom's Electronics Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-assessing-used-ipads-key-points-for-smart-shopping/"><u>The Ultimate Guide to Assessing Used iPads - Key Points for Smart Shopping</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-non-lenovo-non-dell-2-in-1-laptop-deal-save-big-before-prime-day-insider-tips-from-zdnet/"><u>Top Non-Lenovo, Non-Dell 2-in-1 Laptop Deal: Save Big Before Prime Day - Insider Tips From ZDNet</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/transforming-my-podcast-scripts-using-chatgpt-a-detailed-narrative/"><u>Transforming My Podcast Scripts Using ChatGPT: A Detailed Narrative</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/viral-video-evolution-youtubes-favorites-for-2024/"><u>Viral Video Evolution YouTube's Favorites for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-fast-fortnite-icons-in-minutes/"><u>[New] 2024 Approved Crafting Fast Fortnite Icons in Minutes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-cineblend-app-seamless-video-mashups-for-instagram-for-2024/"><u>[New] CineBlend App Seamless Video Mashups for Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-celebrating-clickers-channel-and-buttons-incentives/"><u>[New] In 2024, Celebrating Clickers Channel & Buttons Incentives</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-how-to-ensure-no-loss-of-frames-during-recording/"><u>[New] In 2024, How To Ensure No Loss of Frames During Recording</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-from-live-stream-to-high-fidelity-choosing-budget-friendly-wav-tools/"><u>[Updated] 2024 Approved From Live Stream to High Fidelity Choosing Budget-Friendly WAV Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-livestream-capturing-solutions-for-content-makers-for-2024/"><u>[Updated] Best Livestream Capturing Solutions for Content Makers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-curating-soundscapes-a-detailed-look-at-youtube-playlists-for-2024/"><u>[Updated] Curating Soundscapes A Detailed Look at YouTube Playlists for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-through-the-best-youtube-to-avi-options/"><u>[Updated] Navigating Through the Best YouTube-to-AVI Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtubes-secrets-to-efficient-frame-viewing-free/"><u>[Updated] YouTube's Secrets to Efficient Frame Viewing (FREE!)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-filmmaking-essentials-plus-invaluable-substitutes/"><u>2024 Approved YouTube's Filmmaking Essentials + Invaluable Substitutes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-creators-set-up-a-profitable-youtube-chanel/"><u>Budding Creators Set Up a Profitable YouTube Chanel</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-14-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi 14 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-iphone-se-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone SE Lock Screen</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/start-with-strategy-launching-an-online-dominant-gaming-channel-for-2024/"><u>Start with Strategy Launching an Online Dominant Gaming Channel for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-portable-speakers-for-your-backyard/"><u>Top-Rated Portable Speakers for Your Backyard</u></a></li>
+<li><a href="https://win-lab.techidaily.com/troubleshooting-guide-for-handling-request-blockage-caused-by-peripheral-malfunction/"><u>Troubleshooting Guide for Handling Request Blockage Caused by Peripheral Malfunction</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potent-and-renewable-energy-features-of-romers-flashlight-a-must-have-outdoor-essential/"><u>Unveiling the Potent and Renewable Energy Features of Romer's Flashlight: A Must-Have Outdoor Essential</u></a></li>
 </ul></div>
 

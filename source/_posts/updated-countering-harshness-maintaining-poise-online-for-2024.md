@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Countering Harshness  Maintaining Poise Online for 2024\""
-date: 2024-08-01T10:04:15.242Z
-updated: 2024-08-02T10:04:15.242Z
+date: 2024-12-27T19:52:40.386Z
+updated: 2025-01-01T21:50:03.238Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/dSjnDbMbPpuzVmEe9tE14TgYscs=/400x300/fi
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://www.lifewire.com/thmb/dSjnDbMbPpuzVmEe9tE14TgYscs=/400x300/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://www.lifewire.com/thmb/dSjnDbMbPpuzVmEe9tE14TgYscs=/400x300/fi
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,12 +68,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-direct-to-youtube-stepwise-process-of-mobile-and-desktop-video-posting-for-2024/"><u>[New] Direct to YouTube Stepwise Process of Mobile & Desktop Video Posting for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-comparing-youtube-policies-with-creative-commons/"><u>[New] In 2024, Comparing YouTube Policies with Creative Commons</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-layering-yt-music-with-visual-expressions/"><u>[New] Layering YT Music with Visual Expressions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-video-based-instruction-using-youtube/"><u>[New] Mastering the Art of Video-Based Instruction Using YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-youtube-channel-blocking-a-step-by-step-approach/"><u>[New] Mastering the Art of Youtube Channel Blocking A Step-by-Step Approach</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-optimal-assortment-premier-webcam-stabilizers/"><u>[New] Optimal Assortment Premier Webcam Stabilizers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tactics-for-handling-youtubes-copyright-strikes-effectively/"><u>[New] Tactics for Handling YouTube's Copyright Strikes Effectively</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-revenue-streams-cross-device-studio-strategies/"><u>[New] YouTube Revenue Streams Cross-Device Studio Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-5-non-youtube-editing-tools-for-vids/"><u>[Updated] In 2024, Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-modern-content-curators-guide-to-branding-10-tools/"><u>[Updated] The Modern Content Curator's Guide to Branding - 10 Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-samsung-galaxy-a14-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Samsung Galaxy A14 5G? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592207-9781469785967-awaken-and-unleash-your-victor/"><u>Awaken and Unleash Your Victor | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210345135-9781940837659-heroes-saints-and-yogis/"><u>Heroes, Saints, and Yogis | Free Book</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-xiaomi-redmi-12-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Xiaomi Redmi 12 Through Google Earth?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-microsoft-shop-hurdles-code-0x80073cf3/"><u>Navigating Through Microsoft Shop Hurdles Code: 0X80073CF3</u></a></li>
+<li><a href="https://program-issues.techidaily.com/necromunda-hired-gun-continues-to-face-pc-crashes-find-solutions/"><u>Necromunda: Hired Gun Continues to Face PC Crashes – Find Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-quick-clip-quandary-youtube-shorts-advantage-over-tiktok-in-2024/"><u>The Quick-Clip Quandary YouTube Shorts' Advantage Over TikTok, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-secrets-low-light-iphone-photography-for-2024/"><u>Unveiling Secrets Low Light iPhone Photography for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/vob-mp4-online/"><u>VOB를 MP4로 제공하는 무료 Online 툴킷 - 모바이비</u></a></li>
+</ul></div>
 

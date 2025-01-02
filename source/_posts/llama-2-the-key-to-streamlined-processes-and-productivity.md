@@ -1,7 +1,7 @@
 ---
 title: "Llama 2: The Key to Streamlined Processes and Productivity"
-date: 2024-12-22T22:34:41.814Z
-updated: 2024-12-24T22:01:21.935Z
+date: 2024-12-29T17:36:45.199Z
+updated: 2025-01-02T03:04:48.205Z
 tags:
   - chatgpt
   - open-ai
@@ -16,7 +16,7 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
 ## OpenAI Rolls Out Tailored GPT Experience: Learn How to Access and Utilize the Custom Store Now
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Quick Links
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/ed631fce79a85bf0cd5e756384d355b32be9ff521
  ChatGPT's custom GPT Store is open right now, and this is how you can use it to find the pre-programmed AI tools you need.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Access the GPT Store
@@ -58,25 +58,25 @@ How do you know when you've been granted access?
 ![Screenshot of the GPT store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store.jpg)
 3. You can also use the search bar to find GPTs by keyword or related terms.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![GPT Store search screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/gpt-store-search-screen.jpg)
 4. When you find a GPT you want to try, click on it to open the individual GPT page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 5. On the GPT page, you will see information about what that model offers.
 6. After testing a GPT that solves your problem well, take one important extra step—click on the GPT name in the top left corner of the page, then click**Keep in sidebar** . This saves that GPT to the sidebar along with your chat history for easy future access.  
 ![Adding a GPT to sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/adding-a-gpt-to-sidebar.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  However, you should note that at the time of writing, the GPT Store isn't reviewed, and there is no rating system or otherwise. We're hoping that OpenAI will introduce some type of rating system in the near future, as currently, without any system in place, you're effectively on your own when it comes to figuring out what works well. By extension, it seems likely that some form of rating or review system will be implemented once GPT Store revenue sharing is launched, but OpenAI hasn't given any fixed timeline for this.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is it Worth Upgrading to ChatGPT Plus to Use Custom GPTs?
@@ -102,19 +102,22 @@ How do you know when you've been granted access?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>[New] 2024 Approved Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-master-the-art-of-live-sound-capture-on-the-internet/"><u>[New] 2024 Approved Master the Art of Live Sound Capture on the Internet</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-boosting-visuals-with-photoshops-motion-blur-effect-tutorial/"><u>[New] Boosting Visuals with Photoshop's Motion Blur Effect Tutorial</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-captivating-features-the-allure-of-filmora-editing/"><u>[New] In 2024, Captivating Features The Allure of Filmora Editing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-content-creation-battleground-choosing-between-vimeo-youtube-dailymotion/"><u>[Updated] 2024 Approved Content Creation Battleground Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[Updated] Directing Content Destination From iMovie Files To YouTube Platform</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-capitalize-on-your-youtube-shorts-for-cash-flow/"><u>[Updated] How to Capitalize on Your YouTube Shorts for Cash Flow</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-freeweb-cams-features-uncovered-in-detail/"><u>2024 Approved FreeWeb Cam's Features Uncovered in Detail</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-devices-to-desktops-proven-file-transfer-ways/"><u>2024 Approved From Devices to Desktops Proven File Transfer Ways</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/free-online-conversion-change-audio-units-from-au-to-high-quality-mp3-with-movavi/"><u>Free Online Conversion: Change Audio Units From AU to High-Quality MP3 with Movavi</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/perfecting-online-visuals-beauty-focused-color-correction-for-2024/"><u>Perfecting Online Visuals Beauty-Focused Color Correction for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/remedying-unresponsive-netflix-application-on-pc/"><u>Remedying Unresponsive Netflix Application on PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/stand-out-in-a-sea-of-content-our-offer-includes-50-free-banners-for-2024/"><u>Stand Out in a Sea of Content - Our Offer Includes 50 Free Banners for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/be-awareness-tactics-for-social-media-visibility/"><u>YouTube Awareness Tactics for Social Media Visibility</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-capture-and-share-best-social-media-tools-of-the-year/"><u>[New] 2024 Approved Capture and Share Best Social Media Tools of the Year</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-comprehensive-list-securing-monetized-youtube-content/"><u>[New] 2024 Approved Comprehensive List Securing Monetized YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-clearing-your-browsers-watched-videos-for-2024/"><u>[New] Clearing Your Browser's Watched Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-your-music-crafting-stunning-lyric-videos-using-lyric-video-maker/"><u>[New] In 2024, Elevating Your Music Crafting Stunning Lyric Videos Using Lyric Video Maker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-8-tools-linux-based-edits-software/"><u>[New] In 2024, Essential 8 Tools Linux-Based Edits Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion/"><u>[New] In 2024, The Ultimate Platform Question Who's the Best - Vimeo or YouTube+Dailymotion?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-digital-diving-into-youtubes-veiled-video-vaults-for-2024/"><u>[Updated] Digital Diving Into YouTube’s Veiled Video Vaults for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-zero-to-hero-in-youtubing-equipment-essentials/"><u>[Updated] From Zero to Hero in YouTubing Equipment Essentials</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-essential-extras-for-capturing-dynamic-footage/"><u>[Updated] In 2024, Essential Extras for Capturing Dynamic Footage</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-peak-hours-best-times-for-instagram-posts-for-2024/"><u>[Updated] Navigating Peak Hours Best Times for Instagram Posts for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/cutting-edge-alternatives-to-vimeos-video-editor/"><u>Cutting Edge Alternatives to Vimeo's Video Editor</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descubra-como-instalar-eficientemente-la-libreria-libdvdcss-junto-con-handbrake-en-sistemas-mac-y-windows-10-para-una-copia-segura-de-dvds/"><u>Descubra Como Instalar Eficientemente La Libreria Libdvdcss Junto Con HandBrake en Sistemas Mac Y Windows 10 Para Una Copia Segura De DVDs</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-oppo-a59-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vloggers-guide-to-choosing-camera-essentials-the-top-9-accessories/"><u>In 2024, Vloggers' Guide to Choosing Camera Essentials - The Top 9 Accessories</u></a></li>
+<li><a href="https://discover-great.techidaily.com/latest-update-downloaded-pcdjs-dex-dj-mixing-platform-v3801-now-available-for-enthusiasts/"><u>Latest Update Downloaded: PCDJ's DEX DJ Mixing Platform v3.8.0.1 Now Available for Enthusiasts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-league-of-legends-stability-a-fast-track-fix-for-persistent-issues/"><u>Mastering League of Legends Stability: A Fast Track Fix for Persistent Issues</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-youtube-thumbnails-that-get-views-for-2024/"><u>The Ultimate Guide to YouTube Thumbnails that Get Views for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Investigating YouTube Dialogues"
-date: 2024-08-01T10:03:03.464Z
-updated: 2024-08-02T10:03:03.464Z
+date: 2024-12-30T17:04:44.611Z
+updated: 2025-01-01T21:11:47.699Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
 
 # How to Search Comments on YouTube Quickly?
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -60,16 +57,18 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -82,9 +81,6 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -111,15 +107,16 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -128,12 +125,17 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -164,12 +166,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/5plus-best-iphoneipad-video-editing-tools-in-free-market-for-2024/"><u>[New] 15+ Best iPhone/iPad Video Editing Tools in Free Market for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-hashtags-for-youtube-to-get-your-views-to-6-figures/"><u>[New] 2024 Approved Best Hashtags for YouTube To Get Your Views to 6 Figures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-epic-soundscape-trending-audio-for-cutting-edge-youtube-short-videos/"><u>[New] 2024 Approved Epic Soundscape Trending Audio for Cutting-Edge YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-deep-dive-into-effective-youtube-banner-techniques-for-2024/"><u>[New] A Deep Dive Into Effective YouTube Banner Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-captivating-mukbang-content-step-by-step/"><u>[New] In 2024, Creating Captivating Mukbang Content Step-By-Step</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-19-affordable-audio-extractors-to-get-youtube-music-on-your-device/"><u>[New] Top 19 Affordable Audio Extractors to Get YouTube Music on Your Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channeling-musical-charm-crafting-custom-playlists-on-youtube/"><u>[Updated] 2024 Approved Channeling Musical Charm Crafting Custom Playlists on Youtube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-comprehensive-guide-to-downloading-standardized-youtube-images/"><u>[Updated] Comprehensive Guide to Downloading Standardized YouTube Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficient-ways-to-clean-your-youtube-watch-later-playlist-for-2024/"><u>[Updated] Efficient Ways to Clean Your YouTube Watch Later Playlist for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-eliminate-your-streaming-darkness-on-youtube-for-2024/"><u>[Updated] Eliminate Your Streaming Darkness on YouTube for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-asmr-and-you-understanding-its-healing-power/"><u>[Updated] In 2024, ASMR and You Understanding Its Healing Power</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-your-contents-reach-without-breaching-laws/"><u>[Updated] In 2024, Elevating Your Content's Reach Without Breaching Laws</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-earning-edge-reached-for-subscribers-above-500/"><u>2024 Approved Earning Edge Reached for Subscribers Above 500</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-vivo-s17t-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Vivo S17t?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-select-a-premium-360-camera-today/"><u>How to Select a Premium 360 Camera Today</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-masterful-background-selection-tips/"><u>In 2024, Masterful Background Selection Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/microsoft-teams-performance-leap-forward/"><u>Microsoft Teams' Performance Leap Forward</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-for-boosting-your-youtube-shorts-audience-for-2024/"><u>Strategies for Boosting Your YouTube Shorts Audience for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-vn-video-editor-app-review-pros-and-cons-for-2024/"><u>Updated VN Video Editor App Review Pros and Cons for 2024</u></a></li>
+</ul></div>
 

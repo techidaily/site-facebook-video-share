@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Youth Empowerment  Your Life Story Can Inspire\""
-date: 2024-12-18T20:32:41.177Z
-updated: 2024-12-24T17:08:09.330Z
+date: 2024-12-30T05:19:57.920Z
+updated: 2025-01-01T22:34:38.097Z
 tags:
   - ai video
   - ai youtube
@@ -49,13 +49,13 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
@@ -65,12 +65,16 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
@@ -90,21 +94,17 @@ This is probably one of the easiest ways to share things about yourself when sta
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,24 +122,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-visibility-top-9-thumbnail-design-tools-for-creators/"><u>[New] 2024 Approved Enhance Visibility Top 9 Thumbnail Design Tools for Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-breakdown-of-steps-perfecting-idevice-video-features-on-youtube-for-2024/"><u>[New] Breakdown of Steps Perfecting iDevice Video Features on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-effective-team-videos-boosting-channelnode-growth-rate-for-2024/"><u>[New] Effective Team Videos Boosting Channelnode Growth Rate for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-10-amazing-world-wanderlust-channels/"><u>[New] In 2024, Discover 10 Amazing World Wanderlust Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-monetary-gains-mr-beast-in-focus/"><u>[New] Monetary Gains Mr. Beast in Focus</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-choosing-an-original-channel-moniker-a-guide-for-filmmakers-with-filmora/"><u>[Updated] 2024 Approved Choosing an Original Channel Moniker A Guide for Filmmakers with Filmora</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-parroting-perfection-dissecting-bebops-latest-flight-feature/"><u>[Updated] 2024 Approved Parroting Perfection Dissecting Bebop's Latest Flight Feature</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-efficiently-edit-your-youtube-videos-using-sony-vegas-for-2024/"><u>[Updated] Efficiently Edit Your YouTube Videos Using Sony Vegas for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-brand-your-youtube-channel-to-get-more-subscribers/"><u>[Updated] How to Brand Your YouTube Channel to Get More Subscribers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-transforming-mundane-interviews-into-memorable-experienrances/"><u>[Updated] In 2024, Transforming Mundane Interviews Into Memorable Experienrances</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-voice-log-retrieval-content-scrutiny/"><u>[Updated] In 2024, Voice Log Retrieval, Content Scrutiny</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-master-tips-securing-audio-for-unboxing-vids/"><u>[Updated] Master Tips Securing Audio for Unboxing Vids</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-slide-by-slide-audio-integration-for-dynamic-ppts/"><u>2024 Approved Slide-by-Slide Audio Integration for Dynamic PPTs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/green-background-blueprints-download-free-practical-template-guides-for-2024/"><u>Green Background Blueprints Download Free, Practical Template Guides for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/ignite-your-startups-growth-with-these-top-social-media-tips/"><u>Ignite Your Startup's Growth with These Top Social Media Tips</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-eco-film-hub-dive-into-green-screen-creativity/"><u>In 2024, Youtube’s Eco-Film Hub Dive Into Green Screen Creativity</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/simplify-collaboration-with-mematics-cloud-notes/"><u>Simplify Collaboration with Mematic’s Cloud Notes</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/yahoo-fantasy-sports-application-resolved-issues-with-load-time-and-functionality/"><u>Yahoo Fantasy Sports Application: Resolved Issues with Load Time and Functionality</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-video-popularity-on-youtube/"><u>[New] 2024 Approved Elevating Video Popularity on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-chronicles-of-youtube-the-ultimate-viral-list/"><u>[New] In 2024, Chronicles of YouTube The Ultimate Viral List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-the-mystery-of-downloading-youtube-playlists/"><u>[New] Unraveling the Mystery of Downloading YouTube Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-deleting-youtube-comments-for-2024/"><u>[Updated] Deleting YouTube Comments for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhanced-video-clarity-on-iphone-and-android-platforms-for-2024/"><u>[Updated] Enhanced Video Clarity on iPhone & Android Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gaming-insiders-youtube-channels-you-should-see/"><u>[Updated] Gaming Insiders' YouTube Channels You Should See</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>[Updated] In 2024, Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-learn-the-basics-of-facebook-metrics-easily/"><u>[Updated] Learn the Basics of Facebook Metrics, Easily</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-navigating-the-landscape-of-fb-video-advertising-with-best-practices-for-2024/"><u>[Updated] Navigating the Landscape of FB Video Advertising with Best Practices for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-free-system-refreshes-on-windows-11-strategies-to-correct-the-there-was-a-problem-message/"><u>Error-Free System Refreshes on Windows 11: Strategies to Correct the 'There Was a Problem' Message</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-spark-creativity-with-costless-auditory-extras/"><u>In 2024, Spark Creativity with Costless Auditory Extras!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-video-kick-offs-the-best-16-youtube-vlogs-to-increase-views-for-2024/"><u>Leading Video Kick-Offs The Best 16 YouTube Vlogs to Increase Views for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/scheduling-zoom-conferences-for-android-users/"><u>Scheduling Zoom Conferences for Android Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/solving-your-computers-sound-issues-a-step-by-step-guide-powered-by-yl-computing/"><u>Solving Your Computer's Sound Issues: A Step-by-Step Guide - Powered by YL Computing</u></a></li>
 </ul></div>
 

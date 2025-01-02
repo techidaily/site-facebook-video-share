@@ -1,7 +1,7 @@
 ---
 title: Guide to Repairing HyperX Cloud Alpha Microphone Failures
-date: 2024-12-17T16:55:33.329Z
-updated: 2024-12-24T18:44:23.786Z
+date: 2024-12-30T02:44:40.780Z
+updated: 2025-01-02T04:04:59.787Z
 tags:
   - win11
   - win10
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
  Cloud Alpha S is still one of the most popular products of HyperX. But some users have reported their headset mic is not working. If you’re on the same boat, don’t worry. It’s rather easy to fix, and we’ve put together some working fixes for you. Read on and find out what they are…
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes…
 
  You don’t have to try them all; just work your way down the list until you find the one that does the trick!
@@ -33,25 +37,13 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
 [5: Update your audio driver](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 1: Make sure your microphone connection is solid
 
  HyperX Cloud Alpha S continues the design of the detachable microphone from the regular Cloud Alpha. If your microphone is not connected firmly, you may still hear sounds from your headset but can’t use the microphone.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/hx-product-headset-alpha-s-black-2-lg-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you’ve attached the microphone to your headset correctly but your mic still won’t catch your voice, try the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 2: Enable your headset mic for recording
 
@@ -64,15 +56,23 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_16-57-37.jpg)
 3. Right-click your headset, then click**Enable** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-05-17.jpg)
 4. Click**Apply** then**OK** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/2021-05-07_17-06-58.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If your headset is enabled for recording but the microphone is still not working, move on to the next fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 3: Set your headset as the audio input device
@@ -88,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
  If your headset is set as the input device but the mic still won’t work, try the next fix.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 4: Turn on the mic access on your PC
 
  If you’ve tried the above fixes but nothing worked, then the problem may be on your PC. You may need to check if the microphone access on your PC is enabled. Here’s now:
@@ -95,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 1. Type**microphone** in the search bar next to the Start button, and click**Microphone privacy settings** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-08-05.jpg)
 2. Click**Change** , then**turn on the microphone access** **for this device** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_18-10-26.jpg)
 
@@ -115,16 +123,8 @@ If this doesn’t fix your mic problem, try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-35.jpg)
 3. Click the **Update**  button next to the flagged audio driver to automatically download the correct version of the driver, then you can manually install it (you can do this with the FREE version).  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the [Pro version](https://tools.techidaily.com/drivereasy/download/) which comes with full support and a 30-day money-back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-07_17-54-43.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -149,20 +149,22 @@ If this doesn’t fix your mic problem, try the next fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-your-content-creation-with-these-top-12-cameras/"><u>[New] 2024 Approved Enhance Your Content Creation with These Top 12 Cameras</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-capture-every-angle-how-to-create-dynamic-viewpoint-driven-reaction-vids-for-youtube-success-for-2024/"><u>[New] Capture Every Angle – How to Create Dynamic, Viewpoint-Driven Reaction Vids for YouTube Success for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-secrets-to-amassing-affordable-artistic-elements/"><u>[New] Secrets to Amassing Affordable Artistic Elements</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-10-filmora-editing-traits-for-fan-loyalty/"><u>[New] Top 10 Filmora Editing Traits for Fan Loyalty</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[Updated] 2024 Approved Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boost-engagement-through-best-thumbnail-practices/"><u>[Updated] 2024 Approved Boost Engagement Through Best Thumbnail Practices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-convert-youtube-to-mp3-safely-top-3-guided-approaches/"><u>[Updated] 2024 Approved Convert YouTube to MP3 Safely Top 3 Guided Approaches</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-adopting-nature-positive-policies-in-urban-governance/"><u>[Updated] In 2024, Adopting Nature-Positive Policies in Urban Governance</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-bridging-the-gap-youtube-editing-mastered-in-imovie-workflows/"><u>[Updated] In 2024, Bridging the Gap YouTube Editing Mastered in iMovie Workflows</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-elevate-your-profile-game-strategies-for-fb-success/"><u>[Updated] In 2024, Elevate Your Profile Game Strategies for FB Success</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-snapcutxp-review-complete-evaluation-of-video-editing-software/"><u>[Updated] In 2024, SnapCutXp Review – Complete Evaluation of Video Editing Software</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/identifying-graphic-card-faults-expert-advice-by-yl-software/"><u>Identifying Graphic Card Faults: Expert Advice by YL Software</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-unlocking-private-snapshares-a-comprehensive-tutorial/"><u>In 2024, Unlocking Private Snapshares A Comprehensive Tutorial</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/punpixel-producer/"><u>PunPixel Producer</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/zipping-up-the-journey-to-subrip-text-files/"><u>Zipping Up The Journey to SubRip Text Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-create-a-unique-identity-personalize-your-youtube-url-today/"><u>[New] In 2024, Create a Unique Identity Personalize Your YouTube URL Today</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-7-apps-for-high-quality-youtube-live-streaming-on-iphones-and-android/"><u>[New] In 2024, Essential 7 Apps for High-Quality YouTube Live Streaming on iPhones & Android</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-path-to-profitable-product-placements-on-youtube/"><u>[New] The Path to Profitable Product Placements on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-8-authentic-youtube-growth-tools/"><u>[New] Top 8 Authentic YouTube Growth Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-income-through-effective-video-marketing-for-2024/"><u>[Updated] Boosting Income Through Effective Video Marketing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enter-the-world-of-online-promotion-exclusive-free-youtube-banner-access-for-2024/"><u>[Updated] Enter the World of Online Promotion Exclusive Free YouTube Banner Access for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-bite-sized-broadcasting-maintaining-quality-in-quick-posts/"><u>[Updated] In 2024, Bite-Sized Broadcasting Maintaining Quality in Quick Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-deciphering-online-videography-a-facebook-journey/"><u>[Updated] In 2024, Deciphering Online Videography A Facebook Journey</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-screen-savvy-6-advanced-techniques-to-record-minecraft-sessions-for-2024/"><u>[Updated] Screen Savvy 6 Advanced Techniques to Record Minecraft Sessions for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-seamlessly-integrate-into-others-tiktok-livestreams-for-2024/"><u>[Updated] Seamlessly Integrate Into Others’ TikTok Livestreams for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/convert-rmvb-videos-for-free-using-an-online-service-expert-tips-with-movavi-technology/"><u>Convert RMVB Videos for Free Using an Online Service - Expert Tips with Movavi Technology</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/critical-faux-pas-navigating-around-common-errors-in-generative-ai-use/"><u>Critical Faux Pas: Navigating Around Common Errors in Generative AI Use</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/next-gen-siri-boosted-with-apples-intelligence-upgrades-major-overhaul-coming-insights-from-zdnet/"><u>Next-Gen Siri Boosted with Apple's Intelligence Upgrades; Major Overhaul Coming - Insights From ZDNet</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/picdistort-a-comprehensive-guide-to-image-alteration-for-2024/"><u>PicDistort A Comprehensive Guide to Image Alteration for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-the-2022-dota-2-anti-cheat-alert-steps-to-correct-vac-issues/"><u>Resolving the 2022 Dota 2 Anti-Cheat Alert: Steps to Correct VAC Issues</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/simplifying-the-process-of-deleting-youtube-files-for-2024/"><u>Simplifying the Process of Deleting YouTube Files for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/turn-your-youtube-shorts-into-a-stream-of-income-for-2024/"><u>Turn Your YouTube Shorts Into a Stream of Income for 2024</u></a></li>
 </ul></div>
 

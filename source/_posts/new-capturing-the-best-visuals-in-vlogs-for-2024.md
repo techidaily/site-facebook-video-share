@@ -1,7 +1,7 @@
 ---
 title: "[New] Capturing the Best Visuals in Vlogs for 2024"
-date: 2024-08-01T10:02:45.923Z
-updated: 2024-08-02T10:02:45.923Z
+date: 2024-12-29T23:01:05.708Z
+updated: 2025-01-01T22:03:30.643Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,11 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -48,27 +49,15 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -93,28 +82,27 @@ This is by far the best option if you want to be in complete control of the ligh
 
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -122,12 +110,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>[New] 2024 Approved Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-verifying-ad-revenue-for-channels/"><u>[New] 2024 Approved Verifying Ad Revenue for Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-diving-deep-into-the-income-of-ajey-carryminati-for-2024/"><u>[New] Diving Deep Into the Income of Ajey (CarryMinati) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-smartest-approach-to-launching-your-youtube-businesspersonal-brand-from-phone/"><u>[New] The Smartest Approach to Launching Your YouTube Business/Personal Brand From Phone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-10-iconic-movie-moments-to-inspire-your-edits/"><u>[Updated] 10 Iconic Movie Moments to Inspire Your Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-new-take-on-favorite-movies-7-alternatives/"><u>[Updated] 2024 Approved A New Take on Favorite Movies - #7 Alternatives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dissecting-youtubes-selection-of-trending-video-responses/"><u>[Updated] 2024 Approved Dissecting YouTube's Selection of Trending Video Responses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-achieve-youtube-profitability-the-milestone-of-500plus-subscribers-unlocked-for-2024/"><u>[Updated] Achieve Youtube Profitability The Milestone of 500+ Subscribers Unlocked for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-adding-clear-timestamps-to-your-youtube-channels-live-streams-for-2024/"><u>[Updated] Adding Clear Timestamps to Your YouTube Channel's Live Streams for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-frame-by-frame-building-a-filmmaking-foundation-on-youtube/"><u>[Updated] Frame by Frame Building a Filmmaking Foundation on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-self-sustained-youtube-moguls-handbook-no-ads-only-gains/"><u>[Updated] The Self-Sustained YouTube Mogul’s Handbook No Ads, Only Gains</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-creativity-writing-scripts-for-youtube-content-excellence/"><u>[Updated] Unleashing Creativity Writing Scripts for YouTube Content Excellence</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-unrestricted-free-video-compression-tools-without-any-watermarks-top-picks/"><u>Best Unrestricted Free Video Compression Tools Without Any Watermarks – Top Picks!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exclusive-look-pros-compare-the-finest-apple-watch-bands-of-202zdnet/"><u>Exclusive Look: Pros Compare the Finest Apple Watch Bands of 202([[ZDNET]))</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782507-9781591438564-the-man-who-knew-the-medicine/"><u>The Man Who Knew the Medicine | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-selection-of-dvd-sorter-applications-find-the-ideal-software-in-our-top-6-picks/"><u>The Ultimate Selection of DVD Sorter Applications: Find the Ideal Software in Our Top 6 Picks</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-mechanical-keyboard-picks-insights-by-zdnet/"><u>Top-Rated Mechanical Keyboard Picks - Insights by ZDNet</u></a></li>
+</ul></div>
 

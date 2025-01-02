@@ -1,7 +1,7 @@
 ---
 title: "Solution Guide: Optimizing GPU Usage in Call of Duty: Warzone on Windows 10"
-date: 2024-12-23T20:02:14.215Z
-updated: 2024-12-24T16:49:31.991Z
+date: 2024-12-27T09:29:31.458Z
+updated: 2025-01-01T19:37:48.985Z
 tags:
   - win11
   - win10
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/c878f30c184513e5e2ecdd904a42a40c824bea0f8
 
  Before troubleshooting, you should**try different hardware monitors** to see if it’s just a false alarm.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  You might not need to try all of them, simply work your way down until you find the one that does the trick.
@@ -30,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/c878f30c184513e5e2ecdd904a42a40c824bea0f8
 3. [**Change settings in your graphics control panel**](https://tools.techidaily.com/drivereasy/download/)
 4. [**Set graphics preference to High performance**](https://tools.techidaily.com/drivereasy/download/)
 5. **[Run Warzone in Windowed mode](https://tools.techidaily.com/drivereasy/download/)**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 1: Update your graphics driver
 
@@ -62,35 +70,19 @@ Here’s how you can check for updates manually:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-gear-icon.jpg)
 2. Scroll down and select**Update & Security** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
 Once done, restart your PC and see if Warzone is using your GPU.
 
  If updating your system doesn’t help, you can take a look at the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Change settings in your graphics control panel
 
@@ -104,13 +96,21 @@ Once done, restart your PC and see if Warzone is using your GPU.
 3. In the left pane, select**Set PhysX Configuration** . Under**Select a PhysX processor** , click to expand the drop down list and**select your GPU** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/warzone-nvidia-2.jpg)
 4. Now start your game and check if it’s running properly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If this trick doesn’t work for you, simply move on to the next one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Set graphics preference to High performance
 
@@ -127,18 +127,18 @@ Once done, restart your PC and see if Warzone is using your GPU.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/graphics-settings-warzone-browse.jpg)
 4. Click**Options** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/warzone-force-gpu-1.jpg)
 5. In the pop-up window, select**High performance** and click**OK** to apply the settings.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/warzone-force-gpu-2.jpg)
 6. You can do the same for**Modern Warfare Launcher.exe** . Once done, start Warzone and compare the GPU utilization with the gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If this setting doesn’t help, take a look at the next solution below.
@@ -171,19 +171,15 @@ Once done, restart your PC and see if Warzone is using your GPU.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-constructing-unique-instagram-story-banners-for-2024/"><u>[New] Constructing Unique Instagram Story Banners for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-art-of-youtube-playlist-recalibration-for-2024/"><u>[New] Decoding the Art of YouTube Playlist Recalibration for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-downloading-the-latest-hits-top-youtube-playlist-savers-for-pc/"><u>[New] In 2024, Downloading the Latest Hits Top YouTube Playlist Savers for PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-mastering-freefire-gameplay-essential-youtube-tips/"><u>[New] Mastering FreeFire Gameplay Essential YouTube Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-characters-that-captivate-key-growth-strategies/"><u>[Updated] 2024 Approved Characters That Captivate Key Growth Strategies</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-art-of-space-arrangement-in-fostering-a-high-performing-team/"><u>[Updated] The Art of Space Arrangement in Fostering a High-Performing Team</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-lava-agni-2-5g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on HTC U23? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/nextgen-youtuber-tools-studio-vs-beta-version-for-2024/"><u>NextGen YouTuber Tools Studio Vs. Beta Version for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/professionally-impressive-quick-made-valorant-game-thumbnails-for-2024/"><u>Professionally Impressive, Quick-Made Valorant Game Thumbnails for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/safeguarding-personal-information-from-chatgpts-advanced-gpt-variants/"><u>Safeguarding Personal Information From ChatGPT's Advanced GPT Variants</u></a></li>
-<li><a href="https://driver-error.techidaily.com/solving-screen-reset-on-windows-with-elan-tablet-driver/"><u>Solving Screen Reset on Windows with Elan Tablet Driver</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unleash-powerhouse-performance-with-the-hp-omen-gaming-pc-secure-up-to-550-off-in-this-exclusive-flash-sale/"><u>Unleash Powerhouse Performance with the HP Omen Gaming PC | Secure Up to $550 Off in This Exclusive Flash Sale</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-background-blur-101-boosting-video-clarity-on-youtube/"><u>[New] 2024 Approved Background Blur 101 Boosting Video Clarity on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-speedy-explorer-windows-10-photography-interface/"><u>[New] 2024 Approved Speedy Explorer - Windows 10 Photography Interface</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-joint-filmmaking-and-gaining-followers-quickly/"><u>[New] Joint Filmmaking & Gaining Followers Quickly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expressive-youtube-aesthetics-at-no-cost/"><u>[Updated] In 2024, Expressive YouTube Aesthetics at No Cost</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-rise-to-the-top-the-essentials-of-starting-a-youtube-gaming-sensation-for-2024/"><u>[Updated] Rise to the Top The Essentials of Starting a YouTube Gaming Sensation for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-optimized-recording-software-seamless-every-time/"><u>2024 Approved Optimized Recording Software - Seamless Every Time</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/driving-decisions-perfecting-persuasive-business-proposals-with-ai/"><u>Driving Decisions: Perfecting Persuasive Business Proposals with AI</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719160472458-explore-ioss-finest-gba-emulation-tools/"><u>Explore iOS's Finest GBA Emulation Tools!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-entertaining-videoland-audit/"><u>In 2024, Entertaining Videoland Audit</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/proven-youtube-seo-tricks-boosting-video-reach-and-visibility-for-2024/"><u>Proven YouTube SEO Tricks Boosting Video Reach and Visibility for 2024</u></a></li>
 </ul></div>
 

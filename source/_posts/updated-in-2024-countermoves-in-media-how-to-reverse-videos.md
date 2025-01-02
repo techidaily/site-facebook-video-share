@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Countermoves in Media  How to Reverse Videos\""
-date: 2024-08-01T10:00:11.904Z
-updated: 2024-08-02T10:00:11.904Z
+date: 2024-12-26T23:03:25.929Z
+updated: 2025-01-01T22:19:42.892Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,6 @@ While working on the movies in a professional post-production environment, there
 
 With that said, not every media player or video editing application is capable enough to reverse a movie clip, not at least with merely a few mouse clicks. Therefore, the following sections suggest some such programs that can help you **play YouTube video backward**.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Best Free YouTube Video Reversers Online
 
 There are a few online web programs that are capable of reversing YouTube videos with efficiency. However, some of them may have certain restrictions like file size limit, number of supported formats, fewer or absolutely no editing options, etc.
@@ -41,10 +38,11 @@ Nevertheless, the best five online solutions to **reverse YouTube video** along 
 
 Clideo is not merely a video reverser, but can also convert media files to your preferred format. You can paste the URL of a YouTube video to upload or import the videos from your computer, Dropbox or Google Drive storage. At the time of this writing, Clideo allows only up to **500MB** videos to be uploaded to reverse or convert. As for the acceptability, the portal supports almost all the commonly used formats.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Reverse YouTube videos Online - Clideo](https://images.wondershare.com/filmora/article-images/reverse-youtube-video-clideo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To **play YouTube video backward** with Clideo:
 
@@ -54,15 +52,13 @@ To **play YouTube video backward** with Clideo:
 * Leave the **Mute video** box checked, or uncheck it if required and then click **Reverse** button to **reverse YouTube video.** The maximum reverse speed that you can apply is 2X.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Kapwing
 
 This web solution also supports almost all types of video formats including 3GPP, AVI, MP4, etc. When talking about the limitations of a free user, you can only upload the videos that are up to 7 minutes long. At the time of this writing, Kapwing can accept the source files from your computer, and from the YouTube URL.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Reverse YouTube videos Online - kapwing](https://images.wondershare.com/filmora/article-images/reverse-youtube-video-kapwing.jpg)
 
 To **reverse YouTube video** with Kapwing:
@@ -89,11 +85,19 @@ To **reverse YouTube video** with Ezgif:
 
 Note: It seems that you can’t customize the reverse speed on EZGif but you can choose to mute the reversed audio or not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4. VideoReverser
 
 Although this web solution has an extremely simple interface, the files that you can upload must not exceed 10MB in size. The portal supports formats like MPG, MPEG, MP4, AVI, M4V, 3GP, etc. for reversing. In addition to uploading the clips from your PC, VideoReverser also allows you to paste the URL of the footages if they are published on YouTube.
 
 ![Reverse YouTube videos Online - VideoReverser](https://images.wondershare.com/filmora/article-images/reverse-youtube-video-video-reverser.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To **play YouTube video backward** with VideoReverser:
 
@@ -103,17 +107,15 @@ To **play YouTube video backward** with VideoReverser:
 * Use the **Remove audio track** checkbox to get rid of the acoustics or leave the sound enabled;
 * Click **Start** to **reverse YouTube video.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 5. Pixiko
 
 With almost all formats’ support, Pixiko is yet another web-based media editor that can also **reverse YouTube video** with a few mouse clicks. At the time of this writing, Pixiko only accepts the source files from your PC, which means you can’t paste the YouTube link to it directly. At first, you need to download or save the YouTube video on computer and then either drag those clips from your local hard drive to the portal.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Reverse YouTube videos Online - Pixiko](https://images.wondershare.com/filmora/article-images/reverse-youtube-video-pixiko.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To **play YouTube video backward** with Pixiko:
 
@@ -122,16 +124,10 @@ To **play YouTube video backward** with Pixiko:
 * Click **Reverse** from the lower-right section of the video player window;
 * Follow the on-screen instructions from there to manage and **reverse YouTube video** as needed;
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus: Reversing YouTube Video with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 With easily reachable editing options and self-explanatory buttons, Wondershare Filmora has gained a decent amount of popularity in the recent years. The program is available for both Windows and Mac platforms, and gives tough competition to other leading tools of the industry such as Adobe Premiere Pro, Final Cut Pro X, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 When talking about the playback speed, with the help of available presets, it can be increased or decreased by 100x or 0.01x respectively. One of the presets also enables you to reverse the direction of the playback quite easily, i.e. while keeping the speed intact. In addition, the ‘Custom Speed’ option lets you control the preferences more granularly.
@@ -144,24 +140,14 @@ Note: To remain compliant with the terms and conditions, and to respect the copy
 
 Launch Wondershare Filmora on your Windows or Mac computer (Windows 10 here), making sure that the **Media** button in the standard toolbar at the top is selected, click inside the **Media** window, and select and import the YouTube source video to the program. Next, drag the YouTube video clip to the Timeline, and when the confirmation box appears, click the **Match to Media** or **Keep Project Settings** button as needed to get the footage to the Timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![Add YouTube Video to Timeline](https://images.wondershare.com/filmora/article-images/add-youtube-video-to-timeline.jpg)
 
 ### 2. Reverse the Video (Using the Preset)
 
 Click and select the media clip in the Timeline, click the **Speed** icon present above the Timeline itself, and click the **Reverse** option from the menu that appears to reverse the video playback.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![Select Reverse on Speed Icon](https://images.wondershare.com/filmora/article-images/filmora-speed-icon-reverse.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3. Reverse the Video (Manual Control)
 
 ![Filmora Custom Speed](https://images.wondershare.com/filmora/article-images/youtube-video-speed-custom.jpg)
@@ -172,18 +158,27 @@ Select the media clip in the Timeline and click the **Speed** icon as explained 
 
 Back on the main window, click **EXPORT** from the top. Filmora provides several ways to saving and sharing the video.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Save Reversed YouTube videos](https://images.wondershare.com/filmora/article-images/export-save-reversed-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can select the **Local** tab, choose your preferred output format from the list in the left, in the right window, define a name and location for the file that you are about to export, and click **EXPORT** from the bottom-right corner to export the video with the reverse playback.
 
 ![upload video to YouTube in Filmora](https://images.wondershare.com/filmora/article-images/export-video-youtube-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Or, go to the YouTube tab and sign in your YouTube account to upload the reversed video to YouTube directly. In the YouTube upload interface, you can optimize the [YouTube SEO](https://tools.techidaily.com/wondershare/filmora/download/) elements and revise the video title, description, category and tags.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -197,12 +192,23 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-9-free-custom-youtube-branding-tools-online/"><u>[New] In 2024, Top 9 FREE Custom YouTube Branding Tools Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transform-your-short-form-content-top-10-mobile-video-cutting-tools/"><u>[New] Transform Your Short-Form Content Top 10 Mobile Video Cutting Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-micro-movie-maker/"><u>[Updated] Micro Movie Maker</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-easy-way-to-craft-your-digital-self-in-virtual-worlds/"><u>[Updated] The Easy Way to Craft Your Digital Self in Virtual Worlds</u></a></li>
+<li><a href="https://techtrends.techidaily.com/code-31-in-windows-explained-quick-solutions-to-keep-you-running-smoothly/"><u>Code 31 in Windows Explained: Quick Solutions to Keep You Running Smoothly</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/enhance-your-screens-with-yl-softwares-high-definition-black-widow-wallpaper-series/"><u>Enhance Your Screens with YL Software's High-Definition Black Widow Wallpaper Series</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-wanderlust-wonders-crafting-engaging-travel-content-for-your-audience/"><u>In 2024, Wanderlust Wonders Crafting Engaging Travel Content for Your Audience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-qn55q60rafxza-4k-uhd-tv-analysis-top-tier-hdr10plus-features/"><u>Samsung QN55Q60RAFXZA 4K UHD TV Analysis: Top-Tier HDR10+ Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tech-savvy-uploads-iphone-videos-to-youtube-for-2024/"><u>Tech-Savvy Uploads IPhone Videos to YouTube for 2024</u></a></li>
+</ul></div>
 

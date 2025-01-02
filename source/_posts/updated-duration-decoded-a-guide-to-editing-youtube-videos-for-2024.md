@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos for 2024\""
-date: 2024-12-22T20:15:19.922Z
-updated: 2024-12-24T21:10:21.217Z
+date: 2024-12-26T16:48:21.225Z
+updated: 2025-01-01T21:04:21.245Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,24 +103,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cinematic-evolution-the-best-youtube-guides-for-new-filmmakers/"><u>[Updated] 2024 Approved Cinematic Evolution The Best YouTube Guides for New Filmmakers</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-illustrate-and-write-with-iosandroid-tools/"><u>[Updated] 2024 Approved Illustrate & Write with iOS/Android Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-beam-your-content-upward-perfecting-youtube-seo-techniques-for-2024/"><u>[Updated] Beam Your Content Upward Perfecting YouTube SEO Techniques for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-11-popular-video-extractors-online/"><u>[Updated] In 2024, 11 Popular Video Extractors Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dive-deep-into-duality-mastering-multi-video-watching-on-youtube/"><u>[Updated] In 2024, Dive Deep Into Duality Mastering Multi-Video Watching on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-maker-milestones-subscriber-and-interactive-feature-prizes/"><u>[Updated] Maker Milestones Subscriber & Interactive Feature Prizes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-pro-tools-pro-results-elevating-video-quality-in-youtube-editing/"><u>[Updated] Pro Tools, Pro Results Elevating Video Quality in YouTube Editing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-definitive-guide-to-proportion-perfection-in-youtube/"><u>[Updated] The Definitive Guide to Proportion Perfection in YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-your-channels-potential-increase-youtube-views/"><u>[Updated] Unleashing Your Channel's Potential Increase YouTube Views</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-launch-any-video-projects-with-free-kits/"><u>2024 Approved Launch Any Video Projects with Free Kits</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-m14-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Samsung Galaxy M14 5G Phone without PIN</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-crafty-laughter-your-adobe-guide/"><u>In 2024, Crafty Laughter Your Adobe Guide</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-poco-c65-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Poco C65 FRP</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-samsung-galaxy-a15-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Samsung Galaxy A15 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-chatgpt-add-ons-installation-and-usage-tips/"><u>Mastering ChatGPT Add-Ons: Installation & Usage Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ct-end-screen-and-cards-strategies-for-yt-for-2024/"><u>Perfect End Screen & Cards Strategies for YT for 2024</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-samsung-galaxy-a15-4g-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Samsung Galaxy A15 4G</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-blueprint-designing-your-first-youtube-trailer-for-2024/"><u>The Blueprint Designing Your First YouTube Trailer for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-walkthrough-for-creating-stunning-images-with-photo-cutouts-on-ios-16-devices/"><u>The Ultimate Walkthrough for Creating Stunning Images with Photo Cutouts on iOS 16 Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-ascend-your-earning-game-executing-a-three-part-blueprint-for-youtube-revenue-analysis/"><u>[New] 2024 Approved Ascend Your Earning Game Executing a Three-Part Blueprint for YouTube Revenue Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-beginning-the-video-odyssey-how-to-create-an-engaging-youtube-channel/"><u>[New] 2024 Approved Beginning the Video Odyssey How to Create an Engaging YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-videos-auditory-experience-on-youtube/"><u>[New] 2024 Approved Elevate Your Video's Auditory Experience on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-advanced-techniques-using-jump-cuts-effectively-for-2024/"><u>[New] Advanced Techniques Using Jump Cuts Effectively for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-5-effective-tricks-for-youtube-subscriber-surges/"><u>[Updated] 2024 Approved 5 Effective Tricks for YouTube Subscriber Surges</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-comedy-central-the-best-laughter-inducing-channels-online/"><u>[Updated] 2024 Approved Comedy Central The Best Laughter-Inducing Channels Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-basic-to-breakthrough-content-crafting-the-top-10-simplest-youtube-projects-for-2024/"><u>[Updated] Basic to Breakthrough Content Crafting the Top 10 Simplest YouTube Projects for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebooks-2023-video-innovations-embracing-the-short-form-approach-for-2024/"><u>[Updated] Facebook’s 2023 Video Innovations Embracing the Short-Form Approach for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-monetizing-micro-vlogs-a-step-by-step-guide/"><u>[Updated] Monetizing Micro-Vlogs A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-apple-iphone-xs-max-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile Apple iPhone XS Max online without SIM Card?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-se-2022-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix Apple iPhone SE (2022) Passcode not Working?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-securing-your-social-snapshot-instagram-edition/"><u>In 2024, Securing Your Social Snapshot Instagram Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimal-youtube-playback-adjusting-speed-settings-for-2024/"><u>Optimal YouTube Playback Adjusting Speed Settings for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/psyche-up-with-customized-console-voices/"><u>Psyche Up with Customized Console Voices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/selecting-the-ideal-vr-device-seeking-simplicity-with-wireless-or-precision-with-tethers-for-2024/"><u>Selecting the Ideal VR Device Seeking Simplicity with Wireless, Or Precision With Tethers for 2024</u></a></li>
 </ul></div>
 
