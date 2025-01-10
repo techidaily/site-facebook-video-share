@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-12-31T03:11:10.778Z
-updated: 2025-01-02T01:45:27.888Z
+date: 2025-01-02T16:22:31.486Z
+updated: 2025-01-09T16:24:49.207Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,22 +77,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-combating-content-id-blocks-on-youtube-with-knowledge/"><u>[New] 2024 Approved Combating Content ID Blocks on YouTube with Knowledge</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dazzle-and-stand-out-50-free-youtube-branding-pieces/"><u>[New] 2024 Approved Dazzle and Stand Out 50 FREE YouTube Branding Pieces</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-practices-in-selecting-youtube-video-extractor-apps-for-android/"><u>[New] In 2024, Best Practices in Selecting YouTube Video Extractor Apps for Android</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-streamline-slack-collaboration-with-best-10-free-tools-for-2024/"><u>[New] Streamline Slack Collaboration with Best 10 Free Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-beginners-blueprint-for-mobile-youtube-videos/"><u>[New] The Beginner's Blueprint for Mobile YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-time-travelers-guide-to-youtube-queue-watch-from-end-to-start/"><u>[Updated] 2024 Approved A Time Traveler’s Guide to YouTube Queue Watch From End to Start</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audience-market-leaders-in-youtubes-short-clips-downloads/"><u>[Updated] 2024 Approved Audience’ Market Leaders in YouTube's Short Clips Downloads</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dive-into-old-content-youtube-video-recovery-guide/"><u>[Updated] 2024 Approved Dive Into Old Content YouTube Video Recovery Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-inside-out-the-nikon-d7500-experience/"><u>[Updated] 2024 Approved Inside Out The Nikon D7500 Experience</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-tomtom-bandit-cam-unboxed-2023-insights-for-2024/"><u>[Updated] TomTom Bandit Cam Unboxed 2023 Insights for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unveiling-the-secrets-to-blurring-iphone-photos-a-comprehensive-guide/"><u>[Updated] Unveiling the Secrets to Blurring iPhone Photos A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-podcast-vs-youtube-determining-your-digital-destination/"><u>2024 Approved Podcast Vs. YouTube Determining Your Digital Destination</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-virtual-music-showcase/"><u>2024 Approved Superior Virtual Music Showcase</u></a></li>
-<li><a href="https://win-forum.techidaily.com/command-prompt-mastery-how-to-safely-erase-filesfolders-on-windows-amad11/"><u>Command Prompt Mastery: How to Safely Erase Files/Folders on Windows Amad_11</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-the-art-of-attracting-more-followers-on-xtwitter-easily-and-effectively/"><u>Mastering the Art of Attracting More Followers on X/Twitter Easily and Effectively</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/outperforming-apple-with-pre-release-ai-features-your-guide-to-turn-on-meta-quest-cuestass-intelligence-futurist-tech-news/"><u>Outperforming Apple with Pre-Release AI Features - Your Guide to Turn On Meta Quest Cuestas's Intelligence | Futurist Tech News</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/quick-guide-youtube-studio-the-editors-haven-for-2024/"><u>Quick Guide YouTube Studio, The Editor's Haven for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-create-memorable-thumbnails-discover-these-8-youtube-aids-for-2024/"><u>[New] Create Memorable Thumbnails - Discover These 8 YouTube Aids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevated-engagement-awards-on-video-realms/"><u>[New] In 2024, Elevated Engagement Awards on Video Realms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-exclusive-lineup-all-angle-recorders/"><u>[New] In 2024, Exclusive Lineup All-Angle Recorders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-comprehensive-guide-to-crafting-an-authentic-online-persona-on-facebook/"><u>[New] The Comprehensive Guide to Crafting an Authentic Online Persona on Facebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-flawless-loops-on-youtube-with-these-tips/"><u>[New] Unlock Flawless Loops on YouTube with These Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-configure-youtubes-audience-options-with-ease/"><u>[Updated] 2024 Approved Configure YouTube's Audience Options with Ease</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shorts-visibility-no-more-problem-after-fix/"><u>[Updated] Shorts Visibility No More Problem After Fix</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-wirecast-techniques-for-captivating-facebook-viewers/"><u>2024 Approved Wirecast Techniques for Captivating Facebook Viewers</u></a></li>
+<li><a href="https://win-forum.techidaily.com/complete-guide-to-forcibly-removing-directories-on-windows-11-a-step-by-step-process/"><u>Complete Guide to Forcibly Removing Directories on Windows 11: A Step-by-Step Process</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-meizu-21-pro-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Meizu 21 Pro to Protect Your Individual Information</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c22-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Nokia C22 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-final-cut-pro-x-the-art-of-freeze-frames-and-slow-motion-storytelling/"><u>New In 2024, Final Cut Pro X The Art of Freeze Frames and Slow Motion Storytelling</u></a></li>
 </ul></div>
 

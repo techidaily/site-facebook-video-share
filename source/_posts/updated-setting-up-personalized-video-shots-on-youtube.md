@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Setting Up Personalized Video Shots on YouTube"
-date: 2024-12-30T05:15:53.756Z
-updated: 2025-01-01T22:32:51.483Z
+date: 2025-01-08T17:22:23.405Z
+updated: 2025-01-09T20:08:57.879Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
@@ -42,11 +42,7 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -80,7 +76,7 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -90,6 +86,10 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -116,7 +116,7 @@ To make a talking-head video more interesting, you can add some background music
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,18 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-amazon-primes-social-success-stories-likes-and-watches-galore-for-2024/"><u>[New] Amazon Prime’s Social Success Stories Likes & Watches Galore for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-content-step-by-step-guide-to-youtube-video-editing/"><u>[New] In 2024, Crafting Content Step by Step Guide to YouTube Video Editing</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-skype-tone-searching-made-easy-pick-from-the-4-ace-lists/"><u>[New] Skype Tone Searching Made Easy Pick From the 4 Ace Lists</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unique-channels-generating-top-notch-video-naming/"><u>[New] Unique Channels Generating Top-Notch Video Naming</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-how-to-edit-videos-for-youtube-on-pc/"><u>[Updated] 2024 Approved How to Edit Videos for YouTube on PC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-achieving-profitability-at-half-a-million-viewers-for-2024/"><u>[Updated] Achieving Profitability at Half a Million Viewers for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-farmers-fields-the-essential-10-agriculture-titles-for-playmates-for-2024/"><u>[Updated] Farmers' Fields The Essential 10 Agriculture Titles for Playmates for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-momentum-in-motion-our-choice-of-top-10-film-titles/"><u>[Updated] In 2024, Momentum in Motion Our Choice of Top 10 Film Titles</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-editing-playbook-for-breaking-into-viral-spots-on-tiktok/"><u>2024 Approved Ultimate Editing Playbook for Breaking Into Viral Spots on TikTok</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback/"><u>Average Earnings Per View What's the Income for YouTubers per Ad Playback?</u></a></li>
-<li><a href="https://common-error.techidaily.com/fix-dota-2-rendering-api-error-code-2024-quickly-step-by-step-guide/"><u>Fix Dota 2 Rendering API Error Code 2024 Quickly - Step-by-Step Guide</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-apple-iphone-8-plus-location-on-skout-drfone-by-drfone-virtual-ios/"><u>How to Change Apple iPhone 8 Plus Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-guide-the-8-best-zero-price-video-cutting-software/"><u>In 2024, Essential Guide The 8 Best Zero Price Video Cutting Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-success-with-youtube-income-streams/"><u>[New] 2024 Approved Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-the-cold-with-five-cozy-cinematic-elements-for-2024/"><u>[New] Elevating the Cold with Five Cozy Cinematic Elements for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-download-youtube-videos-anywhere-anytime-free-android-tips/"><u>[New] In 2024, Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-your-signature-look-a-beginners-blueprint/"><u>[New] Unveiling Your Signature Look A Beginner's Blueprint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-yielding-income-a-streamers-guide-to-earning/"><u>[New] Yielding Income A Streamer's Guide to Earning</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outubes-creative-commons-license-explained-simply-for-2024/"><u>[New] YouTube's Creative Commons License Explained Simply for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-cxfreeze-fatal-error-easily/"><u>[SOLVED] Cx_Freeze Fatal Error Easily</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-4-ways-to-set-up-your-youtube-talking-head-shots/"><u>[Updated] 4 Ways To Set Up Your YouTube Talking-Head Shots</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-analyze-youtube-data-efficiently-with-social-blade-tools-for-2024/"><u>[Updated] Analyze YouTube Data Efficiently with Social Blade Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-video-presentations-with-top-30-free-intra-makers/"><u>[Updated] In 2024, Elevate Your Video Presentations with Top 30 Free Intra Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-leading-7-android-apps-to-cut-out-intrusive-ads-for-2024/"><u>[Updated] The Leading 7 Android Apps to Cut Out Intrusive Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-pivotal-role-of-thumbnails-in-video-success-stories/"><u>[Updated] The Pivotal Role of Thumbnails in Video Success Stories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-transforming-ideas-to-movies-using-youtubes-tools/"><u>2024 Approved Transforming Ideas to Movies Using YouTube's Tools</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-twitters-favorites-top-10-tiktok-vids/"><u>2024 Approved Twitter's Favorites Top 10 TikTok Vids</u></a></li>
+<li><a href="https://win11.techidaily.com/adjusting-windows-11-taskbar-datetime-visibility/"><u>Adjusting Windows 11 Taskbar Date/Time Visibility</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beats-and-brilliance-creating-soundtracked-instagram-feeds/"><u>Beats & Brilliance Creating Soundtracked Instagram Feeds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/filmography-foundation-answer-hub/"><u>Filmography Foundation Answer Hub</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/macbook-air-with-m1-chip-now-at-an-unbeatable-649-deal-on-zdnet-huge-savings/"><u>MacBook Air with M1 Chip Now at an Unbeatable $649 Deal on ZDNet - Huge Savings!</u></a></li>
 </ul></div>
 

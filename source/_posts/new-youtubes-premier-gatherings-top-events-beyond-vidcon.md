@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Youtube's Premier Gatherings  Top Events Beyond VidCon\""
-date: 2024-08-01T09:52:33.486Z
-updated: 2024-08-02T09:52:33.486Z
+date: 2025-01-06T17:03:13.977Z
+updated: 2025-01-09T22:35:00.203Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
 
 # Beyond VidCon - A Guide to the Most Important YouTube Events
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -43,10 +40,11 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -57,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -84,9 +86,6 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -123,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -145,9 +148,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -160,9 +160,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 
 Sydney, Australia: February
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -203,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -225,10 +226,11 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -236,12 +238,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-common-pitfalls-in-pc-based-youtube-video-editing/"><u>[New] 2024 Approved Avoiding Common Pitfalls in PC-Based YouTube Video Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-download-youtube-images-with-ease-online/"><u>[New] 2024 Approved Download YouTube Images with Ease Online</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-understanding-the-advantages-manycams-multicam-recordings/"><u>[New] 2024 Approved Understanding the Advantages ManyCam's MultiCam Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-filmmakers-companion-the-journey-from-capturing-to-post-production-of-360-videos-for-2024/"><u>[New] A Filmmaker's Companion The Journey From Capturing to Post-Production of 360 Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-can-you-respect-intellectual-property-while-screenrecording-youtube-for-2024/"><u>[New] Can You Respect Intellectual Property While ScreenRecording YouTube for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-exchanging-visuals-android-iphone-content-transfer/"><u>[Updated] 2024 Approved Exchanging Visuals Android-iPhone Content Transfer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-understanding-your-macs-capabilities-in-big-sur/"><u>[Updated] 2024 Approved Understanding Your Mac's Capabilities in Big Sur</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-crafting-success-on-facebook-a-beginners-and-pro-guide-compilation/"><u>[Updated] Crafting Success on Facebook A Beginner's & Pro Guide Compilation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-chat-room-to-screen-step-by-step-google-meet-youtube-streams/"><u>[Updated] From Chat Room to Screen Step-by-Step Google Meet YouTube Streams</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audience-accessibility-enhancement-adding-subtitles-and-closed-captions-on-youtube/"><u>[Updated] In 2024, Audience Accessibility Enhancement Adding Subtitles and Closed Captions on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-next-level-shooting-lens-selections-for-online-creators/"><u>[Updated] Next-Level Shooting Lens Selections for Online Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfecting-yt-thumbnails-quick-and-simple-guide/"><u>[Updated] Perfecting YT Thumbnails Quick & Simple Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pioneering-the-pathway-personal-youtube-videos-in-google-accounts/"><u>[Updated] Pioneering the Pathway Personal YouTube Videos in Google Accounts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-pubg-vocal-changes-made-easy/"><u>2024 Approved Step-by-Step PUBG Vocal Changes Made Easy</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elite-comic-image-crafting-suite/"><u>Elite Comic Image Crafting Suite</u></a></li>
+<li><a href="https://win-info.techidaily.com/essential-tips-and-tricks-with-aomei-backupper-comprehensive-step-by-step-instructions/"><u>Essential Tips & Tricks with AOMEI Backupper: Comprehensive Step-by-Step Instructions</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-top-free-video-editors-compatible-with-32-bit-windows/"><u>New In 2024, Top Free Video Editors Compatible with 32-Bit Windows</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-reliable-spankbang-video-downloader-apps-revealed/"><u>Top Reliable SpankBang Video Downloader Apps Revealed</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transform-heic-files-into-compatible-jpeg-on-pcs/"><u>Transform HEIC Files Into Compatible JPEG on PCs</u></a></li>
+</ul></div>
 

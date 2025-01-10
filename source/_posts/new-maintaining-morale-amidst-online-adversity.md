@@ -1,7 +1,7 @@
 ---
 title: "[New] Maintaining Morale Amidst Online Adversity"
-date: 2024-08-01T09:57:37.550Z
-updated: 2024-08-02T09:57:37.550Z
+date: 2025-01-02T16:55:03.357Z
+updated: 2025-01-09T22:07:37.908Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/a88de5655376206e2ee17661cb9dd03b46b68bf81
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/a88de5655376206e2ee17661cb9dd03b46b68bf81
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/a88de5655376206e2ee17661cb9dd03b46b68bf81
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,12 +68,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-contents-exposure-with-ongoing-creative-commons-usage-for-2024/"><u>[New] Elevating Your Content's Exposure with Ongoing Creative Commons Usage for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comedic-counterpoints-funny-song-flips-for-2024/"><u>[Updated] Comedic Counterpoints Funny Song Flips for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-from-theory-to-practice-mastering-instagram-livestreams-through-obs-for-2024/"><u>[Updated] From Theory to Practice Mastering Instagram Livestreams Through OBS for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-16-crowning-youtube-opens-for-enhanced-reach/"><u>[Updated] In 2024, 16 Crowning YouTube Opens for Enhanced Reach</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-integrated-sound-and-vision-workspace-for-2024/"><u>[Updated] Integrated Sound & Vision Workspace for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essence-and-creation-process-of-mukbangs/"><u>[Updated] The Essence and Creation Process of Mukbangs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-the-power-of-creativity-increase-viewership-in-youtube-shorts/"><u>[Updated] Unleashing the Power of Creativity Increase Viewership in YouTube Shorts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-3d-luts-a-comprehensive-guide/"><u>2024 Approved Mastering 3D LUTs A Comprehensive Guide</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fix-no-signage-in-sims-games/"><u>Fix No Signage in Sims Games</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-engaging-podcast-summaries-techniques-and-examples/"><u>In 2024, Crafting Engaging Podcast Summaries Techniques & Examples</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/setting-up-your-xbox-one-with-an-external-hard-drive-a-step-by-step-guide/"><u>Setting Up Your Xbox One with an External Hard Drive: A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/solving-hd-content-disarray-in-handbrake-dvd-conversions-tips-and-tricks/"><u>Solving HD Content Disarray in HandBrake DVD Conversions: Tips and Tricks</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlocking-full-functionality-how-to-enable-landscape-mode-on-your-iphone/"><u>Unlocking Full Functionality: How to Enable Landscape Mode on Your iPhone</u></a></li>
+</ul></div>
 

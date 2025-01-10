@@ -1,7 +1,7 @@
 ---
 title: "\"Scaling Up on YouTube  A Roadmap for Million-Sub Club for 2024\""
-date: 2024-08-01T09:52:36.325Z
-updated: 2024-08-02T09:52:36.325Z
+date: 2025-01-05T16:38:46.567Z
+updated: 2025-01-09T21:17:04.108Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
 
 # Case Study: How to Grow on YouTube to Have Millions of Subs
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -34,14 +31,16 @@ You’ve probably heard of stories about individuals who managed to find financi
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -92,24 +91,22 @@ Regular research into your target market will help you to create the trendiest n
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -117,12 +114,28 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-craft-compelling-content-essential-youtube-short-video-edits/"><u>[New] In 2024, Craft Compelling Content Essential Youtube Short Video Edits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audience-wave-top-hash-tags-to-swell-youtube-views/"><u>[Updated] 2024 Approved Audience Wave Top Hash Tags to Swell Youtube Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cinema-for-all-a-comparative-look-at-vimeo-and-youtube/"><u>[Updated] 2024 Approved Cinema for All? A Comparative Look at Vimeo & YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-joshis-playbook-the-path-to-earnings-on-youtube/"><u>[Updated] Joshi's Playbook The Path to Earnings on Youtube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-toolwiz-photos-app-complete-review-2023/"><u>[Updated] Toolwiz Photos App - Complete Review 2023</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-extensive-analysis-samsungs-immersive-sphere-technology/"><u>2024 Approved Extensive Analysis Samsung's Immersive Sphere Technology</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/crossing-thresholds-in-ctas-anticipating-fb-ad-shifts/"><u>Crossing Thresholds in CTAs Anticipating FB Ad Shifts</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-5-ways-change-your-home-address-in-googleapple-map-on-apple-iphone-13ipad-drfone-by-drfone-virtual-ios/"><u>In 2024, 5 Ways Change Your Home Address in Google/Apple Map on Apple iPhone 13/iPad | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vimeo-vs-youtube-a-content-creators-guide/"><u>In 2024, Vimeo Vs. YouTube A Content Creator's Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Xiaomi Redmi A2+? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/labor-day-savings-alert-score-an-unprecedented-700-off-the-new-202-ipad-pro-check-out-our-report-at-zdnet/"><u>Labor Day Savings Alert: Score an Unprecedented $700 Off the New 202# iPad Pro! Check Out Our Report at ZDNET.</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/risoluzione-guida-come-ripristinare-la-cartella-programdata-mancante-su-windows-11/"><u>Risoluzione Guida: Come Ripristinare La Cartella 'ProgramData' Mancante Su Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/scrutinizing-the-pros-and-cons-of-boses-audio-device/"><u>Scrutinizing the Pros and Cons of Bose's Audio Device</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-new-era-for-laptop-loyalists-a-deep-dive-into-apples-latest-m2-macbook-pro-13-inch-masterpiece-is-it-time-to-upgrade-from-your-older-m1-model/"><u>The New Era for Laptop Loyalists: A Deep Dive Into Apple's Latest M2 MacBook Pro 13-Inch Masterpiece - Is It Time to Upgrade From Your Older M1 Model?</u></a></li>
+</ul></div>
 

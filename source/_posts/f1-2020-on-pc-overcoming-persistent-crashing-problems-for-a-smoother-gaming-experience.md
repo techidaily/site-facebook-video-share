@@ -1,7 +1,7 @@
 ---
 title: F1 2020 on PC - Overcoming Persistent Crashing Problems for a Smoother Gaming Experience
-date: 2024-12-25T19:01:50.875Z
-updated: 2025-01-01T17:18:29.561Z
+date: 2025-01-08T22:24:02.667Z
+updated: 2025-01-09T21:54:40.886Z
 tags:
   - win11
   - win10
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/b46dad75221e4740026b09a7187d9a5f274b77721
 While fighting your way in Neo Arcadia to be the winning squad, it’s a bummer if your Hyper Scape keeps crashing for no reason. Don’t worry if you’re experiencing random game crashes, for many players have been reporting the same issue. And the good news is that you can get rid of it easily with the following fixes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## System requirements for Hyper Scape
@@ -54,10 +54,6 @@ System Requirements for Hyper Scape
 8. [Run your game in windowed mode](https://tools.techidaily.com/drivereasy/download/)
 9. [Reinstall Uplay](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1: Verify your game files
 
  Missing game files can make your Hyper Scape unplayable, especially after a new update. Many Hyper Scape players managed to fix the crashing by verifying their game files. Here’s how to exactly do it:
@@ -68,17 +64,9 @@ System Requirements for Hyper Scape
 ![Hyper Scape verify game files](https://images.drivereasy.com/wp-content/uploads/2020/09/Verify-game-files.jpg)
 4. It will take about 3-5 minutes to verify your game files. Once complete, try playing Hyper Scape again to test the issue.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![verify your game files](https://images.drivereasy.com/wp-content/uploads/2020/09/verify-your-game-files.jpg)
 
  If it helps you restore some missing/corrupted game files, you can play the game without any crashing now. But if this fix doesn’t work, don’t worry, for there’re more fixes to try.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2: Run Hyper Scape as an administrator
 
@@ -92,10 +80,6 @@ System Requirements for Hyper Scape
 
 ![run Hyper Scape as admin](https://images.drivereasy.com/wp-content/uploads/2020/09/run-as-admin.jpg)
 4. You can also run your game launcher i.e. Uplay as an administrator.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![run uplay as admin](https://images.drivereasy.com/wp-content/uploads/2020/09/Run-Uplay-as-admin.jpg)
 5. Try playing Hyper Scape again to see if the crashes persist.
@@ -120,11 +104,11 @@ System Requirements for Hyper Scape
 ![update driver scan quickly](https://images.drivereasy.com/wp-content/uploads/2020/09/Update-driver-3.jpg)
 3. Restart your PC after the update is complete.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Disable background apps
 
@@ -136,10 +120,18 @@ System Requirements for Hyper Scape
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-1.jpg)
 2. Under the**General** tab, choose**Selective startup** , and uncheck**Load startup items** . Then click**Apply** \>**OK** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/start-up-service.jpg)
 3. When you’re prompted to restart your PC. Make sure you’ve saved your files and click**Restart** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/restart.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Try playing your game and see if Hyper Scape crashing still persists. If the game works fine now, it’s likely a background app is the culprit. But if Hyper Scape keeps crashing, you can move on to[fix 5](https://tools.techidaily.com/drivereasy/download/) .
 
@@ -154,8 +146,16 @@ System Requirements for Hyper Scape
 ![open system configuration](https://images.drivereasy.com/wp-content/uploads/2020/09/system-config.jpg)
 4. Select the **Startup** tab and click **Open Task Manager** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![task manager](https://images.drivereasy.com/wp-content/uploads/2020/09/Open-task-manager.jpg)
 5. Select each startup item and click**Disable** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![disable start up](https://images.drivereasy.com/wp-content/uploads/2020/09/disable-start-up-item.jpg)
 6. Go back to**System Configuration** window, and click**Apply > OK** .  
@@ -172,22 +172,18 @@ System Requirements for Hyper Scape
 2. Click the**Check for updates** button. Windows will start checking for available updates and download them if there’re any.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/start-checking.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Once the download is complete, follow the on-screen instructions to install all the updates.
 
 If your Hyper Scape keeps crashing, you can head to the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 6: Lower your graphics settings
 
@@ -226,13 +222,13 @@ Best graphics settings for Hyper Scape
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/NVIDIA.jpg)
 2. Go to**3D Settings > Manage 3D setting** on the left pane.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Under the**Global Settings** tab, scroll down to**Vertical sync** . Then click the down arrow, and select**On** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/vertical-sync.jpg)
 4. Click**Apply** to save the changes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you’ve turned V-Sync on, you can turn it to**Off** . This method has varying success, so you can move to the next fix if this doesn’t work.
 
@@ -241,6 +237,10 @@ Best graphics settings for Hyper Scape
  Many players find a windowed mode to fix their game crashing issues. When running your game, press**Alt + Enter** . If this keyboard shortcut doesn’t work, you can open the game’s graphics settings window and choose windowed mode instead.
 
  If this workaround doesn’t do the trick for you, you can switch out of windowed mode and re-enable full-screen mode afterward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 9: Reinstall Uplay
 
@@ -280,19 +280,18 @@ Best graphics settings for Hyper Scape
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-drone-review-parrots-advanced-ar-model-20-for-2024/"><u>[New] Drone Review Parrot's Advanced AR Model 2.0 for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dialing-up-engagement-youtube-thumbnails-that-convert/"><u>[New] In 2024, Dialing Up Engagement YouTube Thumbnails That Convert</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-expert-video-editor-for-seamless-vimeo-videos/"><u>[New] In 2024, Expert Video Editor for Seamless Vimeo Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-premium-giggle-and-graphics-editor/"><u>[New] Premium Giggle & Graphics Editor</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-comprehensive-razer-camera-study/"><u>[Updated] Comprehensive Razer Camera Study</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-disrupted-beats-best-mobile-music-distortors/"><u>[Updated] Disrupted Beats Best Mobile Music Distortors</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-elite-driving-sims-best-five-titles-for-2024/"><u>[Updated] Elite Driving Sims Best Five Titles for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-pathway-to-pro-youtube-earnings-on-every-device/"><u>[Updated] The Pathway to Pro Youtube Earnings on Every Device</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-fix-apple-iphone-14-pro-max-unavailable-issue-with-ease-by-drfone-ios/"><u>How To Fix Apple iPhone 14 Pro Max Unavailable Issue With Ease</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/lilliputian-storyboard-outline/"><u>Lilliputian Storyboard Outline</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/mastering-the-art-of-cross-platform-skype-chats-with-this-comprehensive-guide/"><u>Mastering the Art of Cross-Platform Skype Chats with This Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-12-selection-of-smart-flip-screen-vlog-cameras-for-2024/"><u>The Ultimate 12 Selection of Smart Flip-Screen Vlog Cameras for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-6-youtube-outros-made-easy-and-free-guide-for-2024/"><u>Top 6 YouTube Outros Made Easy & FREE (Guide) for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/whats-your-youtube-revenue-breakdown-per-branded-playlist-for-2024/"><u>What's Your Youtube Revenue Breakdown per Branded Playlist for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-perfecting-pics-a-full-guide-to-facetune-mastery/"><u>[New] 2024 Approved Perfecting Pics - A Full Guide to Facetune Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prodigious-story-making-worlds-top-8-institutions/"><u>[New] In 2024, Prodigious Story Making World's Top 8 Institutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-self-talk-in-online-videos/"><u>[New] Mastering the Art of Self-Talk in Online Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-charting-a-course-through-youtubes-maker-domain-for-2024/"><u>[Updated] Charting a Course Through YouTube's Maker Domain for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-easy-start-the-definitive-guide-to-free-channel-openers-for-2024/"><u>[Updated] Easy Start The Definitive Guide to Free Channel Openers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-blocks-for-successful-channel-branding-and-growth/"><u>[Updated] In 2024, Building Blocks for Successful Channel Branding and Growth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-the-art-of-aspect-ratios-on-youtube-videosshortsads/"><u>[Updated] Mastering the Art of Aspect Ratios on YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/frame-loss-enigma-why-are-videos-cropped-by-imovie-in-2024/"><u>Frame Loss Enigma Why Are Videos Cropped by iMovie, In 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/from-novice-to-pro-mastering-github-desktop-on-windows-11/"><u>From Novice to Pro: Mastering GitHub Desktop on Windows 11</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723862788414-score-big-with-the-latest-deal-on-samsung-odyssey-g50a-27-qhd-ips-monitor-now-only-255/"><u>Score Big with the Latest Deal on Samsung Odyssey G50A 27 QHD IPS Monitor – Now Only $255</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-mastering-dual-screens-on-your-macbook-air/"><u>Step-by-Step Guide: Mastering Dual Screens on Your MacBook Air</u></a></li>
+<li><a href="https://app-tips.techidaily.com/top-rated-web-hosting-providers-in-depth-analysis-and-reviews-by-tech-experts-zdnet/"><u>Top-Rated Web Hosting Providers : In-Depth Analysis & Reviews by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-mastering-the-art-of-de-echoing-audio-simple-proven-techniques/"><u>Updated In 2024, Mastering the Art of De-Echoing Audio Simple, Proven Techniques</u></a></li>
 </ul></div>
 

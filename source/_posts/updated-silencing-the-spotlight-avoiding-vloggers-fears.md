@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Silencing the Spotlight  Avoiding Vlogger's Fears\""
-date: 2024-12-28T20:31:59.600Z
-updated: 2025-01-02T02:10:47.046Z
+date: 2025-01-02T22:43:08.453Z
+updated: 2025-01-09T22:40:11.320Z
 tags:
   - ai video
   - ai youtube
@@ -42,19 +42,23 @@ My advice is to start with shorter conversations with your camera in public and 
 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. Fear of Being Judged by Others
 
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Fear of Not Being Interesting Enough
 
 A lot of people fear that they aren’t interesting enough to watch. This fear stops many people from vlogging. Some people get around this self-doubt by focusing their content on something other than themselves. But people are so much more interesting than the tools and objects that they test out and review on YouTube. Even if you’re unable to secure the interest of the masses, there are bound to be a handful of people from all around the world who do find you interesting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. Fear of Your Lifestyle Not Being Exciting Enough
 
@@ -65,7 +69,7 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6. Fear of Your Production Not Being Good Enough
@@ -78,10 +82,6 @@ Getting a lot of subscribers is a common end goal for many who go into vlogging.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8. Fear of Being Distracted From the Moment
 
 Whether you’re vlogging or not, living in the present moment can already be a challenge with a smartphone. When something exhilarating happens, many of us feel compelled to pull out our phone to capture it, only to experience that fleeting moment through a small preview screen.
@@ -92,6 +92,10 @@ Well, like all hobbies, activities, and passions, vlogging does take time and yo
 
 If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9. Fear of Making Others Uncomfortable
 
 Even though you might have learned to enjoy and be comfortable with vlogging, your vlogging might make others uncomfortable. You can still vlog while respecting others’ boundaries by having a conversation first, before you start vlogging, around whether or not they feel comfortable with appearing in your vlog. You can then make sure to exclude those from your vlog who are uncomfortable with appearing in your vlog.
@@ -99,7 +103,7 @@ Even though you might have learned to enjoy and be comfortable with vlogging, yo
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10. Fear of Permanently Leaving a Bad Mark
@@ -113,10 +117,6 @@ In post-production, you can use some video editing software to [delete unwanted 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,16 +133,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-10plus-leading-web-based-screen-capture-tools/"><u>[New] 10+ Leading Web-Based Screen Capture Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-chuckling-chords-and-clever-cuts-10-parody-classics/"><u>[New] 2024 Approved Chuckling Chords & Clever Cuts 10 Parody Classics</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-capture-clean-uninterrupted-media-snapshots-for-2024/"><u>[Updated] Capture Clean, Uninterrupted Media Snapshots for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-info-on-crafting-engaging-yt-shorts/"><u>[Updated] In 2024, Essential Info on Crafting Engaging YT Shorts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-navigating-social-media-comparing-igtv-and-youtube-features/"><u>[Updated] In 2024, Navigating Social Media Comparing IGTV and YouTube Features</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-reel-in-the-action-top-strategies-for-recording-your-minecraft-sessions-on-a-mac/"><u>[Updated] In 2024, Reel in the Action Top Strategies for Recording Your Minecraft Sessions on a Mac</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-managing-who-accesses-your-youtube-videography/"><u>[Updated] Managing Who Accesses Your YouTube Videography</u></a></li>
-<li><a href="https://win-dash.techidaily.com/immediate-install-fast-acting-rs232-usb-driver-guide/"><u>Immediate Install: Fast-Acting RS232 USB Driver Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-download-hp-envy-5055-laptop-drivers-get-them-fast/"><u>Quick Download: HP ENVY 5055 Laptop Drivers – Get Them Fast!</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/relish-the-unplugged-adventure-with-our-best-offline-ipad-and-iphone-games-for-2024/"><u>Relish the Unplugged Adventure with Our Best Offline iPad & iPhone Games for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/skyrocket-your-channels-the-path-to-higher-youtube-views-for-2024/"><u>Skyrocket Your Channels The Path to Higher YouTube Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-most-popular-beauty-gurus-on-youtube/"><u>[New] 2024 Approved 10 Most Popular Beauty Gurus on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-premium-sound-to-text-converters/"><u>[New] 2024 Approved Premium Sound to Text Converters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-arctic-accolades-top-athletes-and-events/"><u>[New] Arctic Accolades Top Athletes & Events</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionize-your-content-with-3-innovative-two-point-of-view-techniques-in-reactions/"><u>[Updated] Revolutionize Your Content with 3 Innovative Two-Point-of-View Techniques in Reactions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-affordable-art-of-youtube-introsends/"><u>[Updated] The Affordable Art of YouTube Intros/Ends</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-new-frontier-understanding-ars-role/"><u>[Updated] The New Frontier Understanding AR's Role</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-volume-surge-controllers-for-windowsmacos/"><u>[Updated] Top 10 Volume Surge Controllers for Windows/MacOS</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/bridging-the-gap-syncing-multi-speaker-systems-through-bluetooth-technology/"><u>Bridging the Gap: Syncing Multi-Speaker Systems Through Bluetooth Technology</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-presence-setting-up-an-instagram-company-for-2024/"><u>Elevate Your Presence Setting Up an Instagram Company for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-for-reviving-a-stuck-download-space-on-windows-os/"><u>Guide for Reviving a Stuck Download Space on Windows OS</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-windows-login-error-compatibility-issue-with-scanner/"><u>Overcoming Windows Login Error: Compatibility Issue with Scanner</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/smart-shopping-top-7-mirrorless-cameras-under-1000/"><u>Smart Shopping Top 7 Mirrorless Cameras Under $1,000</u></a></li>
+<li><a href="https://media-tips.techidaily.com/ultimate-guide-watching-netflix-seamlessly-via-discord/"><u>Ultimate Guide: Watching Netflix Seamlessly via Discord</u></a></li>
 </ul></div>
 

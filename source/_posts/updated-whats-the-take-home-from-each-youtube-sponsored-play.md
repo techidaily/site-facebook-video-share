@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] What's the Take-Home From Each YouTube Sponsored Play?\""
-date: 2024-12-30T16:46:04.547Z
-updated: 2025-01-02T01:54:55.754Z
+date: 2025-01-08T17:36:47.454Z
+updated: 2025-01-09T20:24:58.366Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,6 @@ Are you curious about how much YouTubers make per view? Most people are. The Inf
 
 ![factors affecting youtube cpm](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-1.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The YouTube monetization rates vary significantly because of various factors:
 
 * The number of views a video receives
@@ -41,10 +37,6 @@ The YouTube monetization rates vary significantly because of various factors:
 * Ad blockers
 * Ad Quality
 * Video length
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Part 2\. How Much Do YouTubers Make Per 1,000 Views**
 
@@ -64,10 +56,6 @@ Most YouTubers report to earn around $5 to $7 from 1,000 views of their videos. 
 
 The figures above are just estimates. YouTubers often make more or less this amount.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Part 3\. How Many Views Do YouTubers Need to Get Paid?**
 
 To get paid from revenues, you need to be eligible for the YouTube Partner Program (YPP). The following is the eligibility criteria.
@@ -85,6 +73,10 @@ The specific eligibility criteria include the following:
 
 Once approved for the YPP, you have the potential to start earning through ads. The revenue-sharing program allows you to earn income for the ads that show on your channel. Specifically, Google will pay you 68% of the revenue from the ads displayed with AdSense. For instance, a video that generates $1,000 from AdSense revenue will pay the YouTuber $680.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 4\. The Top 6 Highest Paid YouTubers**
 
 YouTube creates a clear path for the birth of a new breed of celebrities. They have a huge following, and grow their wealth by sharing content with them. Let’s have a look at the top 6 paid YouTubers right now:
@@ -100,10 +92,6 @@ YouTube creates a clear path for the birth of a new breed of celebrities. They h
 
 ![mr. beast](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ranked first among the highest-paid YouTubers, Jimmy has the most popular channel. With more than 150 million subscribers, he creates videos about challenges, pranks, and giveaways. The videos have accumulated billions of views, contributing to his estimated net worth of over $100 million. Another important source of income is the Mr. Beast Burger app and menu that lets fans order MrBeast-banded meals from over 1,600 restaurants across the country.
 
 ### 2\. [**Jake Paul - $45 million**](https://www.youtube.com/@jakepaul)
@@ -112,22 +100,14 @@ Ranked first among the highest-paid YouTubers, Jimmy has the most popular channe
 
 Jake Paul is a renowned American professional boxer. Widely famous on social media, his YouTube is also one of the most highly ranked. He shares different kinds of videos from his boxing games. He also does pranks and reviews about different products.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. [**Markiplier - $38 Million**](https://www.youtube.com/channel/UC7%5FYxT-KID8kRbqZo7MyscQ)
 
 ![markiplier](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-6.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Markiplier makes videos about playing games. The YouTube channel, which started in 2021 is renowned for moving merch. In addition to ad revenue, Markiplier records high sales of T-shirts, hoodies, and other items tied to the Unus Annus series.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **4\.** [**Rhett and Link - $30 million**](https://www.youtube.com/channel/UCbochVIwBCzJb9I2lLGXGjQ)
@@ -136,19 +116,23 @@ Markiplier makes videos about playing games. The YouTube channel, which started 
 
 This YouTube channel started as the duo hosting a nerdy daily talk show called _Good Mythical Morning_. It quickly grew into an empire with brand extensions and spinoffs that boosted its views and earnings on YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **5\.** [**Unspeakable - $28.5 million**](https://www.youtube.com/channel/UCwIWAbIeu0xI0ReKWOcw3eg)
 
 ![unspeakable](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-8.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Unspeakable talks about Minecraft in the channel. Nathan Graham posts videos of himself playing this and other games. He also posts other kinds of entertaining content such as filling a room with live alligators. His creativity has allowed him to collaborate with brands in making different ads and promotions.
 
 ### **6\.** [**Nastya - $28 million**](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ)
 
 ![nastya](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-9.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
 
@@ -162,6 +146,10 @@ The amount of money a YouTuber earns depends on several factors. However, the am
 
 With the integration of AI, Filmora now offers a wide range of editing features that you can use to automate editing. Instantly generate images, remove image background, and now. These features help create visually appealing and engaging videos that will increase the chances of monetization on YouTube. One of the AI features that stands out is Instant Mode.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [**Filmora Instant Mode**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Instant Mode helps beginners design slideshow videos with minimal effort. You probably have no video editing experience or a professional content creator with no time to make more videos. With Instant Mode, you can create a video within minutes. Let’s have a look at the steps involved:
@@ -171,6 +159,10 @@ The Instant Mode helps beginners design slideshow videos with minimal effort. Yo
 After opening Filmora on your device, click on Instant Mode. This feature is on the left side of the screen.
 
 ![instant mode 1](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-10.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Step 2 – Choose a Template**
 
@@ -184,15 +176,15 @@ Click on the Import Your Media icon, and add all the media files you want to use
 
 ![instant mode 3](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-12.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Step 4 – Implement Text Titles**
 
 From the top-left corner of the screen, click the “Titles” category. Then choose from the options available for the required title template.
 
 ![instant mode 4](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-13.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Step 5 – Replace Needed Media Items**
 
@@ -200,21 +192,25 @@ Review all the media items in the timeline, and replace any that you want with a
 
 ![instant mode 5](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-14.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Step 6: Add Project to Timeline**
 
 Once you are satisfied with your slideshow video, click on the Timeline button. This will take you to Filmora’s editing environment where you can add effects and other elements to enhance the video.
 
 ![instant mode 6](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-15.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Step 7 – Preview and Export Your Video**
 
 Click on the Play icon to preview the edited video. Then export it in MP4 format for quick upload to YouTube.
 
 ![instant mode 7](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-16.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Other Useful Filmora Video Editing Features**
 
@@ -223,6 +219,10 @@ Click on the Play icon to preview the edited video. Then export it in MP4 format
 * [AI Image](https://tools.techidaily.com/wondershare/filmora/download/) – Generate an image automatically by typing what you want. Choose from 3 resolutions and use the image directly for your video project
 * [Auto Reframe](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically resize your videos within minutes to use on both YouTube and Shorts.
 * [Auto Beat Sync](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically match the footage with music, giving your video a smooth flow with the music you choose.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -241,18 +241,21 @@ Running a YouTube Channel is lucrative. Although it may take time to build a fol
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-discovering-the-top-5-smarter-url-lengtheners-for-youtube-for-2024/"><u>[New] Discovering the Top 5 Smarter URL Lengtheners for YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-exploring-income-average-creator-revenue-from-adverts-on-youtube-in-2024/"><u>[New] Exploring Income Average Creator Revenue From Adverts on YouTube, In 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-engagement-youtube-strategies-for-increased-viewership/"><u>[Updated] 2024 Approved Boosting Engagement YouTube Strategies for Increased Viewership</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-dissecting-digital-dynamics-comparative-channel-analysis-for-2024/"><u>[Updated] Dissecting Digital Dynamics Comparative Channel Analysis for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo Y36? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gratis-omzettingen-van-caf-bestandjes-online-professioneel-met-movavi/"><u>Gratis Omzettingen Van CAF-Bestandjes Online - Professioneel Met Movavi</u></a></li>
-<li><a href="https://win-hot.techidaily.com/guida-per-reimpostare-e-recuperare-file-cancellati-accidentalmente-in-windows-11/"><u>Guida per Reimpostare E Recuperare File Cancellati Accidentalmente in Windows 11</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-motorola-moto-g23-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Motorola Moto G23 Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/optimizing-your-subnet-in-the-latest-os-win11/"><u>Optimizing Your Subnet in the Latest OS: Win11</u></a></li>
-<li><a href="https://win-help.techidaily.com/step-by-step-guide-adjusting-your-screen-resolution-via-windows-control-panel/"><u>Step-by-Step Guide: Adjusting Your Screen Resolution via Windows Control Panel</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/tecnicas-efectivas-para-el-rescate-de-informacion-en-dispositivos-western-digital-easystore/"><u>Técnicas Efectivas Para El Rescate De Información en Dispositivos Western Digital EasyStore</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-new-era-of-ai-artistry-with-dall-e-3s-editable-tools-still-evolving/"><u>The New Era of AI Artistry with DALL-E 3'S Editable Tools - Still Evolving</u></a></li>
-<li><a href="https://media-tips.techidaily.com/upcoming-streams-nba-and-wnba-matches-set-to-debut-on-online-platforms/"><u>Upcoming Streams: NBA & WNBA Matches Set to Debut on Online Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-comprehensive-look-at-youtuber-snippets/"><u>[New] 2024 Approved A Comprehensive Look at Youtuber Snippets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-visual-guide-to-subtitling-techniques-for-effective-dialogue-placement-for-2024/"><u>[New] A Visual Guide to Subtitling Techniques for Effective Dialogue Placement for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-cutting-edge-actions-screening-tech-report/"><u>[New] In 2024, Cutting-Edge Actions Screening Tech Report</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oney-matters-choosing-best-stocks-yts-guide/"><u>[New] Money Matters Choosing Best Stocks YTs Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-year-end-visualizations-mind-bending-youtube-figures-and-trends/"><u>[New] Year-End Visualizations Mind Bending Youtube Figures and Trends</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-directing-the-flow-of-digital-storytelling-through-youtube-fusion/"><u>[Updated] 2024 Approved Directing the Flow of Digital Storytelling Through Youtube Fusion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-download-free-sound-effects-for-youtubers/"><u>[Updated] Download Free Sound Effects for YouTubers!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-responding-to-criticism-with-confidence-on-youtube/"><u>[Updated] Responding to Criticism with Confidence on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-which-video-sharing-giant-suits-your-content-best-igtv-or-youtube-analysis/"><u>2024 Approved Which Video-Sharing Giant Suits Your Content Best? - IGTV or YouTube Analysis</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/are-users-experiencing-issues-with-aol-email-service/"><u>Are Users Experiencing Issues with AOL Email Service?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beantech-bitwatch-s1-plus-smartwatch-review-a-fascinating-budget-wearable/"><u>Beantech Bitwatch S1 Plus Smartwatch Review: A Fascinating Budget Wearable</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-infinix-note-30-pro-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Infinix Note 30 Pro to New Phone | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-the-ultimate-guide-to-vertical-video-editing-on-mobile-devices/"><u>In 2024, The Ultimate Guide to Vertical Video Editing on Mobile Devices</u></a></li>
+<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-nokia-c12-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Nokia C12 FRP Without Computer</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-correcting-the-msstdfmtdll-missing-error-on-your-pc/"><u>Step-by-Step Guide: Correcting the 'Msstdfmt.dll' Missing Error on Your PC</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722066243796-unveiling-claude-ai-discover-its-benefits-for-your-business/"><u>Unveiling Claude AI: Discover Its Benefits for Your Business!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Configure YouTube's Audience Options with Ease"
-date: 2024-08-01T09:52:57.067Z
-updated: 2024-08-02T09:52:57.067Z
+date: 2025-01-04T19:49:08.392Z
+updated: 2025-01-09T19:42:11.396Z
 tags:
   - ai video
   - ai youtube
@@ -18,18 +18,6 @@ thumbnail: https://thmb.techidaily.com/c2522eefb8fbc96fa570f56849cfdf92d72e221bd
 
 # How to Change the Privacy Setting on Your YouTube Videos
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -46,16 +34,10 @@ thumbnail: https://thmb.techidaily.com/c2522eefb8fbc96fa570f56849cfdf92d72e221bd
 
  Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -76,11 +58,11 @@ thumbnail: https://thmb.techidaily.com/c2522eefb8fbc96fa570f56849cfdf92d72e221bd
 
  It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
 
@@ -90,9 +72,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 **Method 2:**
@@ -101,15 +80,20 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 ## Conclusion
@@ -118,7 +102,15 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,12 +118,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-extend-and-submit-video-to-youtube/"><u>[New] 2024 Approved Extend and Submit Video to YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-no-cash-needed-for-youtube-audio-check-out-this-list-of-23-crackers/"><u>[New] No Cash Needed for YouTube Audio? Check Out This List of 23 Crackers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-the-power-of-sony-vegas-to-enhance-your-youtube-channel/"><u>[New] Unlock the Power of Sony Vegas to Enhance Your YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-video-equipment-for-successful-youtube-channels/"><u>[Updated] 2024 Approved Essential Video Equipment for Successful YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-making-your-youtube-content-stand-out-with-engaging-subtitle-designs/"><u>[Updated] Making Your YouTube Content Stand Out with Engaging Subtitle Designs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-professional-packing-for-personal-filmmaking/"><u>[Updated] Professional Packing for Personal Filmmaking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-journey-to-behind-the-camera-expertise-via-youtube/"><u>[Updated] The Journey to Behind-the-Camera Expertise via YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-smartphone-cinematics-samsungs-guide-to-time-lapse/"><u>2024 Approved Smartphone Cinematics Samsung's Guide to Time-Lapse</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-for-dealing-with-batman-arkham-knights-unexpected-shutdowns-and-errors/"><u>Effective Solutions for Dealing with Batman: Arkham Knight's Unexpected Shutdowns & Errors</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigate-through-apples-best-in-class-virtual-reality-games/"><u>Navigate Through Apple's Best-in-Class Virtual Reality Games</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-epic-game-launcher-resistance-on-windows-11-pcs/"><u>Overcoming Epic Game Launcher Resistance on Windows 11 PCs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revitalizing-youtube-presence-the-top-ten-action-plans-for-more-watchers-for-2024/"><u>Revitalizing YouTube Presence The Top Ten Action Plans for More Watchers for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-instability-issues-a-guide-to-preventing-slime-rancher-2-from-crashing-on-your-desktop/"><u>Solving Instability Issues: A Guide to Preventing Slime Rancher 2 From Crashing on Your Desktop</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/step-up-your-gameplay-with-a-top-ranked-no-fee-voice-transformation-tool/"><u>Step Up Your Gameplay with a Top-Ranked No-Fee Voice Transformation Tool</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-honor-100-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Honor 100 without backup.</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtubes-potential-for-free-educational-events-for-2024/"><u>Unlocking YouTube's Potential for Free Educational Events for 2024</u></a></li>
+</ul></div>
 

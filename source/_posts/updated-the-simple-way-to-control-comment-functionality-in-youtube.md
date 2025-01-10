@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2024-12-26T20:37:55.876Z
-updated: 2025-01-01T20:27:45.941Z
+date: 2025-01-07T20:19:12.294Z
+updated: 2025-01-09T17:52:13.353Z
 tags:
   - ai video
   - ai youtube
@@ -31,7 +31,7 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
@@ -43,6 +43,10 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -69,7 +73,7 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
@@ -77,10 +81,6 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -123,13 +123,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -177,19 +177,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-highlight-your-pc-gaming-6-effective-screen-methods/"><u>[New] 2024 Approved Highlight Your PC Gaming 6 Effective Screen Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-craft-a-memorable-first-snap-your-shorts-thumbnail-blueprint-for-2024/"><u>[New] Craft a Memorable First Snap Your Shorts' Thumbnail Blueprint for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-lyric-video-makers-you-should-try/"><u>[Updated] 2024 Approved Best Lyric Video Makers You Should Try</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beyond-vidcon-top-50-youtube-celebrations/"><u>[Updated] 2024 Approved Beyond VidCon Top 50 YouTube Celebrations</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-harness-youtubes-creative-commons-in-video-making/"><u>[Updated] 2024 Approved How to Harness YouTube's Creative Commons in Video Making</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-pictorial-chuckles-kapwings-memetic-composer/"><u>[Updated] 2024 Approved Pictorial Chuckles Kapwing’s Memetic Composer</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-explore-unrestricted-stock-content-in-key-4-video-channels/"><u>[Updated] In 2024, Explore Unrestricted Stock Content in Key 4 Video Channels</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-selecting-sounds-for-success-top-microphones-for-multifacited-youtube-professionals/"><u>[Updated] In 2024, Selecting Sounds for Success Top Microphones for Multifacited YouTube Professionals</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-the-power-of-thumbnails-creating-visual-appeal-for-youtube-content/"><u>[Updated] Unlocking the Power of Thumbnails Creating Visual Appeal for YouTube Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-first-impression-matters-8-must-try-youtube-tools-for-thumbnails/"><u>[Updated] Your First Impression Matters 8 Must-Try YouTube Tools for Thumbnails</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-funimate-simplified-your-compreayer-guide/"><u>2024 Approved Funimate Simplified Your Compreayer Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-techniques-for-elongated-iphone-photography/"><u>In 2024, Techniques for Elongated iPhone Photography</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-textual-terminals/"><u>Tailoring Textual Terminals</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-macbook-peripherals-expert-opinions-and-ratings-zdnet/"><u>Ultimate Guide to MacBook Peripherals : Expert Opinions and Ratings | ZDNet</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-excellence-in-editing-selecting-the-right-software/"><u>[New] 2024 Approved Excellence in Editing Selecting the Right Software</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-exploring-the-spectrum-a-creatives-resource/"><u>[New] 2024 Approved Exploring the Spectrum A Creative's Resource</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-tips-for-incorporating-dynamic-cards-in-youtube-videos-for-2024/"><u>[New] Essential Tips for Incorporating Dynamic Cards in YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-magic-behind-melodies-an-analysis-of-magix-music-maker/"><u>[New] Magic Behind Melodies An Analysis of Magix Music Maker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-video-affiliates-a-roadmap-to-financial-growth/"><u>[New] Video Affiliates A Roadmap to Financial Growth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-easy-youtube-introduction-design-tips-and-tricks-for-2024/"><u>[Updated] Easy YouTube Introduction Design Tips and Tricks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mirrorless-vs-dslr-video-mastery-in-focus/"><u>[Updated] Mirrorless vs DSLR Video Mastery in Focus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-securing-top-viewership-unveiling-the-hidden-power-of-youtubes-featured-channels/"><u>[Updated] Securing Top Viewership Unveiling the Hidden Power of YouTube’s Featured Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-iphones-loop-functionality/"><u>[Updated] Unlocking iPhone's Loop Functionality</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-smoothie-your-phone-converting-iphones-jpegpng-to-pdf/"><u>2024 Approved Smoothie Your Phone Converting iPhone's JPEG/PNG to PDF</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-12-pro-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 12 Pro Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-picsart-guide-discreetly-mask-faces/"><u>In 2024, Picsart Guide Discreetly Mask Faces</u></a></li>
+<li><a href="https://win-lab.techidaily.com/online-kostenloser-asf-zu-wav-konverter-mit-movavi-fugen-sie-ihren-audiodateien-heute-eine-neue-qualitatsebene-hinzu/"><u>Online Kostenloser ASF Zu WAV Konverter Mit Movavi – Fügen Sie Ihren Audiodateien Heute Eine Neue Qualitätsebene Hinzu!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-solutions-to-tackle-bcm20-45a0-driver-troubles-with-ease/"><u>Quick Solutions to Tackle BCM20 45A0 Driver Troubles with Ease</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-a78-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Oppo A78 5G Users</u></a></li>
 </ul></div>
 

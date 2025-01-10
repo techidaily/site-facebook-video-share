@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Youth Empowerment  Your Life Story Can Inspire\""
-date: 2024-12-30T05:19:57.920Z
-updated: 2025-01-01T22:34:38.097Z
+date: 2025-01-08T23:15:24.618Z
+updated: 2025-01-09T16:04:03.122Z
 tags:
   - ai video
   - ai youtube
@@ -45,12 +45,16 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\.  Draw My Life
@@ -66,16 +70,12 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
@@ -85,27 +85,27 @@ Behind all their smiles and outrageous on-camera personas, there are a lot of Yo
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -122,19 +122,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-video-popularity-on-youtube/"><u>[New] 2024 Approved Elevating Video Popularity on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-chronicles-of-youtube-the-ultimate-viral-list/"><u>[New] In 2024, Chronicles of YouTube The Ultimate Viral List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unraveling-the-mystery-of-downloading-youtube-playlists/"><u>[New] Unraveling the Mystery of Downloading YouTube Playlists</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-deleting-youtube-comments-for-2024/"><u>[Updated] Deleting YouTube Comments for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-enhanced-video-clarity-on-iphone-and-android-platforms-for-2024/"><u>[Updated] Enhanced Video Clarity on iPhone & Android Platforms for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-gaming-insiders-youtube-channels-you-should-see/"><u>[Updated] Gaming Insiders' YouTube Channels You Should See</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>[Updated] In 2024, Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-learn-the-basics-of-facebook-metrics-easily/"><u>[Updated] Learn the Basics of Facebook Metrics, Easily</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-navigating-the-landscape-of-fb-video-advertising-with-best-practices-for-2024/"><u>[Updated] Navigating the Landscape of FB Video Advertising with Best Practices for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/error-free-system-refreshes-on-windows-11-strategies-to-correct-the-there-was-a-problem-message/"><u>Error-Free System Refreshes on Windows 11: Strategies to Correct the 'There Was a Problem' Message</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-spark-creativity-with-costless-auditory-extras/"><u>In 2024, Spark Creativity with Costless Auditory Extras!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-video-kick-offs-the-best-16-youtube-vlogs-to-increase-views-for-2024/"><u>Leading Video Kick-Offs The Best 16 YouTube Vlogs to Increase Views for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/scheduling-zoom-conferences-for-android-users/"><u>Scheduling Zoom Conferences for Android Users</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/solving-your-computers-sound-issues-a-step-by-step-guide-powered-by-yl-computing/"><u>Solving Your Computer's Sound Issues: A Step-by-Step Guide - Powered by YL Computing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-compre-written-in-sounds-youtube-playlists-decoded-for-2024/"><u>[New] A Compre Written in Sounds YouTube Playlists Decoded for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exploring-the-dynamics-of-profit-distribution-in-video-shorts-for-2024/"><u>[New] Exploring the Dynamics of Profit Distribution in Video Shorts for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solved-razer-synapse-not-opening/"><u>[Solved] Razer Synapse Not Opening</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters/"><u>[Updated] 2024 Approved Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-thumbnail-extract-from-youtube-videos-today/"><u>[Updated] Free Thumbnail Extract From YouTube Videos Today</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-steps-for-creating-collab-videos-with-youtubers/"><u>[Updated] The Ultimate Steps for Creating Collab Videos with YouTubers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/easy-tips-for-switching-between-landscape-and-portrait-modes-on-a-laptop-screen/"><u>Easy Tips for Switching Between Landscape and Portrait Modes on a Laptop Screen</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/get-your-memories-back-free-tool-for-restoring-damaged-pictures/"><u>Get Your Memories Back: Free Tool for Restoring Damaged Pictures</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-iphones-guide-creating-your-first-music-video/"><u>In 2024, IPhone's Guide Creating Your First Music Video</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-uncovering-the-leading-10-under-the-radar-story-viewers/"><u>In 2024, Uncovering the Leading 10 Under-the-Radar Story Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-visionaries-of-interactive-marvel-worlds/"><u>In 2024, Visionaries of Interactive Marvel Worlds</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-microsoft-store-issue-x80073d26-in-win11/"><u>Solving Microsoft Store Issue X:80073d26 in Win11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/taming-soundscapes-mastering-gradual-volume-increase-with-audition/"><u>Taming Soundscapes Mastering Gradual Volume Increase with Audition</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/techniques-for-vimeo-video-insertion-into-corporate-presentations-for-2024/"><u>Techniques for Vimeo Video Insertion Into Corporate Presentations for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-hidden-prowess-in-locating-elusive-youtube-videos-for-2024/"><u>The Hidden Prowess in Locating Elusive YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-the-potential-of-edu-vids-strategies-for-captivating-your-viewers-on-youtube-for-2024/"><u>Unlocking the Potential of Edu-Vids Strategies for Captivating Your Viewers on YouTube for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-computer-newest-targus-displaylink-drivers-for-windows-operating-systems/"><u>Update Your Computer: Newest Targus DisplayLink Drivers for Windows Operating Systems</u></a></li>
 </ul></div>
 

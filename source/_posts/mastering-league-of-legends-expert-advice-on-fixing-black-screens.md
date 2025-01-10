@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2024-12-26T06:16:48.837Z
-updated: 2025-01-02T03:07:48.931Z
+date: 2025-01-05T22:58:54.411Z
+updated: 2025-01-09T21:32:09.789Z
 tags:
   - win11
   - win10
@@ -60,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
  If your PC meets the system requirement for League of Legends but the game crashing issue persists, try the next fix, below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 2: Update your drivers
 
  A missing or outdated driver may also trigger the game crashing issue. If it’s the case, this issue can be easily resolved after you update your drivers.
@@ -82,15 +86,15 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
 
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-84.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
 
@@ -109,7 +113,7 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3) Wait until Windows downloaded and installed all the updates.
@@ -117,6 +121,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 4) Restart Windows and run League of Legends again.
 
  See if you can play the game without crashes. If so, you’ve fixed this issue! If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Repair corrupted game files
 
@@ -128,21 +136,17 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Click**Initiate Full Repair** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) Click**Yes** to continue. This may take a while.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
 
@@ -161,10 +165,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap778.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Run League of Legends to see if you resolved this issue.
 
@@ -188,14 +188,24 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-top-8-yt-thumbnails-that-increase-watch-time-and-interests/"><u>[New] 2024 Approved The Top 8 YT Thumbnails that Increase Watch Time and Interests</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>[New] In 2024, A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-the-power-of-youtube-to-mp3-conversion/"><u>[New] Unleashing the Power of YouTube-to-MP3 Conversion</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-10-steps-to-perfect-youtube-reactions-a-trio-guide-for-2024/"><u>[Updated] 10 Steps to Perfect YouTube Reactions – A Trio Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-memorable-valorant-thumbnails-a-practical-guide-for-youtube-creators-for-2024/"><u>[Updated] Crafting Memorable Valorant Thumbnails A Practical Guide for YouTube Creators for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones-for-2024/"><u>[Updated] Effortless Guide to Share Your Videos as Shorts on Computers & Phones for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-vocal-variations-a-curated-list-of-the-best-15-youtube-vocals-tutorials/"><u>[Updated] Vocal Variations A Curated List of the Best 15 YouTube Vocals Tutorials</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721474155655-overcoming-connectivity-issues-make-your-iphone-compatible-with-itunes-and-finder-again/"><u>Overcoming Connectivity Issues - Make Your iPhone Compatible with iTunes & Finder Again!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-5-high-res-screens-for-playstation-5/"><u>Top 5 High-Res Screens for PlayStation 5</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-navigating-twitter-video-submission-protocols/"><u>[New] 2024 Approved Navigating Twitter Video Submission Protocols</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-dslr-or-mirrorless-for-high-quality-video-recording-for-2024/"><u>[New] DSLR or Mirrorless for High-Quality Video Recording for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhancing-your-youtube-projects-a-compreayer-of-visual-improvement/"><u>[New] In 2024, Enhancing Your YouTube Projects A Compreayer of Visual Improvement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-battle-between-youtubes-copyright-clause-and-cc-license/"><u>[New] The Battle Between YouTube’s Copyright Clause & CC License</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-viewership-archive-youtube-visionaries/"><u>[New] Top Viewership Archive YouTube Visionaries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-closer-look-at-youtubes-unlisted-content-category/"><u>[Updated] 2024 Approved A Closer Look at YouTube’s ‘Unlisted’ Content Category</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-conquering-camera-fear-paving-the-path-to-youtube-success/"><u>[Updated] 2024 Approved Conquering Camera Fear Paving the Path to YouTube Success</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pixel-perfect-video-modifier/"><u>[Updated] Pixel-Perfect Video Modifier</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stream-freedom-on-the-go-download-your-favorite-youtube-tracks-ios/"><u>[Updated] Stream Freedom on the Go Download Your Favorite YouTube Tracks iOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-potential-crafting-a-youtube-channel-brand-for-success/"><u>[Updated] Unleashing Potential Crafting a YouTube Channel Brand for Success</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-journey-back-in-time-with-these-top-5-gba-console-emulators-for-pcs/"><u>2024 Approved Journey Back in Time with These Top 5 GBA Console Emulators for PCs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-streamline-your-video-experience-with-advanced-vlc-techniques-macos/"><u>2024 Approved Streamline Your Video Experience with Advanced VLC Techniques (macOS)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-live-excellence-a-comprehensive-tutorial/"><u>2024 Approved YouTube Live Excellence A Comprehensive Tutorial</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-iphone-6-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your iPhone 6 without Security Questions?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-apple-iphone-7-plus-drfone-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-lava-agni-2-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Lava Agni 2 5G online without jailbreak</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-snap-to-gifs-making-twitter-video-freely-convertible/"><u>In 2024, Snap to GIFs Making Twitter Video Freely Convertible</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-animation-advantage-boosting-profits-in-social-media-ads/"><u>In 2024, The Animation Advantage Boosting Profits in Social Media Ads</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/updating-your-windows-graphics-driver-a-step-by-step-guide-tech-solutions-by-yl/"><u>Updating Your Windows Graphics Driver: A Step-by-Step Guide - Tech Solutions by YL</u></a></li>
 </ul></div>
 

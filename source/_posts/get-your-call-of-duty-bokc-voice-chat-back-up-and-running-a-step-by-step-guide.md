@@ -1,7 +1,7 @@
 ---
 title: "Get Your Call of Duty: BOKC Voice Chat Back Up and Running - A Step-by-Step Guide"
-date: 2024-12-31T22:24:53.382Z
-updated: 2025-01-02T08:56:20.361Z
+date: 2025-01-08T23:17:56.247Z
+updated: 2025-01-09T20:23:58.551Z
 tags:
   - win11
   - win10
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/black-ops-cold-war-featured.jpg)
 
  When you’re about to enjoy the fight in Black Ops Cold War with your buddies, the last thing you want to know is that the voice chat stops working. Many gamers are reporting this**voice chat issue** with the new COD title. So here we have some fixes that worked for many veterans, try them and dominate the field with your amigos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -40,19 +36,11 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 
 If the connection is fine, check out the next fix below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2: Disable your peripherals
 
  In some cases, your game chat won’t work[**because your controller is conflicting with your mic**](https://www.reddit.com/r/blackopscoldwar/comments/jtcnob/voice%5Fchat%5Fnot%5Fworking/) . This is a weird but possible situation. So before entering Black Ops Cold War, make sure you’ve disabled your peripherals, especially those with a headphone jack.
 
  If you’re not using any peripherals, simply move on to the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Change your default recording device
 
@@ -72,11 +60,11 @@ First you need to check the default audio device on your system:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/device-properties-and-test-microphone.jpg)
 4. Click **Start test** and tap or speak to your microphone. Then click **Stop test** . If you’re prompted **The highest value we saw was xx (xx > 0) percent** , it means your microphone has been set up correctly.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/sound-test-percent.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Set up your mic correctly in the Battle.net client
 
@@ -87,6 +75,10 @@ Next, you need to check the voice chat settings in the Battle.net client:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/battle-net-settings-1.jpg)
 3. On the menu to your left, select **Voice Chat** . Set **OUTPUT DEVICE** and **INPUT DEVICE** to **System Default Device** . Then click **Done** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/blizzard-voice-chat.jpg)
 
 Now launch Black Ops Cold War and see if you can talk to others.
@@ -94,7 +86,7 @@ Now launch Black Ops Cold War and see if you can talk to others.
  If your mic still doesn’t work in the game, you can try the next fix below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 4: Update your audio driver
@@ -119,7 +111,7 @@ Now launch Black Ops Cold War and see if you can talk to others.
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
@@ -131,10 +123,6 @@ Now launch Black Ops Cold War and see if you can talk to others.
 
  If updating the audio driver doesn’t work for you, simply continue to the next fix.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 5: Change the in-game audio settings
 
  For your voice chat to work correctly, you also need to make sure the in-game audio settings are properly set up. You can follow these steps to check:
@@ -143,11 +131,23 @@ Now launch Black Ops Cold War and see if you can talk to others.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-audio-settings.jpg)
 2. Be sure to set both**Speakers/Headphones Voice Chat Device** and**Microphone Device** to**Default Communication Device** . Set**Microphone Activation Mode** to**Open Mic** . Then increase the value of**Open Microphone Sensitivity** to over 50.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-ingame-voice-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now you can restart Black Ops Cold War and check if the voice chat is working.
 
  If changing game settings doesn’t help, you can try the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6: Install all Windows updates
 
@@ -184,21 +184,20 @@ Here’s a quick guide for that:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-15-inspiring-youtube-guides-for-aspiring-singers-and-instrumentalists/"><u>[New] 2024 Approved 15 Inspiring YouTube Guides for Aspiring Singers and Instrumentalists</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-bridging-the-gap-between-classic-and-contemporary-videos-for-2024/"><u>[New] Bridging the Gap Between Classic and Contemporary Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-tips-for-securing-top-tier-youtube-ad-campaigns-using-famebit/"><u>[New] In 2024, Expert Tips for Securing Top-Tier YouTube Ad Campaigns Using FameBit</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-new-skies-with-syma-x5c-an-experts-take-for-novices/"><u>[New] In 2024, Navigating New Skies with Syma X5C – An Expert’s Take for Novices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-android-resource-guide-to-download-videos-from-youtube/"><u>[New] The Ultimate Android Resource Guide to Download Videos From YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-key-strategies-for-high-definition-iptv-logging/"><u>[Updated] 2024 Approved Key Strategies for High-Definition IPTV Logging</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-mastering-movie-aesthetics-through-color-grading-and-luts/"><u>[Updated] In 2024, Mastering Movie Aesthetics Through Color Grading and Luts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-whos-at-the-apex-youtube-subscribers-ranking/"><u>2024 Approved Who's at the Apex? YouTube Subscribers Ranking</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-online-reviews-ever-forgotten/"><u>Are Online Reviews Ever Forgotten?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/eliminate-camera-sway-no-tripods-allowed-in-2024/"><u>Eliminate Camera Sway No Tripods, Allowed, In 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-iphone-se-2022-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From iPhone SE (2022) If Youve Tried Everything</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-oneplus-nought-six-t-peak-efficiency-pair-with-economical-investment/"><u>Mastering the OnePlus Nought Six T: Peak Efficiency Pair with Economical Investment</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-expert-approved-video-editing-software/"><u>New Expert-Approved Video Editing Software</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/pixelperfect-editor-for-2024/"><u>PixelPerfect Editor for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionizing-the-game-an-insiders-look-at-dells-luxury-laptop-with-mind-blowing-features-breakdown-and-analysis-for-gamers/"><u>Revolutionizing the Game: An Insider's Look at Dell's Luxury Laptop with Mind-Blowing Features | Breakdown & Analysis for Gamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-complete-picture-toolwizs-app-masterclass/"><u>[New] 2024 Approved The Complete Picture Toolwiz's App Masterclass</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-boost-length-on-youtube-entry-filming-for-2024/"><u>[New] Boost Length on YouTube Entry Filming for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-steps-for-starting-a-youtube-channel-for-2024/"><u>[New] Essential Steps for Starting a YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-best-free-no-money-tools-for-digital-video-cutting/"><u>[New] The Best Free, No-Money Tools for Digital Video Cutting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-engagement-youtube-strategies-for-increased-viewership/"><u>[Updated] In 2024, Boosting Engagement YouTube Strategies for Increased Viewership</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-end-game-for-youtube-content-pros-secrets-and-templates/"><u>[Updated] In 2024, End Game for YouTube Content Pros' Secrets & Templates</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-from-reels-to-filters-a-closer-look-at-tiktok-vs-snaps-features/"><u>[Updated] In 2024, From Reels to Filters A Closer Look at TikTok vs Snap's Features</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-macos-11-big-sur-compatibility-guide/"><u>[Updated] In 2024, MacOS 11 Big Sur Compatibility Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pioneering-resources-leading-free-video-openers-guide/"><u>[Updated] Pioneering Resources Leading Free Video Openers Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-wealth-wave-on-your-screen-monetizing-as-a-streamer/"><u>[Updated] Wealth Wave on Your Screen Monetizing as a Streamer</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-travel-gems-the-66-must-follow-tweeters-for-epic-journeys-and-exclusive-discounts/"><u>Discover Travel Gems: The 66 Must-Follow Tweeters for Epic Journeys & Exclusive Discounts.</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-white-components-for-bargain-buyers-dreams/"><u>Ultimate White Components for Bargain Buyers' Dreams</u></a></li>
 </ul></div>
 

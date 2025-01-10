@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Digital Deck of Cards  YouTube's Milestone Challenges\""
-date: 2024-08-01T09:56:07.627Z
-updated: 2024-08-02T09:56:07.627Z
+date: 2025-01-03T16:19:41.960Z
+updated: 2025-01-09T23:35:38.570Z
 tags:
   - ai video
   - ai youtube
@@ -31,8 +31,9 @@ YouTube rewards creators for channel growth using "Play Buttons," YouTube Subscr
 Here are all of YouTube's levels, from small to big:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Benefit levels
 
 [1\. Graphite](#graphite)
@@ -41,9 +42,6 @@ Here are all of YouTube's levels, from small to big:
 
 [3\. Bronze](#bronze)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## Awards Level
 
 [4\. The Silver Creator Award](#The Silver Creator Award)
@@ -52,9 +50,6 @@ Here are all of YouTube's levels, from small to big:
 
 [6\. The Diamond Creator Award](#The Diamond Creator Award)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Super High Level
 
 [7\. The Custom Creator Award](#The Custom Creator Award)
@@ -63,21 +58,16 @@ Here are all of YouTube's levels, from small to big:
 
 Want to learn how to [get more subscribers](https://tools.techidaily.com/wondershare/filmora/download/) and increase your level?
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![play-btn-awards-free-download](https://images.wondershare.com/filmora/article-images/play-btn-awards-free-download.png)](https://www.filmora.io/free-youtube-subscribers?utm%5Fsource=blog&utm%5Fcampaign=get%5Fsubs%5Fevergreen&utm%5Fcontent=blog%202)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Benefit levels
 
 YouTube won't award the YouTubers of these levels with physical plaque but will offer them alternative benefits.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **#1: Graphite Level (0-1000 subscribers)**
 
 ![play-btn-awards-graphite-level](https://images.wondershare.com/filmora/article-images/play-btn-awards-graphite-level.jpg)
@@ -99,28 +89,31 @@ Getting ten thousand subscribers is a big deal. By this point, you have enough o
 When a verified YouTube channel reaches a specific milestone and is deemed eligible for a creator award, they are awarded a relatively flat trophy in a metal casing with a YouTube play button symbol.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **#4: The Silver Creator Award (100K-1 million subscribers)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **![silver creator award](https://images.wondershare.com/filmora/article-images/silver-creator-award.jpg)**
 
 This is the first level that comes with a trophy. YouTubers with a Silver Play Button probably won't be earning enough money from YouTube to support themselves, but they're in a good position to start going after more lucrative brand deals. Creators at this level may be earning enough to invest in some better camera gear. Channels at this level are also eligible to apply for a digital verification badge.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **#5: The Gold Creator Award (1 million-10 million subscribers)**
 
 **![play-btn-awards-gold-level](https://images.wondershare.com/filmora/article-images/youtube-creator-award-gold-plaque.jpg)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _If people mean graphite when they say 'lead,' and alchemists turn lead into gold, then is YouTube really about alchemy?_
 
 At this level, you're making money. When you first reach 1 million, it may still not be enough to live off of, but you're getting close to being able to make YouTube your job (which you will probably be able to do before leaving the Gold Level). Things like your own makeup line or a book deal are not out of the question at this point.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### **#6: The Diamond Creator Award (10 million-50 million subscribers)**
 
 ![play-btn-awards-diamond-level](https://images.wondershare.com/filmora/article-images/youtube-creator-awards-diamond.jpg)
@@ -132,13 +125,11 @@ You're a YouTube star. You've made it. You're making enough money that YouTube/p
 The awards in these levels are absent from the Creator Awards page. Only a handful of channels achieved these levels.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **#7: The Custom Creator Award (50 million subscribers)**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 **![play-btn-awards-diamond-level](https://images.wondershare.com/filmora/article-images/pewdiepie-custom-creator-award.jpg)**
 
 For channels whose subscribers are over 50 million, PewDiePie is the first person to ever receive this reward. It was made by the shape of his channel logo, a fist bump. He nicknamed this custom play button the Ruby Play Button. If you manage to reach this level, you are beyond being a star on YouTube and are now a bonafide pop culture phenomenon.
@@ -146,6 +137,10 @@ For channels whose subscribers are over 50 million, PewDiePie is the first perso
 ### **#8: The Red Diamond Creator Award (100 million subscribers)**
 
 **![red diamond creator award](https://images.wondershare.com/filmora/article-images/red-diamond-creator-award.jpg)**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The play button at this level features a play button triangle with a large dark red crystal. If you are able to obtain the award at this level, monetization should never be for you to worry about. One hundred million subscribers mean that 1.3% of the people on this planet are watching you. You'd be a legend if you made it. As of August 2020, only PewDiePie and T-series have obtained this award.
 
@@ -157,10 +152,11 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,12 +164,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-essential-techniques-5-audio-recording-tools-in-windows-11-for-2024/"><u>[New] Essential Techniques 5 Audio Recording Tools in Windows 11 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-guide-to-designing-youtube-follow-links/"><u>[New] In 2024, Effortless Guide to Designing YouTube Follow Links</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-definitive-guide-to-youtubes-algorithmic-secrets-for-rankings/"><u>[New] The Definitive Guide to YouTube's Algorithmic Secrets for Rankings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-your-creative-vision-a-guide-to-android-editors/"><u>[New] Unleash Your Creative Vision A Guide to Android Editors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-15-top-rated-youtube-downloaders-your-offline-viewing-solution-for-2024/"><u>[Updated] 15 Top-Rated YouTube Downloaders - Your Offline Viewing Solution for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-vlc-software-basics-for-macos/"><u>[Updated] In 2024, Navigating VLC Software Basics for MacOS</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-introduction-to-organizing-remote-work-hours-for-2024/"><u>[Updated] Introduction to Organizing Remote Work Hours for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastery-of-removal-eliminating-downloaded-youtube-clips/"><u>[Updated] Mastery of Removal Eliminating Downloaded YouTube Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-fire-success-strategies-the-essential-list-of-20-video-tips/"><u>[Updated] Rapid-Fire Success Strategies The Essential List of 20 Video Tips</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-ultimate-voice-changer-a-detailed-manual-on-morphvox-transformation-for-2024/"><u>[Updated] The Ultimate Voice Changer A Detailed Manual on MorphVOX Transformation for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-whatsapp-integration-for-facebook-video-posts-for-2024/"><u>[Updated] WhatsApp Integration for Facebook Video Posts for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-12-real-time-youtube-subscriber-trackers/"><u>2024 Approved Top 12 Real-Time YouTube Subscriber Trackers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/eliminating-startup-glitches-in-hogwarts-legacy-with-these-8-methods/"><u>Eliminating Startup Glitches in Hogwarts Legacy with These 8 Methods</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932953-9781855844445-good-and-evil-spirits/"><u>Good and Evil Spirits | Free Book</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-pcs-gateway-to-the-past-selecting-top-5-ps1-game-emulators/"><u>In 2024, PC's Gateway to the Past - Selecting Top 5 PS1 Game Emulators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/photographys-new-frontier-toolwiz-app-detailed-review-2023-edition/"><u>Photography's New Frontier Toolwiz App - Detailed Review, 2023 Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-financial-flip-understanding-1-million-views-payoff-for-2024/"><u>The Financial Flip Understanding 1 Million Views Payoff for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtube-revenue-essential-view-count-milestones-for-2024/"><u>Unlocking YouTube Revenue Essential View Count Milestones for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-step-by-step-guide-to-purchasing-youtube-royalties-for-2024/"><u>Your Step-by-Step Guide to Purchasing YouTube Royalties for 2024</u></a></li>
+</ul></div>
 

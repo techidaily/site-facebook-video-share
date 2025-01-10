@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Building a Strong Online Presence with Attractive Video Thumbnails\""
-date: 2024-08-01T09:52:42.483Z
-updated: 2024-08-02T09:52:42.483Z
+date: 2025-01-05T20:44:27.759Z
+updated: 2025-01-09T22:11:59.742Z
 tags:
   - ai video
   - ai youtube
@@ -38,28 +38,29 @@ Here are 5 easy tips for creating thumbnails that get views.
 
  _Contest now closed._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos Before Creating Video Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
 
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
 
@@ -68,26 +69,21 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -100,13 +96,15 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -114,4 +112,24 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-3-unconventional-tactics-for-subscriber-growth/"><u>[New] In 2024, 3 Unconventional Tactics for Subscriber Growth</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-digital-artistry-perfecting-your-photoshop-skills/"><u>[New] In 2024, Digital Artistry Perfecting Your Photoshop Skills</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-reverse-an-accidental-tiktok-reload-quick-guide/"><u>[New] In 2024, Reverse an Accidental TikTok Reload – Quick Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-creativity-with-the-right-camera-lenses/"><u>[New] Unleash Creativity with the Right Camera Lenses</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-imovies-power-to-transform-ordinary-openers-into-epic/"><u>[Updated] 2024 Approved IMovie's Power to Transform Ordinary Openers Into Epic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-step-by-step-approach-to-professional-video-sharing-for-2024/"><u>[Updated] A Step-by-Step Approach to Professional Video Sharing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-audible-savings-the-essential-guide-to-using-these-24-no-cost-splitters-on-youtube-for-2024/"><u>[Updated] Audible Savings The Essential Guide to Using These 24 No-Cost Splitters on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-boosting-views-with-customized-thumbnail-sizes-on-youtube-for-2024/"><u>[Updated] Boosting Views with Customized Thumbnail Sizes on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-quick-cut-channel-sequences/"><u>[Updated] In 2024, Crafting Quick-Cut Channel Sequences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-securing-your-digital-dividends-a-no-ads-youtube-money-manual/"><u>[Updated] Securing Your Digital Dividends A No Ads YouTube Money Manual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-vernacular-vocabulary-compendium/"><u>Australian Vernacular Vocabulary Compendium</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/descubre-las-herramientas-mas-eficientes-los-7-mejores-programas-gratuitos-de-grabacion-de-pantalla-en-windows-8/"><u>Descubre Las Herramientas Más Eficientes: Los 7 Mejores Programas Gratuitos De Grabación De Pantalla en Windows 8</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/sive-guide-10-immersive-youtube-vr-films/"><u>Exclusive Guide 10 Immersive YouTube VR Films</u></a></li>
+<li><a href="https://driver-install.techidaily.com/get-intel-hd520-graphics-software/"><u>Get Intel HD520 Graphics Software</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/in-depth-insights-into-the-world-of-netflix-streaming-technology/"><u>In-Depth Insights Into the World of Netflix Streaming Technology</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-complete-untapped-potential-of-dji-phantom-4/"><u>The Complete Untapped Potential of DJI Phantom 4</u></a></li>
+</ul></div>
 

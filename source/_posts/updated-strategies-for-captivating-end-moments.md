@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Strategies for Captivating End Moments"
-date: 2024-12-27T09:00:09.512Z
-updated: 2025-01-01T22:11:31.213Z
+date: 2025-01-02T18:16:41.262Z
+updated: 2025-01-09T23:56:20.250Z
 tags:
   - ai video
   - ai youtube
@@ -91,7 +91,7 @@ Create a new composition on After Effects. Set the resolution to 1920x1080, the 
 ![finalize the composition settings](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 3: Create a Background Layer
@@ -100,6 +100,10 @@ Go to the "Layer" tab, tap "New," create a black "Solid" background layer.
 
 ![background layer creation](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 4: Add Video Suggestion Box
 
 Now grab the "Rectangle Tool" and create a new shape on the right side of the screen, which will serve as a video suggestion box. You can create multiple shapes if you want to add more than one video suggestion.
@@ -107,7 +111,7 @@ Now grab the "Rectangle Tool" and create a new shape on the right side of the sc
 ![video suggestion box added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 5: Add Subscribe Button
@@ -115,6 +119,10 @@ Step 5: Add Subscribe Button
 Next, go to the shape tool again and select the "Ellipse Tool." Deselect the current shape layer to create a new one and create a circle on the left part of the screen, which will act as your Subscribe button.
 
 ![subscribe button added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 6: Add Effects
 
@@ -127,6 +135,10 @@ Step 7: Customize Background
 From the "Effects and Preset" panel, you can add different "Animation Presets" to your background. Choose one that you like and drag it on the layer.
 
 ![customize your background](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 8: Add Text and Icons
 
@@ -142,15 +154,15 @@ Go to the "Composition" tab and select "Add to Render Queue." Press "Render." Yo
 
 ![add your outro to your youtube video](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Extra Tips: learn how to use YouTube outro templates
 
 You may now know the tricks about how to create a YouTube outro in After Effect. But if you want to make an outro more easily, you can try the [YouTube outro templates](https://tools.techidaily.com/wondershare/filmora/download/) from Wondershare Filmstock. Let's do it by the following steps with the [Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 1: Install Filmora video editor.
 
@@ -162,25 +174,21 @@ Step 3: Find the YouTube outro from the Filmora Titles folder. Then drag and app
 
 ![apply the youtube outro to your video](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: 5 Video Effects to Help You Create a Stunning YouTube Outro
 
 Still, looking for an easy way to create stunning outros for YouTube? [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) has just the answer for you acting as a resource library. Filmstock offers splendid video tools, including transitions, templates, stock footage, and royalty-free music. You can create professional-quality videos using Filmstock's valuable assets.
 
 Below are some prestigious YouTube outro templates by Filmstock, which you incorporate in your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. [YouTube Subscribe Reminders](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The YouTube Subscribe Reminders pack by Filmstock contains 10 title templates that can be used with Filmora's 9.6 or later versions. Featuring the like, subscribe, and bell icons of YouTube, this set is perfect for when you need to remind your viewers to subscribe to your channel. The specially themed text animations are perfectly suited for a good YouTube outro.
 
 ![youtube subscribe reminders](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. [4K YouTube Motion Graphics Packaging](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -195,11 +203,11 @@ Looking for a clean and elegant design for your YouTube outro? Filmstock's Clean
 ![clean youtube subscribe pack](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. [Social Media Icons Pack](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -214,10 +222,6 @@ Lower thirds are a great way to add useful information in your video without tak
 
 The Social Media Lower third Pack contains 16 text effects and templates inspired by major social platforms like Instagram and YouTube. You can use it with Filmora 9.2 or later versions to add your videos' locations, links, and prompts. The pack also contains some meticulously crafted elements that are perfect for YouTube outros.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Closing Words
 
 With YouTube becoming one of the most popular platforms for aspiring content creators, establishing your name there can prove to be a tough task. Lots of effort goes into crafting all the elements of the video to perfection. Creating a suitable YouTube outro is also part of the process, and it is important to learn how to get it right.
@@ -225,10 +229,6 @@ With YouTube becoming one of the most popular platforms for aspiring content cre
 With Adobe After Effects, you can create the perfect YouTube outros for your videos. Also, remember to try Filmstock's remarkable YouTube outro templates and make your videos stand apart from the crowd.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -245,20 +245,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-your-thriving-youtube-space-for-gamers/"><u>[New] 2024 Approved Building Your Thriving YouTube Space for Gamers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher/"><u>[New] 2024 Approved Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income/"><u>[New] In 2024, Creating Cash Flow on YouTube An Ad-Free Blueprint for Income</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-must-try-tiktok-video-ideas-drawing-from-anime-worlds/"><u>[New] Must-Try TikTok Video Ideas Drawing From Anime Worlds</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-nikons-challenge-to-gopro-hero-black-in-video-realm-for-2024/"><u>[New] Nikon's Challenge to GoPro HERO Black in Video Realm for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audiences-in-motion-analyzers/"><u>[Updated] 2024 Approved Audiences in Motion Analyzers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-visualize-success-discover-the-top-10-online-tools-for-channel-branding/"><u>[Updated] Visualize Success - Discover the Top 10 Online Tools for Channel Branding</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/stent-viewing-automatic-youtube-video-playback-on-tv/"><u>Consistent Viewing Automatic YouTube Video Playback on TV</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Does Life360 Notify When You Log Out On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/evolving-from-static-snapshots-to-moving-visuals/"><u>Evolving From Static Snapshots to Moving Visuals</u></a></li>
-<li><a href="https://some-tips.techidaily.com/mastering-the-future-job-market-cybersecurity-cloud-computing-and-programmings-rising-importance/"><u>Mastering the Future Job Market: Cybersecurity, Cloud Computing & Programming's Rising Importance</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolve-your-valorant-voice-chat-problems-with-these-quick-fixes/"><u>Resolve Your VALORANT Voice Chat Problems with These Quick Fixes</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-hp-zbook-firefly-eg8-review-a-revolution-in-mobility-and-efficiency/"><u>The HP ZBook Firefly eG8 Review - A Revolution in Mobility and Efficiency</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/top-independent-game-apps-for-screen-free-android-playing/"><u>Top Independent Game Apps for Screen-Free Android Playing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-tips-to-mastering-the-art-of-hashtag-creation-on-youtube-for-2024/"><u>Top Tips to Mastering the Art of Hashtag Creation on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-creating-compelling-sports-content-from-the-ground-up-for-2024/"><u>[New] Creating Compelling Sports Content From the Ground Up for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-your-way-to-greatness-a-complete-guide-to-valorant-video-thumbnails/"><u>[New] In 2024, Building Your Way to Greatness A Complete Guide to Valorant Video Thumbnails</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-your-adventures-with-top-6-head-mounted-cameras-by-gopro/"><u>[New] Mastering Your Adventures with Top 6 Head-Mounted Cameras by GoPro</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-experts-list-of-tools-for-accelerating-your-facebook-vids/"><u>[New] The Expert's List of Tools for Accelerating Your Facebook Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-breaking-the-mold-high-fidelity-sound-without-a-microphone-for-2024/"><u>[Updated] Breaking the Mold High-Fidelity Sound without a Microphone for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-brighter-days-with-five-winter-themed-backgrounds-for-2024/"><u>[Updated] Brighter Days with Five Winter-Themed Backgrounds for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-samsung-galaxy-m14-5g-by-fonelab-android-recover-music/"><u>How to restore wiped music on Samsung Galaxy M14 5G</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-of-podcast-titling-a-step-by-step-guide/"><u>In 2024, The Art of Podcast Titling A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/inside-the-magic-understanding-srts-impact-for-2024/"><u>Inside the Magic Understanding SRT's Impact for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/troubleshooting-guide-nier-replicant-remaster-wont-boot/"><u>Troubleshooting Guide: NieR Replicant Remaster Won't Boot</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/where-custom-visuals-for-youtube-live-and-breathe-for-2024/"><u>Where Custom Visuals for YouTube Live and Breathe for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Lag Issues in Age of Empires 4 for Smooth Gameplay
-date: 2024-12-27T16:43:50.155Z
-updated: 2025-01-02T03:41:43.133Z
+date: 2025-01-08T16:33:47.860Z
+updated: 2025-01-09T17:30:41.289Z
 tags:
   - win11
   - win10
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/yjwj_en_1280_1024_c81e728d9d4c2f636f067f89cc14862c-1200x960.jpg)
 
  Naraka: Bladepoint is finally back with the global release! But just like any other new releases, we’re seeing reports of bugs and errors. Many players reported the game**keeps crashing on PC** . The good news is there are some known fixes available. Read on and find out what they are…
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Try these fixes…
 
@@ -52,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 | **Storage**          | 20 GB available space                                                                                          | 20 GB available space                                                                                          |
 | **Additional Notes** | a) Can run at 720p/60fps; b) It’s recommended to install the game on an SSD for a more streamlined experience. | a) Can run at 1080p/60fps; b) It’s recommended to install the game on an SSD for a more streamlined experience |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 1: Close background programs
 
  Naraka: Bladepoint is likely to crash when too many programs are running in the background and taking up all the resources. You can shut down the background programs via Task Manager:
@@ -65,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 2. Under the**Processes** tab, look for the processes that are CPU, memory, and network-hogging. Take Chrome here, for example, right-click it then click**End task** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-04-25_17-41-30.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If this doesn’t solve your problem, try the next fix.
 
@@ -103,11 +99,15 @@ If this doesn’t solve your problem, try the next fix.
 2. Under the**LOCAL FILES** tab, click**Verify integrity of game files** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/verify-game-files-1.jpg)
 3. Steam will scan your local game files and compare them with those on the servers. If anything seems to be wrong, Steam will automatically fix it for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **On Epic Games** :
 
@@ -132,6 +132,10 @@ If this doesn’t solve your problem, try the next fix.
 
  Fortect comes with a 60-day Money-Back Guarantee. If you’re not satisfied with Fortect, you can contact <support@fortect.com> for a full refund.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 5: Increase the virtual memory on your PC
 
  The developer suggests that insufficient virtual memory could interfere with the game’s performance, and lead to the crashing issue. You can check your virtual memory (paging file size) first, then configure the settings if needed.
@@ -144,7 +148,7 @@ If this doesn’t solve your problem, try the next fix.
 3. Go to the**Advanced** tab, under the Performance section, click**Settings** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/advanced-performance-settings.jpg)
@@ -152,10 +156,6 @@ If this doesn’t solve your problem, try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/virtual-memory-change.jpg)
 5. Now you’ll see the paging file size on your PC.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/2021-08-10_11-54-07.jpg)
 
@@ -167,6 +167,10 @@ If this doesn’t solve your problem, try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/2021-08-10_11-54-55.jpg)
 2. Use the below formulas to calculate the values you should set:  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _**1GB = 1024 MB**_  
  _**Initial size (MB) = 1.5 \* the amount of RAM (GB) on your PC**_  
 _**Maximum size (MB) = 3 \* the amount of RAM (GB) on your PC**_
@@ -176,6 +180,10 @@ _**Maximum size (MB) = 3 \* the amount of RAM (GB) on your PC**_
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/custom-size.jpg)
 5. Restart your PC to let the changes take effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If your game still crashes, try the next fix.
 
@@ -194,10 +202,6 @@ If your game still crashes, try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/windows-update.jpg)
 4. Restart your PC to let it take effect.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If this doesn’t solve your problem, try the last fix.
 
 ## Fix 7: Perform a clean boot
@@ -215,13 +219,13 @@ If this doesn’t solve your problem, try the last fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-40-15.jpg)
 3. Switch to the**Startup** tab, click**Open Task Manager** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (Windows 7 users: right-click anywhere empty on your taskbar to find the option of task manager.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-45-12.jpg)
 4. Under**Startup** tab, click each startup item then click**Disable** until you’ve disabled all startup items.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-48-33.jpg)
 5. Restart your PC.
@@ -238,6 +242,10 @@ If this doesn’t solve your problem, try the last fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-53-16.jpg)
 3. Reboot your computer and launch the game. If it once again won’t crash, then you know that one of the services you ticked above is conflicting with it. If it_does_ crash, then the above five services are fine, and you’ll have to keep looking for the offending service.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. Repeat steps 2 and 3 above until you find the service that conflicts with Naraka: Bladepoint.  
 
  NOTE: We recommend testing five items in a group since it’s more efficient, but you’re welcome to do it at your own pace.
@@ -248,23 +256,15 @@ If this doesn’t solve your problem, try the last fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-25_15-29-08.jpg)
 2. Switch to the**Startup** tab, and**enable the first five startup items** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2021-04-28_16-59-36.jpg)
 3. Reboot and try launching Naraka: Bladepoint to see if it still crashes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. Repeat until you find the startup item that’s conflicting with the game.
 5. Disable the problem program and reboot your PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Known issues on Sonic studio virtual mixer driver
 
@@ -294,21 +294,20 @@ If this doesn’t solve your problem, try the last fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-dive-into-a-stream-of-9-full-length-festive-flicks-no-charge-for-2024/"><u>[New] Dive Into a Stream of 9 Full-Length Festive Flicks - No Charge for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-intrinsic-storytelling-principles/"><u>[New] Intrinsic Storytelling Principles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-condensation-editing-youtube-video-durations/"><u>[New] The Art of Condensation Editing YouTube Video Durations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-edible-media-recipe-tutorials/"><u>[New] The Art of Edible Media Recipe Tutorials</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-transform-spaceships-into-trees-youtubes-green-secrets-revealed/"><u>[New] Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-big-file-baskets-in-the-cloud-cost-effective-saver-for-2024/"><u>[Updated] Big File Baskets in the Cloud - Cost-Effective Saver for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-enhancing-quality-without-the-mic-a-practical-guide-for-2024/"><u>[Updated] Enhancing Quality without the Mic A Practical Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-horizontal-vs-vertical-best-for-fb-videos-in-2024/"><u>[Updated] Horizontal Vs. Vertical Best for FB Videos, In 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-snap-authenticity-guide-unveiling-selfies-truths-for-2024/"><u>[Updated] Insta Snap Authenticity Guide Unveiling Selfies' Truths for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-6-reviewed-small-steps-forward-yet-secures-its-throne-as-the-premier-timepiece/"><u>Apple Watch Series 6 Reviewed: Small Steps Forward Yet Secures Its Throne as The Premier Timepiece</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-bending-images-photoshops-simplest-alterations/"><u>In 2024, Bending Images Photoshop's Simplest Alterations</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Samsung Galaxy F15 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/leveraging-free-luts-a-pathway-to-improved-obs-streaming-for-2024/"><u>Leveraging Free LUTs A Pathway to Improved OBS Streaming for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/pivot-your-playlists-with-these-straightforward-tricks-for-2024/"><u>Pivot Your Playlists with These Straightforward Tricks for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-rapidly-eliminating-youtube-feedback-for-2024/"><u>The Ultimate Guide to Rapidly Eliminating YouTube Feedback for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/transforming-text-the-illustrator-3d-approach/"><u>Transforming Text The Illustrator 3D Approach</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-crafting-unique-ps3-gameplay-presentations-with-screen-recordings/"><u>[New] 2024 Approved Crafting Unique PS3 Gameplay Presentations with Screen Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creative-channel-themes-get-them-for-free/"><u>[New] 2024 Approved Creative Channel Themes Get Them for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-breakneck-broadcast-channel-your-youtube-list-for-2024/"><u>[New] Breakneck Broadcast Channel Your YouTube List for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-compare-and-contrast-leading-online-and-desktop-gif-tools-for-2024/"><u>[New] Compare & Contrast Leading Online & Desktop GIF Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-digital-glow-up-video-quality-boosting-tools-list-for-2024/"><u>[New] Digital Glow-Up Video Quality Boosting Tools List for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-9-ultimate-free-online-editors-for-content-creators/"><u>[Updated] In 2024, 9 Ultimate Free Online Editors for Content Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dissecting-youtubes-user-commentary/"><u>[Updated] In 2024, Dissecting YouTubes' User Commentary</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-8-truly-effective-video-marketing-strategies/"><u>[Updated] In 2024, Exploring 8 Truly Effective Video Marketing Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-peculiar-picasso-creating-quirky-quick-memes/"><u>[Updated] Peculiar Picasso Creating Quirky, Quick Memes</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-realme-narzo-60-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/complete-guide-solving-the-guilty-gear-strive-pc-game-freezing-issues/"><u>Complete Guide: Solving the 'Guilty Gear Strive' PC Game Freezing Issues</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-repairing-hyperx-cloud-alpha-microphone-problems/"><u>Diagnosing and Repairing HyperX Cloud Alpha Microphone Problems</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-gionee-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Gionee Without PUK Codes</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-and-fixing-blurred-image-problem-in-cyberpunk-2077-gameplay/"><u>Troubleshooting and Fixing Blurred Image Problem in Cyberpunk 2077 Gameplay</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-software-selection-for-professional-quality-picture-restoration/"><u>Ultimate Software Selection for Professional-Quality Picture Restoration</u></a></li>
 </ul></div>
 
