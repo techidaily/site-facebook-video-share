@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Excellence Exchange  Global Creators\""
-date: 2025-01-08T16:17:02.761Z
-updated: 2025-01-09T22:52:57.981Z
+date: 2025-01-13T18:01:35.183Z
+updated: 2025-01-15T16:03:48.889Z
 tags:
   - ai video
   - ai youtube
@@ -59,21 +59,21 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -82,14 +82,10 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -102,7 +98,7 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -114,6 +110,10 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,24 +130,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-budget-friendly-webinar-strategies-for-youtube/"><u>[New] 2024 Approved Budget-Friendly Webinar Strategies for YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-captivating-content-at-your-fingertips-download-youtube-for-ios/"><u>[New] In 2024, Captivating Content at Your Fingertips Download YouTube for iOS</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-innovative-approaches-to-craft-compelling-asmr-videos-for-mass-appeal/"><u>[New] Innovative Approaches to Craft Compelling ASMR Videos for Mass Appeal</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>[Updated] In 2024, Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-discover-your-favorite-6-premier-youtube-short-downloaders/"><u>[Updated] In 2024, Discover Your Favorite 6 Premier YouTube Short Downloaders</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-locating-your-own-playlists-on-youtube/"><u>[Updated] Locating Your Own Playlists on Youtube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-the-settings-youtube-comments-activation/"><u>[Updated] Navigating the Settings YouTube Comments Activation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-unlocking-secrets-the-battle-of-biometric-systems-in-phones/"><u>[Updated] Unlocking Secrets The Battle of Biometric Systems in Phones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-vloggers-ultimate-guide-to-best-gaming-microphones/"><u>2024 Approved Vloggers' Ultimate Guide to Best Gaming Microphones</u></a></li>
-<li><a href="https://common-error.techidaily.com/conquering-continuous-restart-problems-on-windows-11-ingenious-fixes-and-tips/"><u>Conquering Continuous Restart Problems on Windows 11: Ingenious Fixes and Tips</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/descargar-en-linea-como-convertir-archivos-wma-a-formato-mp3-sin-costo/"><u>Descargar en Línea: Cómo Convertir Archivos WMA a Formato MP3 Sin Costo</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elevate-user-experience-with-these-leading-videophones/"><u>Elevate User Experience with These Leading Videophones</u></a></li>
-<li><a href="https://extra-information.techidaily.com/encompassing-insight-a-look-inside-the-google-podcasts-app/"><u>Encompassing Insight A Look Inside the Google Podcasts App</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-resolve-vivo-s17t-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Vivo S17t Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-vivo-y36i-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Vivo Y36i in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/superior-performance-on-the-rise-upgraded-drivers-for-amd-hd-6950/"><u>Superior Performance on the Rise: Upgraded Drivers for AMD HD 6950</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-monitor-list-for-an-immersive-xbox-series-x-experience/"><u>The Ultimate Monitor List for an Immersive Xbox Series X Experience</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unmatched-tech-elevation-through-srs-enhancement-for-2024/"><u>Unmatched Tech Elevation Through SRS Enhancement for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/vivid-visuals-brush-up-your-youtube-beauty-videos-for-2024/"><u>Vivid Visuals Brush up Your YouTube Beauty Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-why-av1-is-a-game-changer-for-youtube-viewers/"><u>[New] 2024 Approved Discover Why AV1 Is a Game Changer for YouTube Viewers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-editorprime-design/"><u>[New] 2024 Approved EditorPrime Design</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-selection-best-desktop-pcs/"><u>[New] Exclusive Selection Best Desktop Pcs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-free-end-credits-maker-the-1-video-closers-guide/"><u>[New] Free End Credits Maker - The #1 Video Closers Guide!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-learn-the-art-of-green-screen-without-costs-top-4-youtube-techniques-for-aspiring-vfx-artists/"><u>[New] Learn the Art of Green Screen Without Costs Top 4 YouTube Techniques for Aspiring VFX Artists</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-avoid-monetization-mishaps-essential-youtube-checks/"><u>[Updated] 2024 Approved Avoid Monetization Mishaps Essential YouTube Checks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-how-to-edit-youtube-videos-in-imovie/"><u>[Updated] 2024 Approved How to Edit YouTube Videos in iMovie?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-14-pro-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/editing-windows-registry-files-step-by-step-tips-from-yl-software-experts/"><u>Editing Windows Registry Files Step-by-Step: Tips From YL Software Experts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-makeup-maestro-journey-establishing-a-channel-for-beauty-buffs/"><u>In 2024, Your Makeup Maestro Journey Establishing a Channel for Beauty Buffs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/securely-install-logitech-receiver-driver-and-apps-today/"><u>Securely Install Logitech Receiver Driver and Apps Today</u></a></li>
+<li><a href="https://video-capture.techidaily.com/simplifying-android-screen-recordings-a-user-friendly-method/"><u>Simplifying Android Screen Recordings A User-Friendly Method</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/twice-the-joy-television-looping-of-online-video-for-2024/"><u>Twice the Joy Television Looping of Online Video for 2024</u></a></li>
 </ul></div>
 

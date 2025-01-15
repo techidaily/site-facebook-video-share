@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos for 2024\""
-date: 2025-01-08T22:41:16.977Z
-updated: 2025-01-09T16:57:00.179Z
+date: 2025-01-14T17:20:03.924Z
+updated: 2025-01-15T18:34:14.494Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,24 +103,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-dynamic-content-with-youtube-playlist-embedding/"><u>[New] In 2024, Creating Dynamic Content with YouTube Playlist Embedding</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-cut-expenses-create-wow-download-high-quality-templates-for-videos/"><u>[New] In 2024, Cut Expenses, Create Wow - Download High-Quality Templates for Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-inter-service-shuffle-keeping-playlist-purity/"><u>[New] In 2024, Inter-Service Shuffle Keeping Playlist Purity</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-maximizing-your-iphones-burst-photography/"><u>[New] Maximizing Your iPhone's Burst Photography</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-viral-audio-waves-top-10-bgm-for-youtube-short-videos/"><u>[New] Viral Audio Waves Top 10 BGM for YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-essential-techniques-for-splendid-lyric-videos-lyric-video-maker-edition/"><u>[Updated] 2024 Approved Essential Techniques for Splendid Lyric Videos, Lyric Video Maker Edition</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-breaking-barriers-top-picks-of-virtual-reality-walkers/"><u>[Updated] Breaking Barriers Top Picks of Virtual Reality Walkers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-compelling-thumbnails-for-your-youtube-content-for-2024/"><u>[Updated] Crafting Compelling Thumbnails for Your YouTube Content for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-beginners-guide-to-crafting-trendy-mac-video-content/"><u>[Updated] In 2024, Beginner's Guide to Crafting Trendy Mac Video Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-channel-success-scaling-for-a-million-viewers/"><u>[Updated] In 2024, Boosting Channel Success Scaling for a Million Viewers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-download-youtube-videos-anywhere-anytime-free-android-tips/"><u>[Updated] In 2024, Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-maximize-youtube-exposure-in-156-characters-or-less/"><u>[Updated] Maximize YouTube Exposure in 156 Characters or Less</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-audience-favorites-3-powerful-tales/"><u>[Updated] Unlock Audience Favorites 3 Powerful Tales</u></a></li>
-<li><a href="https://fox-access.techidaily.com/get-your-data-on-site-quickly-5-best-techniques-for-computer-transfer/"><u>Get Your Data On-Site Quickly 5 Best Techniques for Computer Transfer</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-poco-x6-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Poco X6 Without Password | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-samsung-galaxy-f14-5g-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Samsung Galaxy F14 5G to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/origin-opens-successfully-after-fixing-errors-on-windows-10-11/"><u>Origin Opens Successfully After Fixing Errors on Windows 10, 11</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-10-secrets-from-pros-for-stellar-youtubers-music-videos-for-2024/"><u>Top 10 Secrets From Pros for Stellar Youtubers' Music Videos for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-your-epson-wf-3520-driver-for-seamless-windows-printing-experience/"><u>Update Your Epson WF-3520 Driver for Seamless Windows Printing Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-tech-for-new-channel-launches/"><u>[New] 2024 Approved Essential Tech for New Channel Launches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/udio-purging-techniques-for-streaming-success/"><u>[New] Audio Purging Techniques for Streaming Success</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-clear-and-steady-essential-youtube-camera-tech-for-2024/"><u>[New] Clear and Steady Essential YouTube Camera Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[New] In 2024, Acquire No-Cost Sounds for Videos & Podcasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-deletion-methods-for-youtubes-backlogged-video-collection/"><u>[New] In 2024, Deletion Methods for YouTube's Backlogged Video Collection</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-mastering-adventures-with-the-foremost-6-gopro-mounts-revealed/"><u>[New] Mastering Adventures with the Foremost 6 GoPro Mounts Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-digital-dynamos-8-youtube-channels-surging-forward/"><u>[Updated] 2024 Approved Digital Dynamos 8 YouTube Channels Surging Forward</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-twitter-stream-success-beginners-roadmap/"><u>[Updated] 2024 Approved Twitter Stream Success Beginner's Roadmap</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-a-youtube-future-scaling-up-or-staying-independent-for-2024/"><u>[Updated] Crafting a YouTube Future Scaling Up or Staying Independent for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unravel-the-secrets-to-sequential-video-viewing-no-charges/"><u>[Updated] Unravel the Secrets to Sequential Video Viewing (No Charges)</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-epson-ds-530-printer-driver-installation-for-windows-10-x64/"><u>Free Epson DS-530 Printer Driver Installation for Windows 10 X64</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/free-skype-recording-made-easy-mp3-edition-for-2024/"><u>Free Skype Recording Made Easy - MP3 Edition for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-t2-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo T2 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723003574985-wolcen-lords-of-mayhem-pc-game-crash-issues-resolved/"><u>Wolcen - Lords of Mayhem PC Game Crash Issues Resolved</u></a></li>
 </ul></div>
 

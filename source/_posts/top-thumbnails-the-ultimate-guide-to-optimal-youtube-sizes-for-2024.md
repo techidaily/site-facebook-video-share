@@ -1,7 +1,7 @@
 ---
 title: "\"Top Thumbnails  The Ultimate Guide to Optimal YouTube Sizes for 2024\""
-date: 2025-01-02T19:56:27.787Z
-updated: 2025-01-09T23:57:00.765Z
+date: 2025-01-13T18:09:54.215Z
+updated: 2025-01-15T16:23:15.186Z
 tags:
   - ai video
   - ai youtube
@@ -33,7 +33,7 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 * [**Part 3:** **Q&A-- About Creating YouTube Thumbnails**](#part3)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
@@ -56,6 +56,10 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -68,26 +72,26 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -98,14 +102,14 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
@@ -153,10 +157,6 @@ YouTube thumbnail plays an important part for the audience's first impression on
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -172,24 +172,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-cutting-edge-websites-for-digital-3d-gold-text-art/"><u>[New] 2024 Approved Cutting-Edge Websites for Digital 3D Gold Text Art</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-unveiling-the-hidden-gem-best-free-text-to-speech-macapps/"><u>[New] 2024 Approved Unveiling the Hidden Gem Best Free Text to Speech macApps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-gear-picking-the-very-best-among-top-9-free-logomakers-for-2024/"><u>[New] Essential Gear Picking the Very Best Among Top 9 Free Logomakers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-youtube-earnings-master-the-art-with-500-subscribers/"><u>[New] Maximizing YouTube Earnings Master the Art with 500 Subscribers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-free-youtube-comment-finder-you-should-try/"><u>[Updated] 2024 Approved Best Free YouTube Comment Finder You Should Try</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-tools-ranking-the-best-mobile-videography-apps/"><u>[Updated] 2024 Approved Essential Tools Ranking the Best Mobile Videography Apps</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-platform-face-off-going-live-with-obstwitch/"><u>[Updated] 2024 Approved The Platform Face-Off Going Live with OBS/Twitch</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-5-top-link-minimizers-transforming-youtube-watchability-for-2024/"><u>[Updated] 5-Top Link Minimizers Transforming YouTube Watchability for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-earning-ajeys-success-story-in-video-income/"><u>[Updated] The Art of Earning Ajey's Success Story in Video Income</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-epic-creators-colloquium/"><u>[Updated] The Epic Creator's Colloquium</u></a></li>
-<li><a href="https://win-news.techidaily.com/1-gratuitamente-passo-a-passo-para-reconstruir-seu-hd-corrompido-sem-esforco/"><u>1. Gratuitamente: Passo-a-Passo Para Reconstruir Seu HD Corrompido Sem Esforço!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-complete-assessment-hero4-black-potential/"><u>2024 Approved Complete Assessment Hero4 Black Potential</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-new-download-tool-facebook-videos-for-all-oses/"><u>2024 Approved New Download Tool Facebook Videos for All OSes</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-substitutes-to-moviemaker-in-the-windows-realm/"><u>2024 Approved Substitutes to MovieMaker in the Windows Realm</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-secrets-to-efficient-frame-viewing-free/"><u>2024 Approved YouTube's Secrets to Efficient Frame Viewing (FREE!)</u></a></li>
-<li><a href="https://win11.techidaily.com/regaining-control-over-office-suite-after-safe-mode-outbreak/"><u>Regaining Control Over Office Suite After Safe Mode Outbreak</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-compatibility-problems-between-corsair-icue-and-windows-operating-systems/"><u>Resolving Compatibility Problems Between Corsair iCUE and Windows Operating Systems</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-lava-agni-2-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Lava Agni 2 5G to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/windows-movie-maker-a-toolkit-for-youtube-videographers-for-2024/"><u>Windows Movie Maker A Toolkit for YouTube Videographers for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-youtube-mp3-downloader-compilation-top-10/"><u>[New] Best YouTube Mp3 Downloader Compilation (Top 10)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-comprehensive-guide-to-optimizing-facetime-recording-quality/"><u>[New] Comprehensive Guide to Optimizing FaceTime Recording Quality</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-conciseness-in-content-editing-your-youtube-videos-smartly-for-2024/"><u>[New] Conciseness in Content Editing Your YouTube Videos Smartly for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-elevate-your-media-experience-with-top-phone-videos/"><u>[New] Elevate Your Media Experience with Top Phone Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-charting-your-course-from-creator-to-major-label/"><u>[New] In 2024, Charting Your Course From Creator to Major Label</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-tips-for-creating-compelling-free-ads-on-youtube/"><u>[New] In 2024, Essential Tips for Creating Compelling Free Ads on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-10-video-card-selections-for-peak-streaming-performance-for-2024/"><u>[Updated] Best 10 Video Card Selections for Peak Streaming Performance for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-apps-for-3d-video-intros-on-social-platforms-for-2024/"><u>[Updated] Best Apps for 3D Video Intros on Social Platforms for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-every-angle-in-a-single-shot-versus-depth-driven-photography/"><u>[Updated] Every Angle in a Single Shot versus Depth-Driven Photography</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-video-profits-dailymotion-vs-youtube-insights/"><u>[Updated] Mastering Video Profits Dailymotion Vs. YouTube Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-video-composition-techniques/"><u>[Updated] Mastering YouTube Video Composition Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-secrets-capturing-apple-devices-for-engaging-videos/"><u>[Updated] Unlock the Secrets Capturing Apple Devices for Engaging Videos</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/bt70b-car-bluetooth-kit-for-seamless-audio-streaming/"><u>BT70B Car Bluetooth Kit for Seamless Audio Streaming</u></a></li>
+<li><a href="https://extra-information.techidaily.com/contrast-and-composition-theory-in-design/"><u>Contrast and Composition Theory in Design</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-installation-guide-updating-your-surface-docks-driver/"><u>Easy Installation Guide: Updating Your Surface Dock's Driver</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-samsung-galaxy-f34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-itel-a60s-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Itel A60s to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-for-yahoo-mail-failure-to-receive-emails/"><u>Troubleshooting Steps for Yahoo Mail Failure to Receive Emails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-youtube-star-status-becoming-a-self-assured-vlogger-for-2024/"><u>Unlock YouTube Star Status Becoming a Self-Assured Vlogger for 2024</u></a></li>
 </ul></div>
 

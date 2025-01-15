@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Taking the Leap  Essential Video Gatherings (Post-VidCon)\""
-date: 2025-01-06T21:50:13.220Z
-updated: 2025-01-09T22:23:32.876Z
+date: 2025-01-12T16:41:22.697Z
+updated: 2025-01-15T17:57:25.745Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
 VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
@@ -79,10 +83,6 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -119,7 +119,7 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -147,7 +147,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -161,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -200,10 +204,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -229,7 +229,7 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -247,19 +247,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-premier-artist-blending-images-and-harmony/"><u>[New] In 2024, Premier Artist Blending Images & Harmony</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-renaming-your-podcast-leading-ai-generators-explored/"><u>[New] Renaming Your Podcast Leading AI Generators Explored</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/especting-copyrights-when-converting-youtube-to-mp4-for-2024/"><u>[New] Respecting Copyrights When Converting YouTube to MP4 for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-sweeping-visual-upgrades-with-instagrams-chroma-key-tooling/"><u>[New] Sweeping Visual Upgrades with Instagram’s Chroma Key Tooling</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-outstanding-youtube-outro/"><u>[Updated] How to Make Outstanding YouTube Outro?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-does-your-channel-benefit-from-regular-youtube-payments/"><u>[Updated] In 2024, Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-interactive-multiplayer-experiences-online/"><u>[Updated] Interactive Multiplayer Experiences Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-toolkit-for-youtube-marketers-banner-mastery-guide/"><u>[Updated] The Ultimate Toolkit for YouTube Marketers Banner Mastery Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-screen-recorder-software-for-youtube-creators/"><u>[Updated] Top Screen Recorder Software For YouTube Creators</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-iphone-11-pro-max-without-passcode-now-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock iPhone 11 Pro Max Without Passcode Now</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-navigating-the-complexities-of-macos-srt-changes/"><u>In 2024, Navigating the Complexities of macOS SRT Changes</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/step-by-step-tutorial-on-chatgpt-add-ons-integration/"><u>Step-by-Step Tutorial on ChatGPT Add-Ons Integration</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/transform-videos-with-these-premium-free-sound-options-for-2024/"><u>Transform Videos with These Premium, Free Sound Options for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unraveling-video-transmission-errors-in-facebooks-popular-messaging-apps-for-2024/"><u>Unraveling Video Transmission Errors in Facebook's Popular Messaging Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-income-through-effective-video-marketing/"><u>[New] 2024 Approved Boosting Income Through Effective Video Marketing</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-ensemble-moves-syncing-your-song-collections/"><u>[New] 2024 Approved Ensemble Moves Syncing Your Song Collections</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unmatched-subtitle-expertise-top-10-leaders-in-video-caption-manipulation/"><u>[New] In 2024, Unmatched Subtitle Expertise – Top 10 Leaders in Video Caption Manipulation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-to-webm-the-finest-video-converters-unveiled-for-2024/"><u>[New] YouTube-to-WebM The Finest Video Converters Unveiled for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-interactive-horizinas-analyzing-the-triumvirate-of-tech-vr-ar-and-mr/"><u>[Updated] In 2024, Interactive Horizinas Analyzing the Triumvirate of Tech (VR, AR, & MR)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-laugh-track-in-the-air-parody-anthems/"><u>[Updated] Laugh Track in the Air Parody Anthems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionary-techniques-for-high-quality-sound-recording-no-microphone-required/"><u>[Updated] Revolutionary Techniques for High-Quality Sound Recording, No Microphone Required</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-video-potential-efficiently-add-subtitlescc-to-your-youtube-videos/"><u>[Updated] Unleashing Video Potential Efficiently Add Subtitles/CC to Your YouTube Videos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-list-meme-design-masterpieces/"><u>2024 Approved Ultimate List Meme Design Masterpieces</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elevating-package-revelation-innovative-ways-for-first-encounters/"><u>Elevating Package Revelation Innovative Ways for First Encounters</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-6-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 6 Prevention & Solution | Dr.fone</u></a></li>
 </ul></div>
 
