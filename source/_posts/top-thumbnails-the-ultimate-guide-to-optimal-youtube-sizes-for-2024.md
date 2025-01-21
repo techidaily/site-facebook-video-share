@@ -1,7 +1,7 @@
 ---
 title: "\"Top Thumbnails  The Ultimate Guide to Optimal YouTube Sizes for 2024\""
-date: 2025-01-13T18:09:54.215Z
-updated: 2025-01-15T16:23:15.186Z
+date: 2025-01-20T21:52:31.669Z
+updated: 2025-01-21T17:41:53.552Z
 tags:
   - ai video
   - ai youtube
@@ -32,10 +32,6 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 * [**Part 2:** **Upload and Change a Custom YouTube Thumbnail to Your Video**](#part2)
 * [**Part 3:** **Q&A-- About Creating YouTube Thumbnails**](#part3)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
 
 Every content creator needs to select the right youtube thumbnail size for any given video.
@@ -56,10 +52,6 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -73,7 +65,7 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
@@ -90,7 +82,7 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
@@ -102,13 +94,17 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -126,6 +122,10 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -172,24 +172,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-best-youtube-mp3-downloader-compilation-top-10/"><u>[New] Best YouTube Mp3 Downloader Compilation (Top 10)</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-comprehensive-guide-to-optimizing-facetime-recording-quality/"><u>[New] Comprehensive Guide to Optimizing FaceTime Recording Quality</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-conciseness-in-content-editing-your-youtube-videos-smartly-for-2024/"><u>[New] Conciseness in Content Editing Your YouTube Videos Smartly for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-elevate-your-media-experience-with-top-phone-videos/"><u>[New] Elevate Your Media Experience with Top Phone Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-charting-your-course-from-creator-to-major-label/"><u>[New] In 2024, Charting Your Course From Creator to Major Label</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-tips-for-creating-compelling-free-ads-on-youtube/"><u>[New] In 2024, Essential Tips for Creating Compelling Free Ads on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-best-10-video-card-selections-for-peak-streaming-performance-for-2024/"><u>[Updated] Best 10 Video Card Selections for Peak Streaming Performance for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-best-apps-for-3d-video-intros-on-social-platforms-for-2024/"><u>[Updated] Best Apps for 3D Video Intros on Social Platforms for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-every-angle-in-a-single-shot-versus-depth-driven-photography/"><u>[Updated] Every Angle in a Single Shot versus Depth-Driven Photography</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-video-profits-dailymotion-vs-youtube-insights/"><u>[Updated] Mastering Video Profits Dailymotion Vs. YouTube Insights</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-video-composition-techniques/"><u>[Updated] Mastering YouTube Video Composition Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-secrets-capturing-apple-devices-for-engaging-videos/"><u>[Updated] Unlock the Secrets Capturing Apple Devices for Engaging Videos</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/bt70b-car-bluetooth-kit-for-seamless-audio-streaming/"><u>BT70B Car Bluetooth Kit for Seamless Audio Streaming</u></a></li>
-<li><a href="https://extra-information.techidaily.com/contrast-and-composition-theory-in-design/"><u>Contrast and Composition Theory in Design</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-installation-guide-updating-your-surface-docks-driver/"><u>Easy Installation Guide: Updating Your Surface Dock's Driver</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-samsung-galaxy-f34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-itel-a60s-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Itel A60s to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-for-yahoo-mail-failure-to-receive-emails/"><u>Troubleshooting Steps for Yahoo Mail Failure to Receive Emails</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlock-youtube-star-status-becoming-a-self-assured-vlogger-for-2024/"><u>Unlock YouTube Star Status Becoming a Self-Assured Vlogger for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-complete-guide-to-registering-with-youtube-for-2024/"><u>[New] A Complete Guide to Registering with YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-culinary-carousel-swirling-up-top-food-network-names-for-2024/"><u>[New] Culinary Carousel Swirling Up Top Food Network Names for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-youtube-file-extraction-for-2024/"><u>[New] Effortless YouTube File Extraction for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-tips-for-efficient-internet-use-the-7-finest-android-apps-for-2024/"><u>[New] Expert Tips for Efficient Internet Use The 7 Finest Android Apps for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-first-steps-to-faster-film-playback-in-snapchat-for-2024/"><u>[New] First Steps to Faster Film Playback in Snapchat for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-harmonizing-marketing-brands-and-youtubes-co-creative-pathways/"><u>[New] In 2024, Harmonizing Marketing Brands & YouTube's Co-Creative Pathways</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-how-to-add-music-to-youtubevideo-with-youtube-video-editor/"><u>[New] In 2024, How to Add Music to YouTubeVideo with YouTube Video Editor</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-navigating-obs-livestream-integration-for-maximum-facebook-reach/"><u>[New] In 2024, Navigating OBS Livestream Integration for Maximum Facebook Reach</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-latest-payment-regulations/"><u>[New] YouTube's Latest Payment Regulations</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/os-compatibility-unable-to-connect-to-hp-print-service-on-windows/"><u>[OS Compatibility] - Unable to Connect to HP Print Service on Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-discover-the-prime-lineup-of-affordable-cutting-tools/"><u>[Updated] In 2024, Discover the Prime Lineup of Affordable Cutting Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-harnessing-tools-for-fb-content-extraction/"><u>[Updated] In 2024, Harnessing Tools for FB Content Extraction</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-imovies-potential-youtube-video-edition-excellence/"><u>[Updated] Unlocking iMovie's Potential YouTube Video Edition Excellence</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-battle-between-youtubes-copyright-clause-and-cc-license/"><u>2024 Approved The Battle Between YouTube’s Copyright Clause & CC License</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-win-and-mac-mp3-converter-unlock-your-music-from-youtube/"><u>2024 Approved Win & Mac MP3 Converter Unlock Your Music From YouTube</u></a></li>
+<li><a href="https://driver-error.techidaily.com/device-failure-alert-for-wudfrd-loading-event-id-219/"><u>Device Failure Alert for WudfRd Loading (Event ID: 219)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-installupdate-the-ch340-usb-to-serial-driver-in-windows-10-easily/"><u>How to Install/Update the CH340 USB-to-Serial Driver in Windows 10 Easily</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unlock-the-secret-easily-locate-and-verify-your-phone-number-on-any-smartphone/"><u>Unlock the Secret: Easily Locate and Verify Your Phone Number on Any Smartphone!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2025-01-09T17:25:14.573Z
-updated: 2025-01-15T17:19:34.429Z
+date: 2025-01-20T18:31:31.972Z
+updated: 2025-01-21T21:45:45.850Z
 tags:
   - win11
   - win10
@@ -37,11 +37,19 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 4. [**Lower in-game graphics settings**](https://tools.techidaily.com/drivereasy/download/)
 5. [**Turn off unnecessary programs**](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1: Check your home network
 
  A bad network connection can often cause your game to freeze, lag or even crash, so you may want to**restart your network** by turning off your modem and router for at least 20 seconds then turning them back on.
 
  If you’re using a Wi-Fi connection, try using an ethernet cable. An ethernet cable can provide a more stable internet connection. If that’s not an option, you can instead, move your computer closer to your router as the distance between your PC and the Router could also affect your Wi-Fi connection and your gaming performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 2: Update your graphics driver
 
@@ -71,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
  Relaunch the game to test your issue. If it’s still occurring, try the next fix below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 3: Verify Warframe cache files
 
  Game issues might occur when your game installation files are outdated or get corrupted somehow. In this case, you can verify the game cache files in the Warframe launcher settings menu.
@@ -88,7 +92,7 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_15-35-03.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)**  After the process is complete, click**Optimize** .
@@ -98,7 +102,7 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 Your game still freezes? Try the next fix below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 4: Lower in-game graphics settings
@@ -111,10 +115,6 @@ Your game still freezes? Try the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-39-18.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)** Under the DISPLAY tab, go to**Graphics Quality > Preset** to **Medium** or **Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
@@ -124,7 +124,7 @@ Your game still freezes? Try the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your issue persists, then move on to the next fix below.
@@ -166,18 +166,18 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-fashion-your-yt-snapshits-with-illuminated-borders/"><u>[New] 2024 Approved Fashion Your YT Snapshits with Illuminated Borders</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-easy-steps-to-record-your-vlc-videos-effectively/"><u>[New] Easy Steps to Record Your VLC Videos Effectively</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-online-earnings-youtubes-money-matrix/"><u>[New] The Art of Online Earnings YouTube's Money Matrix</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-creating-content-with-purpose-balancing-job-and-youtube/"><u>[Updated] 2024 Approved Creating Content with Purpose Balancing Job & YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-add-youtube-annotations-and-cards-in-2024/"><u>[Updated] How to Add YouTube Annotations and Cards, In 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-step-by-step-ps4-recording-techniques-for-gamers-for-2024/"><u>[Updated] Step-by-Step PS4 Recording Techniques for Gamers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-go-to-lighting-kit-17-picks-reviewed/"><u>2024 Approved YouTube's Go-To Lighting Kit - #17 Picks Reviewed</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-control-your-pcs-network-discovery-functionality-on-windows-11/"><u>How to Control Your PC's Network Discovery Functionality on Windows 11</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-from-your-apple-iphone-12-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID From your Apple iPhone 12?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-unveiling-authentic-identity-in-fb-messages/"><u>In 2024, Unveiling Authentic Identity in FB Messages</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/solved-move-from-xiaomi-redmi-a2plus-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Xiaomi Redmi A2+ to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-realme-c55-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-crafting-made-easy-with-free-templates-for-2024/"><u>YouTube Crafting Made Easy with FREE Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-affordable-and-accessible-the-definitive-guide-to-9-budget-friendly-editors-for-2024/"><u>[New] Affordable & Accessible The Definitive Guide to 9 Budget-Friendly Editors for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-live-feed-perfection-top-free-screen-capture-apps-reviewed-for-2024/"><u>[New] Live Feed Perfection Top Free Screen Capture Apps Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximize-engagement-with-integrated-youtube-playlist-features/"><u>[New] Maximize Engagement with Integrated YouTube Playlist Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-youtube-playback-tweaks-turn-off-auto-play-videos-for-2024/"><u>[New] YouTube Playback Tweaks Turn Off Auto-Play Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubing-success-final-stages-and-top-resources/"><u>[New] YouTubing Success Final Stages and Top Resources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-balancing-act-proper-techniques-for-stable-photos-for-2024/"><u>[Updated] Balancing Act Proper Techniques for Stable Photos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-direct-download-and-mp3-creation-for-streaming-video-files-for-2024/"><u>[Updated] Direct Download & MP3 Creation for Streaming Video Files for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-finance-frontiers-the-finest-youtube-channels-to-follow/"><u>[Updated] Finance Frontiers The Finest YouTube Channels to Follow</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-revolutionize-your-content-harnessing-the-power-of-fb-lives/"><u>[Updated] Revolutionize Your Content Harnessing the Power of FB Lives</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlock-your-earning-potential-maximizing-youtube-revenue-on-mobile/"><u>[Updated] Unlock Your Earning Potential Maximizing YouTube Revenue on Mobile</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-dive-into-iphone-photo-magic-with-surface-mirror-tips/"><u>2024 Approved Dive Into iPhone Photo Magic with Surface Mirror Tips</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/2024-approved-top-8-multi-subtitles-translators-you-can-use/"><u>2024 Approved Top 8 Multi-Subtitles Translators You Can Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-image-alerts-chat-disappearance-on-messenger/"><u>Unseen Image Alerts: Chat Disappearance on Messenger</u></a></li>
 </ul></div>
 

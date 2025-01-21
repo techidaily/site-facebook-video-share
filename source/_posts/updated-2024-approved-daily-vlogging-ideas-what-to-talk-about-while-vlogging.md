@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2025-01-11T16:28:04.313Z
-updated: 2025-01-15T18:28:28.859Z
+date: 2025-01-18T20:02:39.564Z
+updated: 2025-01-21T17:09:17.813Z
 tags:
   - ai video
   - ai youtube
@@ -33,7 +33,7 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Do you have a niche?
@@ -49,25 +49,21 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -80,7 +76,7 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What did you learn today?
@@ -107,6 +103,10 @@ You could also just flick the camera on and tell the full story of your day like
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
@@ -114,7 +114,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -132,16 +132,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-expert-insights-on-incorporating-hashtags-for-game-streams-for-2024/"><u>[New] Expert Insights on Incorporating Hashtags for Game Streams for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-explore-the-best-8-mirrorless-cameras-for-youtube-vloggers-for-2024/"><u>[New] Explore the Best 8 Mirrorless Cameras for YouTube Vloggers for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-seamless-slack-filmora-synergy-your-guide-to-meeting-organization/"><u>[New] In 2024, Seamless Slack-Filmora Synergy Your Guide to Meeting Organization</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-key-principles-to-uphold-youtube-civility/"><u>[New] Key Principles to Uphold YouTube Civility</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-navigating-macs-best-screen-capturing-apps-and-tech/"><u>[Updated] Navigating Mac's Best Screen Capturing Apps & Tech</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-strategies-to-rectify-non-displayed-thumbnails-on-shorts-videos/"><u>[Updated] Strategies to Rectify Non-Displayed Thumbnails on Shorts Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-youtubes-secrets-for-profound-visibility-gains/"><u>[Updated] Unlocking YouTube's Secrets for Profound Visibility Gains</u></a></li>
-<li><a href="https://some-tips.techidaily.com/movavi-webmswf/"><u>網路上自由下載MOVAVI WebM到SWF的轉換工具</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/best-practices-and-essential-software-for-protecting-your-videos-with-copyright/"><u>Best Practices and Essential Software for Protecting Your Videos with Copyright</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-oneplus-ace-3-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost OnePlus Ace 3 for Free? | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/seamless-viewing-of-ultra-hd-video-content-on-your-windows-10-machine/"><u>Seamless Viewing of Ultra HD Video Content on Your Windows 10 Machine</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-delving-into-the-drawbacks-of-vr-experiences-for-2024/"><u>[New] Delving Into the Drawbacks of VR Experiences for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-6plus-software-choices-download-youtube-music-as-mp3-for-iphone-users/"><u>[Updated] 2024 Approved 6+ Software Choices Download YouTube Music as MP3 for iPhone Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beneath-the-spotlight-top-youtube-events-after-vidcon/"><u>[Updated] 2024 Approved Beneath the Spotlight Top YouTube Events After VidCon</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-visual-content-strategies-for-instagram-photos/"><u>[Updated] 2024 Approved Visual Content Strategies for Instagram Photos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-echoes-of-entertainment-discovering-6-free-android-apps-for-your-youtube-playlists-for-2024/"><u>[Updated] Echoes of Entertainment Discovering 6 Free Android Apps for Your YouTube Playlists for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-photo-and-film-capture-apps-iphone-and-android-edition-for-2024/"><u>[Updated] Essential Photo & Film Capture Apps IPhone & Android Edition for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-11-budget-friendly-title-generators-for-yt/"><u>[Updated] Explore 11 Budget-Friendly Title Generators for YT</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-virtual-trips-unveiled-top-10-iphoneandroid-apps-for-2024/"><u>[Updated] Virtual Trips Unveiled Top 10 iPhone/Android Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-masterclass-advanced-techniques-for-video-commentary-embedding/"><u>2024 Approved YouTube Masterclass Advanced Techniques for Video Commentary Embedding</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-add-signature-to-a-pdf-v13-document-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to add signature to a PDF v1.3 document</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-realme-c67-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Realme C67 5G</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/personalize-your-tune-list-a-step-by-step-guide-to-youtube-playlist-creation-for-2024/"><u>Personalize Your Tune List A Step-by-Step Guide to YouTube Playlist Creation for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/top-5-effects-for-reshaping-sound-tracks/"><u>Top 5 Effects for Reshaping Sound Tracks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-ranked-youtube-extractors-pc-mobile-and-more-tips-for-2024/"><u>Top-Ranked YouTube Extractors - PC, Mobile, and More Tips for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-apple-iphone-se-2020-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your Apple iPhone SE (2020)? How to Fix</u></a></li>
 </ul></div>
 
