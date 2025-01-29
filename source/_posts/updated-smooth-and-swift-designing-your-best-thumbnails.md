@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Smooth & Swift  Designing Your Best Thumbnails\""
-date: 2025-01-18T20:51:58.632Z
-updated: 2025-01-21T20:09:27.492Z
+date: 2025-01-22T16:39:24.753Z
+updated: 2025-01-29T11:47:34.389Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -42,10 +46,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 01:** Open Filmora X. If it is not already installed on your computer, download and install its latest version from [here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
@@ -56,12 +56,16 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
@@ -75,10 +79,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
@@ -91,10 +91,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -104,7 +100,7 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Conclusion
@@ -116,6 +112,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -132,21 +132,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>[New] 2024 Approved Conquer Your Screen Top 10 Simple YouTube Projects for All Creators</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-crafting-new-frontiers-with-webcam-capabilities-for-2024/"><u>[New] Crafting New Frontiers with Webcam Capabilities for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bypassing-blockbusters-2023-indie-favorites/"><u>[New] In 2024, Bypassing Blockbusters 2023 Indie Favorites</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-blueprint-for-successful-collaborative-video-production-on-youtube/"><u>[New] The Blueprint for Successful Collaborative Video Production on YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-8-affordable-srt-services-for-flawless-translation/"><u>[New] Top 8 Affordable SRT Services for Flawless Translation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>[Updated] 2024 Approved Break Free From The Norms Crafting Your Own Streamer Identity</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-binge-on-christmas-classics-enjoy-9-whole-film-flicks-no-charge-for-2024/"><u>[Updated] Binge on Christmas Classics Enjoy 9 Whole-Film Flicks No Charge for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-professionals-playbook-to-profitable-youtube-ventures/"><u>[Updated] In 2024, A Professional's Playbook to Profitable YouTube Ventures</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-elevating-your-ig-aesthetics-with-top-10-grid-builders/"><u>[Updated] In 2024, Elevating Your IG Aesthetics with Top 10 Grid Builders</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/1728489503148-windows-11usb/"><u>三种不同的方式：将Windows 11复制到USB并设置为初始化</u></a></li>
-<li><a href="https://win-updates.techidaily.com/avaliacao-comparativa-dos-aplicativos-de-resgate-gratuitos-ideais-para-discos-rigidos-externos-baixe-agora/"><u>Avaliação Comparativa Dos Aplicativos De Resgate Gratuitos Ideais Para Discos Rígidos Externos - Baixe Agora</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-vivo-x100-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Vivo X100 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-the-vanishing-mouse-pointer-in-windows-10-a-comprehensive-guide/"><u>Resolving the Vanishing Mouse Pointer in Windows 10: A Comprehensive Guide</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-lyric-locators-discovering-hit-songs-of-the-year-updated/"><u>Updated Lyric Locators Discovering Hit Songs of the Year, Updated</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/upgrade-your-youtube-bio-with-pro-templates-for-2024/"><u>Upgrade Your Youtube Bio with Pro Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-these-27-purely-free-youtube-audio-ripper-tools/"><u>[New] 2024 Approved Discover These 27 Purely Free YouTube Audio Ripper Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlocking-creativity-your-steps-toward-a-thriving-design-career/"><u>[New] In 2024, Unlocking Creativity Your Steps Toward a Thriving Design Career</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-obs-not-recording-audio-solved/"><u>[New] OBS Not Recording Audio [Solved]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-earnings-in-cosmetic-videography/"><u>[Updated] 2024 Approved Boosting Earnings in Cosmetic Videography</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-5-tips-to-get-more-views-with-youtube-optimization-free-checklist-for-2024/"><u>[Updated] 5 Tips to Get More Views with YouTube Optimization [Free Checklist] for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-decoding-youtubes-seo-mysteries-keyword-research-explained-for-2024/"><u>[Updated] Decoding YouTube's SEO Mysteries Keyword Research Explained for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-music-unlocked-the-ultimate-library-for-videographers/"><u>[Updated] Free Music Unlocked The Ultimate Library for Videographers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-innovative-strategies-for-displaying-your-screen-in-google-meet-for-2024/"><u>[Updated] Innovative Strategies for Displaying Your Screen in Google Meet for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-hash-tactics-for-thriving-gaming-vids/"><u>[Updated] Mastering Hash Tactics for Thriving Gaming Vids</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/best-8-parent-safety-tools-and-services/"><u>Best 8 Parent Safety Tools & Services</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-xiaomi-13t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-12-pro-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 12 Pro to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-xiaomi-redmi-note-12-proplus-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Xiaomi Redmi Note 12 Pro+ 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secure-your-brand-on-youtube-adding-logos-and-watermarks-for-2024/"><u>Secure Your Brand on YouTube Adding Logos & Watermarks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tiny-videos-deciphered-crucial-elements-for-2024/"><u>Tiny Videos Deciphered Crucial Elements for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-mastering-emoji-usage-on-your-iphone/"><u>Ultimate Guide: Mastering Emoji Usage on Your iPhone</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleash-graphics-power-essential-144hz-uw-monitors/"><u>Unleash Graphics Power: Essential 144Hz UW Monitors</u></a></li>
 </ul></div>
 

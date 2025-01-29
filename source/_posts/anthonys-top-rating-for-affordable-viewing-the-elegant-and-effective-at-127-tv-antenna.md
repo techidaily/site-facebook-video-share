@@ -1,7 +1,7 @@
 ---
 title: "Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
-date: 2025-01-17T20:36:57.786Z
-updated: 2025-01-21T16:40:26.394Z
+date: 2025-01-26T05:34:55.472Z
+updated: 2025-01-28T21:18:53.041Z
 categories:
   - BestProducts
 description: "This Article Describes Anthony's Top Rating for Affordable Viewing: The Elegant and Effective AT-127 TV Antenna"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Extollo LANSocket 1500 Powerline Adapter
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/bp3nz_Kph6TOTz5TF4sk7NQJt4w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -39,7 +47,7 @@ Lifewire / Jeremy Laukkonen
 4.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Extollo LANSocket 1500 Powerline Adapter
@@ -74,10 +82,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -93,7 +97,7 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -109,10 +113,6 @@ Lifewire / Jeremy Laukkonen
  At that point, you’re done. The LANSocket 1500 adapters will automatically connect, establish your powerline network, and you’re good to go. You can add additional adapters elsewhere in your house, up to a total of 16, to connect more devices to your network.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/BvO_NJ8pdby7NqO2Fq-orJ_NbFI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-02-40358222569c4a55b4d04e7aadf01af7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -138,10 +138,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Runs on an embedded Linux distribution**
 
  The LANSocket 1500 runs on an embedded Linux distribution, which plays a big part in how powerful these adapters really are. This is something you probably won’t ever have to worry about, since these devices are plug and play without a lot of hassle, but the use of Linux does open up some security holes.
@@ -155,6 +151,10 @@ Lifewire / Jeremy Laukkonen
  You can also use the sync button on each LANSocket 1500 adapter to encrypt the data that passes between them, but that prevents you from using any other HomePlug compatible adapters in your network.
 
  The embedded Linux distro does open up some security concerns, but they can be mostly erased if you connect through a firewalled router. You can find cheaper options, but the bottom line is that you won’t find a cheaper alternative that provides the same high speed, low latency, video buffering, and pass-through socket that you get with the LANSocket 1500.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Decent price for such good performance**
 
@@ -185,7 +185,7 @@ Lifewire / Jeremy Laukkonen
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -218,24 +218,19 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-techniques-a-guide-to-next-level-effectiveness-in-your-youtube-ads/"><u>[New] 2024 Approved Cutting-Edge Techniques A Guide to Next-Level Effectiveness in Your YouTube Ads</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-selecting-webcams-for-youtube-live/"><u>[New] The Ultimate Guide to Selecting Webcams for YouTube Live</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-guide-inverse-video-tricks-on-youtube-plustutorials/"><u>[New] Ultimate Guide Inverse Video Tricks on YouTube (+Tutorials)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unmatched-smartphone-camera-apps-on-ios-and-android-devices/"><u>[New] Unmatched Smartphone Camera Apps on iOS & Android Devices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-viral-vibes-top-10-playlists-for-up-and-coming-video-shorts/"><u>[New] Viral Vibes Top 10 Playlists for Up-and-Coming Video Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-revenue-per-million-viewer-count/"><u>[New] Youtube Revenue Per Million Viewer Count</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-diving-into-popularity-top-10-youtube-creators-by-views-and-subs/"><u>[Updated] 2024 Approved Diving Into Popularity Top 10 YouTube Creators by Views & Subs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-a-deep-dive-into-effective-youtube-banner-techniques-for-2024/"><u>[Updated] A Deep Dive Into Effective YouTube Banner Techniques for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-content-with-these-10-reaction-wonders/"><u>[Updated] In 2024, Elevate Your Content with These 10 Reaction Wonders</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-ultimate-guide-to-the-best-10-spotify-recorders/"><u>[Updated] In 2024, The Ultimate Guide to the Best 10 Spotify Recorders</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-tecno-phantom-v-flip-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Tecno Phantom V Flip Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/get-smart-capturing-your-screen-in-minutes-for-2024/"><u>Get Smart Capturing Your Screen in Minutes for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Poco C50? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/hp-keyboard-issue-fix-unresponsive-buttons-on-your-laptop-fast/"><u>HP Keyboard Issue? Fix Unresponsive Buttons on Your Laptop Fast!</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-compress-videos-online-for-free-10-best-web-based-solutions/"><u>New In 2024, Compress Videos Online for Free 10 Best Web-Based Solutions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/rainbow-six-siege-gamers-rejoice-the-2024-freeze-edition-is-here/"><u>Rainbow Six Siege Gamers Rejoice: The 2024 Freeze Edition Is Here!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211200866-9781493085705-spooky-great-lakes/"><u>Spooky Great Lakes | Free Book</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secrets-to-stellar-youtube-intros-for-2024/"><u>Unveiling the Secrets to Stellar YouTube Intros for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/zdnet-exclusive-hyundai-and-qualcomms-strategic-alliance-for-next-gen-vehicle-infotainment-technology/"><u>ZDNet Exclusive: Hyundai and Qualcomm's Strategic Alliance for Next-Gen Vehicle Infotainment Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-choosing-the-right-video-sharing-platform-tiktok-vs-youtubes-shorts/"><u>[New] In 2024, Choosing the Right Video Sharing Platform TikTok vs YouTubes' Shorts?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-android-and-ios-leaders-in-asmr-content/"><u>[Updated] 2024 Approved Android & iOS Leaders in ASMR Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-conquering-green-hue-fixing-it-on-mac-for-video-editors/"><u>[Updated] 2024 Approved Conquering Green Hue Fixing It On Mac For Video Editors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-converting-your-clips-upload-to-youtube-via-premiere/"><u>[Updated] 2024 Approved Converting Your Clips Upload to YouTube Via Premiere</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategic-broadcast-planning-youtube-and-the-top-30-networks/"><u>[Updated] Strategic Broadcast Planning YouTube & The Top 30 Networks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enhancing-visual-quests-hunt-for-pristine-pexels-images/"><u>Enhancing Visual Quests Hunt for Pristine Pexels Images</u></a></li>
+<li><a href="https://win-net.techidaily.com/exploring-varchar-and-char-in-sql-what-sets-them-apart/"><u>Exploring VARCHAR and CHAR in SQL - What Sets Them Apart?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/l-landmarks-understanding-mr-beasts-financial-growth/"><u>Fiscal Landmarks Understanding Mr. Beast’s Financial Growth</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-full-screen-recovered-from-obs-errors/"><u>In 2024, Full Screen Recovered From OBS Errors</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-various-methods-to-transfer-pictures-from-apple-iphone-13-pro-max-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Various Methods to Transfer Pictures from Apple iPhone 13 Pro Max to PC | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-infinix-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Infinix Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secure-seamless-youtube-watching-across-devices-and-browsers-for-2024/"><u>Secure Seamless YouTube Watching Across Devices and Browsers for 2024</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/stunning-game-of-thrones-image-collection-for-pc-and-mobile-yl-software-graphics/"><u>Stunning Game of Thrones Image Collection for PC and Mobile - YL Software Graphics</u></a></li>
+<li><a href="https://win-guides.techidaily.com/the-ultimate-selection-of-advanced-seo-monitoring-and-reporting-applications/"><u>The Ultimate Selection of Advanced SEO Monitoring and Reporting Applications</u></a></li>
 </ul></div>
 

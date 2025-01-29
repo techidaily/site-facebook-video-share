@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2025-01-18T21:04:19.968Z
-updated: 2025-01-21T16:20:57.298Z
+date: 2025-01-26T22:34:15.193Z
+updated: 2025-01-29T04:25:20.778Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 **League of Legends keeps crashing?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  Here’s a list of fixes that have resolved this problem for other LoL players. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -32,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 * [Fix 5: Enable low spec mode](https://tools.techidaily.com/drivereasy/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Make sure your PC meets meets the system requirements for League of Legends
 
@@ -69,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  If your PC meets the system requirement for League of Legends but the game crashing issue persists, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2: Update your drivers
@@ -94,19 +86,23 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
 
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-84.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can do it for free if you like, but it’s partly manual.
 
  If you need assistance, please contact**Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Install the latest Windows Updates
 
@@ -116,9 +112,17 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-62-1024x796.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) Click**Download** if Windows detects any new updates. If not, then click**Check for updates** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3) Wait until Windows downloaded and installed all the updates.
 
@@ -143,10 +147,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
  4) Click**Yes** to continue. This may take a while.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
 
@@ -188,18 +188,20 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-macbook-webcam-recording-guide/"><u>[New] MacBook Webcam Recording Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-naming-your-podcast-to-perfection-stepwise-guidance-plus-top-ideas-list/"><u>[Updated] Naming Your Podcast to Perfection Stepwise Guidance + Top Ideas List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-setting-up-personalized-video-shots-on-youtube/"><u>[Updated] Setting Up Personalized Video Shots on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-most-economical-tools-for-youtube-audio-conversion/"><u>[Updated] The Most Economical Tools for YouTube Audio Conversion</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>[Updated] Top 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mastering-mac-recording-settings-for-snapchat-use/"><u>2024 Approved Mastering Mac Recording Settings for Snapchat Use</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/harmonizing-office-efficiency-with-quick-fixes-for-printerpluslaptop-linkage/"><u>Harmonizing Office Efficiency with Quick Fixes for Printer+Laptop Linkage</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-from-iphone-13-mini-by-drfone-ios/"><u>How To Create an Apple Developer Account From iPhone 13 mini</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 To Other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-realme-11-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Realme 11 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-xiaomi-civi-3-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Xiaomi Civi 3</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/troubleshooting-ryzen-master-solving-improper-installation-issues/"><u>Troubleshooting Ryzen Master: Solving Improper Installation Issues</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/visualize-success-free-templates-to-elevate-your-youtube-presence-for-2024/"><u>Visualize Success Free Templates to Elevate Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-views-with-science-backed-timing-tactics/"><u>[New] 2024 Approved Elevate Views with Science-Backed Timing Tactics</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-add-timestamp-on-youtube-video-link-desktop-and-mobile/"><u>[New] In 2024, How to Add Timestamp on YouTube Video Link? [Desktop and Mobile]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-panoramic-photography-at-its-finest-top-11-camera-picks/"><u>[New] In 2024, Panoramic Photography at Its Finest Top 11 Camera Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-potential-tubebuddy-and-channel-mastery/"><u>[New] Unlocking Potential TubeBuddy & Channel Mastery</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-androids-facetime-essentials-explained/"><u>[Updated] Android's FaceTime Essentials Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-a-legacy-youtubers-playbook-for-success-for-2024/"><u>[Updated] Crafting a Legacy YouTuber’s Playbook for Success for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-disable-unsolicited-youtube-video-listings/"><u>[Updated] In 2024, Disable Unsolicited YouTube Video Listings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-everything-you-need-to-succeed-with-youtube-short-videos/"><u>[Updated] In 2024, Everything You Need to Succeed with YouTube Short Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mirror-movies-a-guide-to-flipping-your-youtube-video-upside-down/"><u>[Updated] Mirror Movies A Guide to Flipping Your YouTube Video Upside Down</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effective-strategies-for-preventing-openai-from-web-scraping-a-complete-guide/"><u>Effective Strategies for Preventing OpenAI From Web Scraping: A Complete Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/icloud-and-whatsapp-ensuring-seamless-data-backup-on-ios-devices/"><u>ICloud and WhatsApp: Ensuring Seamless Data Backup on iOS Devices</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/installing-western-digitals-ses-usb-hardware-driver-in-modern-windows-systems-from-v2011/"><u>Installing Western Digital's SES USB Hardware Driver in Modern Windows Systems (From V2011)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/overcoming-spreadsheet-anxiety-integrating-chatgpt-into-excel/"><u>Overcoming Spreadsheet Anxiety: Integrating ChatGPT Into Excel</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/rising-memory-chip-expenses-understanding-the-surge-in-dram-and-nand-prices-amidst-global-manufacturing-reductions/"><u>Rising Memory Chip Expenses: Understanding the Surge in DRAM & NAND Prices Amidst Global Manufacturing Reductions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/varied-and-eye-catching-vlog-discussion-points-for-2024/"><u>Varied and Eye-Catching Vlog Discussion Points for 2024</u></a></li>
 </ul></div>
 

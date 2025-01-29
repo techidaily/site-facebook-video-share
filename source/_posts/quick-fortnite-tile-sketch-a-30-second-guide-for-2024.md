@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Fortnite Tile Sketch  A 30-Second Guide for 2024\""
-date: 2024-08-01T09:30:49.301Z
-updated: 2024-08-02T09:30:49.301Z
+date: 2025-01-22T08:47:47.520Z
+updated: 2025-01-29T10:04:00.038Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
@@ -51,9 +48,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 05:** Drag and drop the screenshot into the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 **Step 06:** Now, let's separate the background and character. Go to the Effects, then AI Portrait, select Human Segmentation, and drop it into the screenshot.
@@ -62,16 +56,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 **Step 08:** It will remove the background of the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
@@ -80,17 +68,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
@@ -105,9 +86,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 With Filmora, there are no limits. You can use your imagination to create amazing Fortnite thumbnails or thumbnails for other purposes. This article is just a demo teaching you how you use Filmora X to develop free and astounding thumbnails. Explore other options and elements of Filmora to take your thumbnails to another level.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -116,12 +94,33 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exclusive-access-to-premium-playlists-on-mobile-devices/"><u>[New] In 2024, Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-sound-to-words-a-free-guide-to-youtube-transcribing-mastery/"><u>[New] In 2024, From Sound to Words A FREE Guide to YouTube Transcribing Mastery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-guide-to-youtube-app-on-iphones-and-androids/"><u>[New] Ultimate Guide to YouTube App on iPhones and Androids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-youtube-shorts-video-editing-apps-for-ios-and-android-for-2024/"><u>[Updated] Best YouTube Shorts Video Editing Apps for iOS and Android for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-100plus-cool-gaming-channel-names-for-every-gamer/"><u>[Updated] In 2024, 100+ Cool Gaming Channel Names for Every Gamer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-online-video-resources-for-enhanced-learning-experiences/"><u>[Updated] Online Video Resources for Enhanced Learning Experiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-positive-interaction-not-pressure-a-subscription-success-story/"><u>[Updated] Positive Interaction, Not Pressure A Subscription Success Story</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-conversion-handbook-from-gif-to-sticker-across-messaging-services/"><u>[Updated] The Ultimate Conversion Handbook From GIF to Sticker Across Messaging Services</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-shorts-dividing-profits-among-making-crew/"><u>[Updated] YouTube Shorts Dividing Profits Among Making Crew</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/efficiently-power-your-entire-house-with-ecoflows-portable-battery-a-lifesaver-during-blackouts/"><u>Efficiently Power Your Entire House with EcoFlow's Portable Battery - A Lifesaver During Blackouts</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-xiaomi-14-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/real-time-film-extractor-for-2024/"><u>Real-Time Film Extractor for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723211977275-solved-laptop-keys-not-working-hp-quickly-and-easily/"><u>SOLVED: Laptop Keys Not Working HP. Quickly & Easily!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-2024-fixes-how-to-resolve-unexpected-fortnite-crashes-on-your-laptop/"><u>Top 2024 Fixes: How to Resolve Unexpected Fortnite Crashes on Your Laptop</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-favors-a-later-date-for-full-e2e-encryption-by-default/"><u>Why Meta Favors a Later Date for Full E2E Encryption by Default</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

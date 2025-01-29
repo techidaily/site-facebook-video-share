@@ -1,7 +1,7 @@
 ---
 title: Common Causes and Solutions for Metro Exodus Game Crashes on Desktops
-date: 2025-01-14T18:55:47.203Z
-updated: 2025-01-21T17:37:36.538Z
+date: 2025-01-23T19:09:57.448Z
+updated: 2025-01-28T21:17:22.914Z
 tags:
   - win11
   - win10
@@ -44,10 +44,6 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 6. **[Perform a clean boot](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Reinstall Hearthstone](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1 – Run Hearthstone as administrator
 
  Windows runs Hearthstone in user mode by default, but that might keep it from accessing certain files and cause the crashes. To see if that’s the case, you could run Hearthstone as administrator and relaunch the game.
@@ -59,6 +55,10 @@ Hearthstone keeps crashing on startup or during a match? Making like a thousand 
 **2)** Select the**Compatibility** tab, check**Run this program as an administrator** , and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/3-2-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Launch Hearthstone to see if the problem reappears. If yes, continue to the next fix.
 
@@ -80,10 +80,6 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/7-1-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)** Click the**Update** button next to the flagged graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the**FREE version** ).
 
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)
@@ -91,7 +87,7 @@ There are two ways you can update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/7-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You could do it for free if you like, but it’s partly manual.
@@ -113,21 +109,17 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/2-1-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3)** Click**Begin Scan** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/2-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Wait for the scan and repair to finish, then relaunch your game to see if the crashing issue is settled. If not, try the next method.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4 – Temporarily disable the anti-virus programs
 
@@ -141,6 +133,10 @@ There are two ways you can update the graphics driver:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5 – Delete the Hearthstone folder
 
  Many users managed to start Hearthstone normally by deleting the Hearthstone folder. Here’s how:
@@ -148,6 +144,10 @@ There are two ways you can update the graphics driver:
 **1)** On your keyboard, press the**Windows logo key** and**R** at the same time to invoke the Run box. Then, type**%localappdata%\\blizzard** and press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/8-1-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **2)** Right click the Hearthstone folder and click**Delete** , or just move it to another location.
 
@@ -165,6 +165,10 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-1-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2)** Select the**Services** tab. Then, check**Hide all Microsoft services** , and click**Disable all** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-3.jpg)
@@ -176,7 +180,7 @@ There are two ways you can update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/4-2-2-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **4)** Select the**Startup** tab. Then, right click each enabled startup item and click**Disable** .
@@ -201,9 +205,17 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/9-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2)** Click the**Normal startup** button, and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/9-2-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **3)** Click**Restart** .
 
@@ -213,10 +225,6 @@ There are two ways you can update the graphics driver:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 7 – Reinstall Hearthstone
 
  If all the solutions above can’t get your Hearthstone right, you should consider reinstalling the game.
@@ -225,17 +233,9 @@ There are two ways you can update the graphics driver:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/6-1-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2)** Select**Yes, Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/07/6-2-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **3)** Download the latest version of Hearthstone and double click the downloaded file to install it.
 
@@ -262,19 +262,22 @@ There are two ways you can update the graphics driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-achieve-more-views-tailoring-and-scaling-youtube-images/"><u>[New] 2024 Approved Achieve More Views Tailoring and Scaling YouTube Images</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-every-creators-guide-to-youtube-revenue/"><u>[New] 2024 Approved Every Creator's Guide to YouTube Revenue</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-viewing-experience-enable-av1-on-youtube/"><u>[New] In 2024, Elevate Viewing Experience – Enable AV1 on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-your-roadmap-to-sourcing-videos-on-social-media-fb-edition/"><u>[New] In 2024, Your Roadmap to Sourcing Videos on Social Media (FB Edition)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-identity-made-simple-with-these-top-11-zero-cost-tools/"><u>[Updated] 2024 Approved Channel Identity Made Simple with These Top 11 Zero-Cost Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-recording-success-a-step-by-step-approach-to-capturing-chats-on-messenger-for-2024/"><u>[Updated] Recording Success A Step-by-Step Approach to Capturing Chats on Messenger for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-youtube-animations-how-to-craft-engaging-professional-looking-gifs-for-2024/"><u>[Updated] YouTube Animations How To Craft Engaging, Professional-Looking GIFs for 2024</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/geekom-unveils-new-ax8-mini-pc-featuring-latest-intel-13th-gen-and-amd-ryzen-8000-processor-compatibility/"><u>GeekOm Unveils New AX8 Mini PC Featuring Latest Intel 13Th Gen & AMD Ryzen 8000 Processor Compatibility</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/harmonic-frames-filming-music-tracks-using-iphones/"><u>Harmonic Frames Filming Music Tracks Using iPhones</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-lava-yuva-3-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Lava Yuva 3 Pro to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-oneplus-nord-n30-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on OnePlus Nord N30 5G Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-xiaomi-redmi-12-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Xiaomi Redmi 12? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-overcoming-invisible-vids-on-facebook-master-the-12-essentials-in-23/"><u>In 2024, Overcoming Invisible Vids on Facebook – Master the 12 Essentials in '23</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/shifting-from-spotify-playlists-to-customized-youtube-music-catalogs-for-2024/"><u>Shifting From Spotify Playlists to Customized YouTube Music Catalogs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-contents-presence-perfecting-youtube-thumbnails-size-for-2024/"><u>[New] Elevating Your Content's Presence Perfecting YouTube Thumbnails Size for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-ascend-in-the-youtube-arena-through-creative-studio-mastery/"><u>[New] In 2024, Ascend in the YouTube Arena Through Creative Studio Mastery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-efface-thin-borders-for-a-seamless-youtube-experience/"><u>[New] In 2024, Efface Thin Borders for a Seamless YouTube Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-channel-ranking-with-these-11-seo-secrets/"><u>[Updated] 2024 Approved Elevate Your Channel Ranking with These 11 SEO Secrets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-earning-stream-start-small-see-big-on-youtube-for-2024/"><u>[Updated] Earning Stream Start Small, See Big on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-step-by-step-guide-to-embedding-timestamp-metadata/"><u>[Updated] In 2024, A Step-by-Step Guide to Embedding Timestamp Metadata</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-analyze-youtube-data-efficiently-with-social-blade-tools/"><u>[Updated] In 2024, Analyze YouTube Data Efficiently with Social Blade Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-revenue-on-youtube-shorts/"><u>[Updated] Mastering Revenue on YouTube Shorts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-speaking-to-tomorrow-iphone-voice-memo/"><u>[Updated] Speaking to Tomorrow - iPhone Voice Memo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-cost-effective-approach-to-secure-shredding-insightful-review-of-the-amazonbasics-6-sheet-cross-cutter/"><u>A Cost-Effective Approach to Secure Shredding: Insightful Review of the AmazonBasics 6-Sheet Cross Cutter</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-access-to-the-latest-epson-et-2750-printer-driver-for-your-window-os/"><u>Easy Access to the Latest Epson ET-2750 Printer Driver for Your Window OS</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effortless-emailing-made-simple-discover-how-gmail-snippets-reduce-typing-time-and-improve-accuracy-cnet-news/"><u>Effortless Emailing Made Simple: Discover How Gmail Snippets Reduce Typing Time & Improve Accuracy | CNET News</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhanced-user-engagement-with-dynamic-cookiebot-analytics/"><u>Enhanced User Engagement with Dynamic Cookiebot Analytics</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-nokia-xr21-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Nokia XR21 Phone Now with These Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/periscope-footage-lifesaving-tips-and-tricks/"><u>Periscope Footage Lifesaving Tips & Tricks</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/unveiling-vimeo-the-preferred-platform-by-directors-for-2024/"><u>Unveiling Vimeo The Preferred Platform by Directors for 2024</u></a></li>
 </ul></div>
 

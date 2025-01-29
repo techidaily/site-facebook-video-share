@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls"
-date: 2024-08-01T09:30:20.023Z
-updated: 2024-08-02T09:30:20.023Z
+date: 2025-01-24T08:02:04.330Z
+updated: 2025-01-29T00:28:22.500Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,11 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ###  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
 
@@ -42,13 +43,18 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -58,9 +64,6 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -68,8 +71,9 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -85,17 +89,15 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -112,12 +114,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-quick-thumbs-up-creating-your-own-google-image-mosaic/"><u>[New] 2024 Approved Quick Thumbs Up Creating Your Own Google Image Mosaic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-guide-to-the-best-bridal-films-8-from-youtube-plus-vimeo-for-2024/"><u>[Updated] A Guide to the Best Bridal Films (8 From YouTube + Vimeo) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-forging-strategic-alliances-on-youtube-through-famebit-wisdom-for-2024/"><u>[Updated] Forging Strategic Alliances on YouTube Through FameBit Wisdom for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-clearing-up-your-video-quality-issues/"><u>[Updated] In 2024, Clearing Up Your Video Quality Issues</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-premium-selection-of-free-4k-software-for-windows-plus-os-x/"><u>[Updated] In 2024, Premium Selection of Free 4K Software for Windows + OS X</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-pathway-to-perfect-pitches-insights-from-magix-maker/"><u>[Updated] The Pathway to Perfect Pitches Insights From Magix Maker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-vloggers-guide-to-optimal-lens-performance/"><u>[Updated] The Vlogger's Guide to Optimal Lens Performance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-video-potential-key-tactics-for-backlink-creation/"><u>[Updated] Unleash Video Potential Key Tactics for Backlink Creation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unmatched-portfolio-boosters-top-free-3d-texts-for-2024/"><u>[Updated] Unmatched Portfolio Boosters - Top Free 3D Texts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-valorant-image-crafting-skilled-thumbnails-created-instantly/"><u>[Updated] Valorant Image Crafting Skilled Thumbnails Created Instantly</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-from-simple-to-sophisticated-weaving-multiple-images-into-your-insta-story/"><u>2024 Approved From Simple to Sophisticated Weaving Multiple Images Into Your Insta Story</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-or-malfunctioning-your-drivers-with-windows-device-manager-on-windows-10-by-drivereasy-guide/"><u>How to identify missing or malfunctioning your drivers with Windows Device Manager on Windows 10</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-elevate-creations-get-free-high-quality-templates-today/"><u>In 2024, Elevate Creations - Get FREE High-Quality Templates Today!</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-tools-is-facebook-an-event-ally/"><u>Mastering Social Media Tools: Is Facebook an Event Ally?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolved-how-to-stop-fallout-continued-from-hanging-or-faulty-performance-on-pcs/"><u>Resolved: How to Stop Fallout ([Continued) From Hanging or Faulty Performance on PCs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionize-your-channels-thumbnails-with-these-tools-for-2024/"><u>Revolutionize Your Channel's Thumbnails with These Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-your-inner-vfx-guru-with-diy-techniques-for-2024/"><u>Unleash Your Inner VFX Guru with DIY Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-brand-potential-access-50-banners-at-no-cost-for-2024/"><u>Unlock Brand Potential - Access 50 Banners at No Cost for 2024</u></a></li>
+</ul></div>
 

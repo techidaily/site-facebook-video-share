@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2025-01-18T19:01:09.171Z
-updated: 2025-01-21T21:04:28.413Z
+date: 2025-01-26T02:13:28.554Z
+updated: 2025-01-28T23:58:55.257Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,24 +77,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-editors-full-breakdown-of-editsphere-suite-updated/"><u>[New] 2024 Approved Editor's Full Breakdown of EditSphere Suite - Updated</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-how-to-proficiently-use-a-switch-pro-controller-on-steam/"><u>[New] 2024 Approved How to Proficiently Use a Switch Pro Controller on Steam</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-construct-a-careerscape-on-camera-by-critiquing-closets-for-2024/"><u>[New] Construct a Careerscape on Camera by Critiquing Closets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audio-upheavals-top-rhythmic-disruptors-for-devices/"><u>[New] In 2024, Audio Upheavals Top Rhythmic Disruptors for Devices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-perfecting-audio-quality-a-no-mic-approach/"><u>[New] Perfecting Audio Quality A No-Mic Approach</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-content-delivery-comparison-vimeo-vs-youtube-vs-dailymotion/"><u>[Updated] 2024 Approved Content Delivery Comparison Vimeo vs YouTube vs Dailymotion</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-charting-a-course-through-youtubes-copyright-maze-for-2024/"><u>[Updated] Charting a Course Through YouTube's Copyright Maze for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-composing-correspondents-curtains-for-2024/"><u>[Updated] Composing Correspondents' Curtains for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-guide-never-see-youtube-shorts-again-for-2024/"><u>[Updated] Effortless Guide Never See YouTube Shorts Again for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-sequential-visual-showcase-for-2024/"><u>[Updated] Instagram's Sequential Visual Showcase for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-through-paid-product-evaluations-online/"><u>[Updated] Navigating Through Paid Product Evaluations Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-convenient-way-to-mute-youtube-channels-on-pcmobile/"><u>[Updated] The Convenient Way to Mute Youtube Channels on PC/Mobile</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-best-mac-visual-snapshot-list-limit-156-chars/"><u>2024 Approved Best Mac Visual Snapshot List (Limit 156 Chars)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-and-user-friendly-z-edge-z3plus-camera-recap/"><u>Affordable and User-Friendly Z-Edge Z3+ Camera Recap</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210420385-9781401968205-dream-guidance/"><u>Dream Guidance | Free Book</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fix-the-mystery-of-the-vanishing-d3dx9-dll-error-unraveled/"><u>Fix: The Mystery of the Vanishing D3dx9_지오티브 앤드리베이트(dll) Error Unraveled</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/high-definition-nature-scenes-and-abstract-art-stunning-hd-wallpaper-collections-by-yl-computing/"><u>High-Definition Nature Scenes & Abstract Art: Stunning HD Wallpaper Collections by YL Computing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/rank-the-top-free-tools-convert-srt-files-efficiently/"><u>Rank the Top Free Tools Convert Srt Files Efficiently</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unlocking-knowledge-five-ways-students-can-leverage-chatgpts-abilities/"><u>Unlocking Knowledge: Five Ways Students Can Leverage ChatGPT's Abilities</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-collaborative-video-creation-and-growth-tips-for-2024/"><u>[New] Collaborative Video Creation & Growth Tips for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-essential-tips-for-ppt-video-production/"><u>[New] Essential Tips for PPT Video Production</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thumbnail-mastery-for-youtube-channel-graphics/"><u>[New] Thumbnail Mastery for YouTube Channel Graphics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-video-decks-smart-description-templates-for-2024/"><u>[Updated] Elevate Video Decks Smart Description Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-review-of-youtubes-integration-with-iphone-and-android-devices/"><u>[Updated] In 2024, A Review of YouTube's Integration with iPhone & Android Devices</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-skyrocketing-youtube-traffic-11-seo-insights-unveiled/"><u>2024 Approved Skyrocketing YouTube Traffic 11 SEO Insights Unveiled</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/adding-captions-the-ultimate-guide-to-downloading-and-implementing-subtitles-in-your-plex-library/"><u>Adding Captions: The Ultimate Guide to Downloading & Implementing Subtitles in Your Plex Library</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/combatting-excessive-warmth-in-w11-systems/"><u>Combatting Excessive Warmth in W11 Systems</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-infinix-smart-8-plus-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Infinix Smart 8 Plus Face Lock?</u></a></li>
+<li><a href="https://driver-error.techidaily.com/run-a-system-file-checker-scan-to-verify-and-repair-corrupted-files/"><u>Run a System File Checker Scan to Verify and Repair Corrupted Files.</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/visual-anonymity-in-sharing-blurring-methods-explained-for-2024/"><u>Visual Anonymity in Sharing Blurring Methods Explained for 2024</u></a></li>
 </ul></div>
 

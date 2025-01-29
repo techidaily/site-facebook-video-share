@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Deciphering User Insights in YouTube Comments\""
-date: 2024-08-01T09:31:50.534Z
-updated: 2024-08-02T09:31:50.534Z
+date: 2025-01-27T08:39:19.462Z
+updated: 2025-01-29T02:22:17.342Z
 tags:
   - ai video
   - ai youtube
@@ -57,16 +57,14 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -78,6 +76,14 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -105,18 +111,12 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -127,11 +127,12 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -153,10 +154,11 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -164,12 +166,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-tips-for-locating-youtubes-content-creation-hub/"><u>[New] 2024 Approved Essential Tips for Locating YouTube's Content Creation Hub</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-charting-the-course-to-earnings-with-youtube-videos-for-2024/"><u>[New] Charting the Course to Earnings with YouTube Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-free-vob-player-for-pc-and-mac/"><u>[New] Free VOB Player for PC and Mac</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-culinary-cinematography-step-by-step-recipe-tutorials/"><u>[New] In 2024, Culinary Cinematography Step-by-Step Recipe Tutorials</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-radiance-in-android-video-editing/"><u>[New] Radiance in Android Video Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-youtube-tracks-anytime-without-spending-a-dime-the-best-audio-crackers/"><u>[New] Unlock YouTube Tracks Anytime, Without Spending a Dime The Best Audio Crackers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-best-3d-blu-ray-players/"><u>[Updated] 2024 Approved Best 3D Blu-Ray Players</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-efficient-solutions-for-youtube-short-snags/"><u>[Updated] 2024 Approved Efficient Solutions for YouTube Short Snags</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-fresh-vlog-discussion-ideas-each-day/"><u>[Updated] Fresh Vlog Discussion Ideas Each Day</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simple-strategies-for-stellar-sports-highlights/"><u>[Updated] Simple Strategies for Stellar Sports Highlights</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/effective-tips-and-guides-for-using-aomei-pxe-boot-utility-expert-faq-insights/"><u>Effective Tips & Guides for Using AOMEI PXE Boot Utility – Expert FAQ Insights</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722964572002-get-your-hands-on-the-latest-microsoft-sound-driver-software-for-windows-free/"><u>Get Your Hands on the Latest Microsoft Sound Driver Software for Windows - Free!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-upload-and-post-gifs-onto-instagram-4-steps/"><u>How To Upload and Post GIFs Onto Instagram [4 Steps]</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-effortless-way-to-personalize-your-youtube-channel-url/"><u>In 2024, Effortless Way to Personalize Your YouTube Channel Url</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-playback-of-srt-audio-files-in-computers-windowsmacos/"><u>In 2024, Playback of SRT Audio Files in Computers (Windows/macOS)</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-the-power-of-music-in-videos-plusfilmora-editing-tricks/"><u>New The Power of Music in Videos (+Filmora Editing Tricks)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-years-top-makeup-vloggers-for-2024/"><u>The Ultimate Guide to Year's Top Makeup Vloggers for 2024</u></a></li>
+</ul></div>
 

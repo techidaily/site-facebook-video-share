@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Banish YouTube Shorts Forever with Ease for 2024"
-date: 2025-01-14T17:54:55.402Z
-updated: 2025-01-21T20:20:34.404Z
+date: 2025-01-27T20:13:59.336Z
+updated: 2025-01-28T19:24:18.283Z
 tags:
   - ai video
   - ai youtube
@@ -52,11 +52,11 @@ One of the primary things you can do with any short videos is to click on the th
 
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
-Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
 
 ### Method 2: Settings menu of YouTube
 
@@ -65,6 +65,10 @@ At your YouTube homepage at the top end, you will see the profile icon. If you c
 From there, you need to select “General”, which will show up some options. Here, click on the Shorts option to turn it off.
 
 ![turn of youtube shorts](https://images.wondershare.com/filmora/article-images/2023/04/turn-off-youtube-shorts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This way, by simply following and managing settings, you can easily disable YouTube shorts from the platform.
 
@@ -78,10 +82,6 @@ As a YouTube fan, you can also create interesting video by yourself with [**Film
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### Method 3: Can go with YouTube browser
@@ -91,7 +91,7 @@ Hey guys, there is one more trick. Whenever you want to access YouTube, instead 
 So friends, try this to avoid seeing YouTube Shorts videos either from phone or desktop. This is not only simple but also device-free. And even if you do not have a YouTube application, you can use this trick to solve your concern.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 4: Factory reset
@@ -121,16 +121,12 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 6: Removing all update
 
@@ -141,6 +137,10 @@ On your smartphone, open the **Settings** \> **Apps** or **Manage Apps** option 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-4.jpg)
 
 Using this method, you can remove shorts easily from YouTube. And, it is not going to take much amount of time. So, go and follow the steps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 7: Try YouTube Vanced
 
@@ -164,6 +164,10 @@ Once you have launched the application, under the settings, you need to go for t
 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Doing so will disable the YouTube Shorts option from the **Home** screen.
 
 Alternatively, remove the **YouTube Shorts** button also from the screen. Under the “Vanced settings” > Visit **Layout settings** \> Switch on the **Comments location** option. That will further remove the Shorts button from the bottom end of the Home screen of the YouTube page.
@@ -177,16 +181,16 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -204,10 +208,6 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -234,19 +234,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-discover-variety-50-complimentary-youtube-banners-available/"><u>[New] Discover Variety – 50 Complimentary YouTube Banners Available!</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-expert-insights-into-crafting-dynamic-youtube-shorts-templates-for-2024/"><u>[New] Expert Insights Into Crafting Dynamic YouTube Shorts Templates for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-secrets-to-youtube-success-12-proven-methods/"><u>[New] Unveiling the Secrets to YouTube Success 12 Proven Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-comprehensively-reviewed-list-of-youtube-video-extractor-apps-android/"><u>[Updated] 2024 Approved A Comprehensively Reviewed List of YouTube Video Extractor Apps (Android)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-steps-to-uncover-youtubes-central-editing-nexus/"><u>[Updated] Steps to Uncover YouTube’s Central Editing Nexus</u></a></li>
-<li><a href="https://program-issues.techidaily.com/crash-free-experience-with-kurtzpel-top-strategies-to-overcome-technical-glitches/"><u>Crash-Free Experience with KurtzPel: Top Strategies to Overcome Technical Glitches</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-design-ideas-top-6-mc-village-residences/"><u>In 2024, Design Ideas Top 6 MC Village Residences</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/navigating-av1-your-initial-journey/"><u>Navigating AV1 Your Initial Journey</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/novelists-toolbox-expanded-9-uses-of-chatgpt-for-crafting-stories/"><u>Novelists' Toolbox Expanded: 9 Uses of ChatGPT for Crafting Stories</u></a></li>
-<li><a href="https://article-tips.techidaily.com/revolutionizing-travel-a-dive-into-vr-tour-possibilities-for-2024/"><u>Revolutionizing Travel A Dive Into VR Tour Possibilities for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/simplified-methods-to-update-the-scansnap-ix500-driver-for-optimal-windows-performance/"><u>Simplified Methods to Update the ScanSnap iX500 Driver for Optimal Windows Performance</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solve-this-why-wont-my-iphone-send-or-receive-texts/"><u>Solve This: Why Won't My iPhone Send or Receive Texts?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-rated-software-solutions-for-effective-covid-19-immunization-programs-reviews-and-comparisons/"><u>Top Rated Software Solutions for Effective Covid-19 Immunization Programs - Reviews & Comparisons</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unbox-the-latest-tomtom-bandit-camera/"><u>Unbox the Latest TomTom Bandit Camera</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-audio-outliers-best-sound-distortion-apps-for-your-device/"><u>[New] 2024 Approved Audio Outliers Best Sound Distortion Apps for Your Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-charisma-strategies-to-skyrocket-your-youtube-visibility/"><u>[New] 2024 Approved Channel Charisma Strategies to Skyrocket Your YouTube Visibility</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-advanced-techniques-for-simplifying-screen-capture-in-os-x-for-2024/"><u>[New] Advanced Techniques for Simplifying Screen Capture in OS X for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>[New] In 2024, Easy Transition From Local to Global Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-game-testers-and-beta-gamers-online/"><u>[New] In 2024, Game Testers & Beta Gamers Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-infographic-forecast-the-2023-social-landscape/"><u>[New] Infographic Forecast The 2023 Social Landscape</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-easy-guide-to-youtube-to-avi-conversion-technology/"><u>[New] The Easy Guide to YouTube-to-AVI Conversion Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-delving-into-how-t-series-earnings-work-on-youtube/"><u>[Updated] 2024 Approved Delving Into How T-Series Earnings Work on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-many-viewers-to-target-for-a-youtube-earning-journey/"><u>[Updated] How Many Viewers to Target for a YouTube Earning Journey?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-smaller-brands-bigger-impacts-infographics/"><u>[Updated] Smaller Brands, Bigger Impacts (Infographics)</u></a></li>
+<li><a href="https://win-able.techidaily.com/apex-legends-2022-resolving-the-leaf-error-code-issue/"><u>Apex Legends 2022: Resolving the 'Leaf' Error Code Issue</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-intel-iris-xe-graphics-g7-driver-version-for-windows-11/"><u>Download Intel® Iris Xe Graphics G7 Driver Version for Windows 11</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-iphone-15-plus-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your iPhone 15 Plus Apple ID on MacBook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/installation-guide-for-epson-wf-2750-printers-access-official-drivers-here/"><u>Installation Guide for Epson WF-2750 Printers: Access Official Drivers Here</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/method-to-identify-recent-instagram-unfollows/"><u>Method to Identify Recent Instagram Unfollows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-uploading-impeccable-content-on-youtube-for-2024/"><u>The Ultimate Guide to Uploading Impeccable Content on YouTube for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-hidden-advantages-priority-parking-and-carpool-lane-use-for-eco-friendly-drivers/"><u>Unlock Hidden Advantages: Priority Parking and Carpool Lane Use for Eco-Friendly Drivers</u></a></li>
 </ul></div>
 

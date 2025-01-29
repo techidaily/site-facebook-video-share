@@ -1,7 +1,7 @@
 ---
 title: "CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly"
-date: 2025-01-20T18:31:31.972Z
-updated: 2025-01-21T21:45:45.850Z
+date: 2025-01-21T16:17:26.155Z
+updated: 2025-01-28T16:00:20.753Z
 tags:
   - win11
   - win10
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 5. [**Turn off unnecessary programs**](https://tools.techidaily.com/drivereasy/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 1: Check your home network
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
  A bad network connection can often cause your game to freeze, lag or even crash, so you may want to**restart your network** by turning off your modem and router for at least 20 seconds then turning them back on.
 
  If you’re using a Wi-Fi connection, try using an ethernet cable. An ethernet cable can provide a more stable internet connection. If that’s not an option, you can instead, move your computer closer to your router as the distance between your PC and the Router could also affect your Wi-Fi connection and your gaming performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 2: Update your graphics driver
 
@@ -72,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can do it for free if you like, but it’s partly manual.
 
 **The Pro version of Driver Easy** comes with full technical support.  
@@ -92,7 +92,7 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_15-35-03.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)**  After the process is complete, click**Optimize** .
@@ -100,10 +100,6 @@ thumbnail: https://thmb.techidaily.com/fef6203ef0318484835e6be326e62ec1be7635f93
 **4)** Launch the game to test your issue.
 
 Your game still freezes? Try the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 4: Lower in-game graphics settings
 
@@ -119,15 +115,19 @@ Your game still freezes? Try the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-31-55.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **4)** Click**Confirm** on the bottom-right corner of your screen to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_16-41-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If your issue persists, then move on to the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 5: Turn off unnecessary programs
 
@@ -166,18 +166,24 @@ If your issue persists, then move on to the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-affordable-and-accessible-the-definitive-guide-to-9-budget-friendly-editors-for-2024/"><u>[New] Affordable & Accessible The Definitive Guide to 9 Budget-Friendly Editors for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-live-feed-perfection-top-free-screen-capture-apps-reviewed-for-2024/"><u>[New] Live Feed Perfection Top Free Screen Capture Apps Reviewed for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-maximize-engagement-with-integrated-youtube-playlist-features/"><u>[New] Maximize Engagement with Integrated YouTube Playlist Features</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-youtube-playback-tweaks-turn-off-auto-play-videos-for-2024/"><u>[New] YouTube Playback Tweaks Turn Off Auto-Play Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtubing-success-final-stages-and-top-resources/"><u>[New] YouTubing Success Final Stages and Top Resources</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-balancing-act-proper-techniques-for-stable-photos-for-2024/"><u>[Updated] Balancing Act Proper Techniques for Stable Photos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-direct-download-and-mp3-creation-for-streaming-video-files-for-2024/"><u>[Updated] Direct Download & MP3 Creation for Streaming Video Files for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-finance-frontiers-the-finest-youtube-channels-to-follow/"><u>[Updated] Finance Frontiers The Finest YouTube Channels to Follow</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-revolutionize-your-content-harnessing-the-power-of-fb-lives/"><u>[Updated] Revolutionize Your Content Harnessing the Power of FB Lives</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unlock-your-earning-potential-maximizing-youtube-revenue-on-mobile/"><u>[Updated] Unlock Your Earning Potential Maximizing YouTube Revenue on Mobile</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-dive-into-iphone-photo-magic-with-surface-mirror-tips/"><u>2024 Approved Dive Into iPhone Photo Magic with Surface Mirror Tips</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/2024-approved-top-8-multi-subtitles-translators-you-can-use/"><u>2024 Approved Top 8 Multi-Subtitles Translators You Can Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-image-alerts-chat-disappearance-on-messenger/"><u>Unseen Image Alerts: Chat Disappearance on Messenger</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-excellent-sound-devices-for-video-blogs/"><u>[New] 2024 Approved Excellent Sound Devices for Video Blogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-domain-your-playground-for-1000-titles/"><u>[New] In 2024, Digital Domain Your Playground for 1,000 Titles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-compre-written-by-daniel-kelley/"><u>[Updated] 2024 Approved A Compre Written by Daniel Kelley</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-quick-guide-to-purging-watched-youtube-videos/"><u>[Updated] 2024 Approved A Quick Guide to Purging Watched YouTube Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-efficiently-piecing-together-google-collage-projects/"><u>[Updated] 2024 Approved Efficiently Piecing Together Google Collage Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-avoiding-poverty-earning-in-beauty-media/"><u>[Updated] In 2024, Avoiding Poverty Earning in Beauty Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-image-makeovers-on-the-house/"><u>[Updated] In 2024, Channel Image Makeovers on the House</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ultimate-tech-comforts-with-luxury-desktops/"><u>[Updated] In 2024, Ultimate Tech Comforts with Luxury Desktops</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-minute-by-minute-mastery-the-top-ten-on-youtube-daily/"><u>[Updated] Minute-by-Minute Mastery The Top Ten on YouTube Daily</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-panasonic-hx-a1-wearable-action-camera-review/"><u>[Updated] Panasonic HX-A1 Wearable Action Camera Review</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-real-number-of-youtube-views-you-need-to-make-a-living/"><u>[Updated] The Real Number of YouTube Views You Need to Make a Living</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-essential-top-rated-virtual-world-films/"><u>2024 Approved Essential Top-Rated Virtual World Films</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-honor-80-pro-straight-screen-edition-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Honor 80 Pro Straight Screen Edition Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/essential-social-networking-sites-explore-facebook-twitter-instagram-and-youtube/"><u>Essential Social Networking Sites - Explore Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-poco-c51-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Poco C51 Phone Hassle-Free</u></a></li>
+<li><a href="https://fox-access.techidaily.com/master-the-art-of-captivating-audiences-in-tiktok-unpack-videos-for-2024/"><u>Master the Art of Captivating Audiences in TikTok Unpack Videos for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-fixes-unlock-solutions-to-bypass-persistent-loading-screens-in-rdr-2/"><u>Mastering Fixes: Unlock Solutions to Bypass Persistent Loading Screens in RDR ^2</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-future-unfolds-top-features-of-newest-gpt-release/"><u>The Future Unfolds: Top Features of Newest GPT Release</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/thwart-bots-surge-in-authentic-youtube-interest-for-2024/"><u>Thwart Bots, Surge in Authentic YouTube Interest for 2024</u></a></li>
 </ul></div>
 
