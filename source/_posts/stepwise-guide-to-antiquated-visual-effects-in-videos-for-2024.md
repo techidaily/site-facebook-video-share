@@ -1,7 +1,7 @@
 ---
 title: "Stepwise Guide to Antiquated Visual Effects in Videos for 2024"
-date: 2025-01-17T22:45:30.392Z
-updated: 2025-01-21T16:36:02.747Z
+date: 2025-02-02T18:07:03.248Z
+updated: 2025-02-09T18:50:09.645Z
 tags:
   - ai video
   - ai youtube
@@ -61,7 +61,7 @@ Lots of black points in the video are not ideal for a vintage effect. The suitab
 Bringing down the saturation levels is another tip to create a vintage effect. The old videos are also absent in bright colors. Don't go too crazy about reduction as 20%-30% saturation level is more than enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create a Stunning Vintage Video?
@@ -70,15 +70,15 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Steps for the vintage effect to videos on Wondershare Filmora Video Editor**
 
 **Step 1:** Upload video & make specific changes
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
@@ -106,12 +106,16 @@ On the other hand, the subcategory of Sepia Tone features Sun-Kissed & Rise Filt
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you need to desaturate the video clip with Ash & Willow filters. We have typed Ash in the Search bar, and you can see the filter below. These filters are essential to desaturate the video with preset contrast, brightness, or exposure values.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
@@ -123,7 +127,7 @@ You can also access the Advanced color correction Tab of Filmora from the Color 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips to Make Your Vintage Videos Stand Out
@@ -136,10 +140,6 @@ Following the helpful tips would assist you in creating awesome retro videos.
 * Add overlays and respective filters to recreate a required vintage look. You must add things that dust, scratch, and grain the heck out from the video that you have created.
 * Lower the frame rate or FPS to create an excellent vintage look. You can make it to 18 or 14 FPS depending upon the aesthetic requirements.
 * Keep an eye on black and white filters you have used. It's because more of a black and white can ruin the actual vintage experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -164,16 +164,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-download-premium-quality-designs-at-no-cost-for-youtube-creators/"><u>[New] 2024 Approved Download Premium-Quality Designs at No Cost – For YouTube Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-breaking-barriers-increasing-viewership-on-youtube-for-2024/"><u>[New] Breaking Barriers Increasing Viewership on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-cured-non-appearance-of-tiny-vid-content-for-2024/"><u>[New] Cured Non-Appearance of Tiny Vid Content for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/avigating-netflix-and-youtubers-how-jake-paul-succeeded/"><u>[New] Navigating Netflix & YouTubers How Jake Paul Succeeded</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-topics-with-a-twist-for-your-vlog-talks/"><u>[New] Topics with a Twist for Your Vlog Talks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-exploring-color-enhancement-with-lut-tools-in-pscc/"><u>[Updated] 2024 Approved Exploring Color Enhancement with LUT Tools in PSCC</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oppo-a56s-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Oppo A56s 5G</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/boosting-your-videos-popularity-in-a-competitive-space-like-tiktok-for-2024/"><u>Boosting Your Video’s Popularity in a Competitive Space Like TikTok for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-nokia-105-classic-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Nokia 105 Classic?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-build-haha-images/"><u>In 2024, Build Haha Images</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/streamlining-your-youtube-views-a-guide-to-blocking-advertisements-for-2024/"><u>Streamlining Your YouTube Views A Guide to Blocking Advertisements for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-drone-dynamics-yuneecs-4k-flight-exploration/"><u>[New] Drone Dynamics Yuneec's 4K Flight Exploration</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-apex-capture-vs-lumen-hub/"><u>[New] In 2024, Apex Capture VS Lumen Hub</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-earnings-per-watch-average-income-breakdown/"><u>[New] YouTube Earnings per Watch Average Income Breakdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-6-completely-different-places-to-get-icons-and-logos-for-youtube-videos/"><u>[Updated] 2024 Approved 6 Completely Different Places to Get Icons and Logos for YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-android-and-ios-the-best-sound-distortion-tools-for-2024/"><u>[Updated] Android & iOS The Best Sound Distortion Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-leading-5-audio-caps-for-streaming-enthusiasts/"><u>[Updated] Leading 5 Audio Caps for Streaming Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-video-recorder-for-cutting-edge-youtube-content/"><u>[Updated] Premium Video Recorder for Cutting-Edge YouTube Content</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-breakthrough-14-text-animation-samples/"><u>2024 Approved Breakthrough 14 Text Animation Samples</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-rights-and-recourse-following-sudden-account-suspension-on-fb/"><u>2024 Approved Rights and Recourse Following Sudden Account Suspension on FB</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/find-the-perfect-video-collaboration-app-our-choice-of-10-free-tools-for-2024/"><u>Find the Perfect Video Collaboration App Our Choice of 10 Free Tools for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/magixs-image-ordering-an-assessment-for-2024/"><u>MAGIX's Image Ordering An Assessment for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-filmora-deals-and-steals-your-go-to-resource-for-coupon-codes/"><u>New In 2024, Filmora Deals and Steals Your Go-To Resource for Coupon Codes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-to-design-lively-and-uplifting-content-shows-for-2024/"><u>Strategies to Design Lively and Uplifting Content Shows for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-premier-list-top-12-online-havens-for-free-photo-resources-for-2024/"><u>The Premier List Top 12 Online Havens for FREE Photo Resources for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-youtubes-end-screens-easy-template-ideas-and-tutorials-for-2024/"><u>Unlock YouTube's End Screens Easy Template Ideas & Tutorials for 2024</u></a></li>
 </ul></div>
 

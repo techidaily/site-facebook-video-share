@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Controlling Who Sees Your Youtube Productions\""
-date: 2025-01-17T17:59:24.634Z
-updated: 2025-01-21T19:24:12.119Z
+date: 2025-02-02T19:21:41.355Z
+updated: 2025-02-09T19:36:41.043Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Public VS Unlisted VS Private
@@ -65,7 +65,11 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -86,6 +90,10 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -93,11 +101,7 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -105,10 +109,6 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -127,20 +127,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-through-the-noise-optimal-thumbnail-sizes/"><u>[New] 2024 Approved Cutting Through the Noise Optimal Thumbnail Sizes</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-best-websites-to-download-game-of-thrones-ringtones/"><u>[New] Best Websites to Download Game of Thrones Ringtones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-playbook-to-create-compelling-youtube-educational-videos/"><u>[New] The Ultimate Playbook to Create Compelling YouTube Educational Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transforming-visuals-the-power-of-customized-luts/"><u>[New] Transforming Visuals The Power of Customized LUTs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-winning-the-subscriber-race-on-youtube/"><u>[New] Winning the Subscriber Race on YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-dive-into-virtual-space-with-lgs-360-degree-headset/"><u>[Updated] 2024 Approved Dive Into Virtual Space with LG's 360-Degree Headset</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unleash-your-photo-potential-with-instagram-filters/"><u>2024 Approved Unleash Your Photo Potential with Instagram Filters</u></a></li>
-<li><a href="https://discover-data.techidaily.com/behringer-cmd-studio-user-in-which-of-the-following-situations-would-you-most-likely-use-a-line-plot/"><u>Behringer CMD Studio # User: In Which of the Following Situations Would You Most Likely Use a Line Plot?</u></a></li>
-<li><a href="https://games-able.techidaily.com/essential-remedies-to-rejuvenate-a-locked-steam-service/"><u>Essential Remedies to Rejuvenate a Locked Steam Service</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-realme-11-proplus-screen-sharing-drfone-by-drfone-android/"><u>How To Do Realme 11 Pro+ Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-top-free-mp4-video-cutter-software-for-windows-and-mac/"><u>New In 2024, Top Free MP4 Video Cutter Software for Windows and Mac</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/optimize-for-popularity-top-youtube-seo-devices-unveiled-for-2024/"><u>Optimize for Popularity Top YouTube SEO Devices Unveiled for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/social-momentum-in-infographics-2023s-pioneers-for-2024/"><u>Social Momentum in Infographics - 2023'S Pioneers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/tips-for-effortless-sharing-of-musical-selections-for-2024/"><u>Tips for Effortless Sharing of Musical Selections for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-angle-adjustment-a-step-by-step-editing-guide-for-2024/"><u>Youtube Angle Adjustment A Step-by-Step Editing Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-apex-artists-youtubes-most-followed-sages/"><u>[New] 2024 Approved Apex Artists YouTube's Most-Followed Sages</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-the-chilly-selecting-five-warm-video-backgrounds/"><u>[New] 2024 Approved Elevating the Chilly Selecting Five Warm Video Backgrounds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos-for-2024/"><u>[New] Ace Your Edits In-Depth Guide to High-Quality YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cultivate-creativity-youtubes-top-inspirational-videos/"><u>[Updated] 2024 Approved Cultivate Creativity YouTube's Top Inspirational Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-into-the-code-labyrinastr-facebooks-message-extraction-guide/"><u>[Updated] 2024 Approved Into the Code Labyrinastr - Facebook's Message Extraction Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-4-effective-methods-for-slide-embedding-from-youtube/"><u>[Updated] In 2024, 4 Effective Methods for Slide Embedding From YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>[Updated] In 2024, Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-diy-guide-zero-cost-youtube-intros-and-template-usage/"><u>[Updated] In 2024, DIY Guide Zero Cost YouTube Intros & Template Usage</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-capturing-change-time-lapse-on-samsung-smartphones/"><u>2024 Approved Capturing Change Time-Lapse on Samsung Smartphones</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-precision-in-practice-tailoring-ps4-recordings-to-suit-your-style/"><u>2024 Approved Precision in Practice Tailoring PS4 Recordings to Suit Your Style</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-vivo-s18-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Vivo S18 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-explore-and-engage-ifunny-meme-downloads/"><u>In 2024, Explore & Engage IFunny Meme Downloads</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-full-evaluation-djis-latest-drone-the-inspire-1/"><u>In 2024, Full Evaluation DJI's Latest Drone, The Inspire 1</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/watch-9-festive-feasts-of-film-with-zero-charges-online-for-2024/"><u>Watch 9 Festive Feasts of Film with Zero Charges Online for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mhrk-thoyl-fydyo-movavi-ballgha-alisbanyya-alakttaaa-alkhal-thoyl-sygha-alfydyo/"><u>محرك تحويل فيديو Movavi - باللغة الإسبانيية: الاقتطاع الخال | تحويل صيغة الفيديو</u></a></li>
 </ul></div>
 
