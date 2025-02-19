@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Taking the Leap  Essential Video Gatherings (Post-VidCon)\""
-date: 2025-02-02T18:33:27.144Z
-updated: 2025-02-09T20:37:03.278Z
+date: 2025-02-13T21:17:12.771Z
+updated: 2025-02-19T18:53:12.468Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -85,7 +81,7 @@ You have a two-week window (usually the first half of May) to submit your choice
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -122,10 +118,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -151,7 +143,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -165,6 +157,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -204,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -229,7 +229,7 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -247,19 +247,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-exploring-techniques-for-uploading-twitter-videos-seamlessly-on-instagram/"><u>[New] Exploring Techniques for Uploading Twitter Videos Seamlessly on Instagram</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unlock-your-lost-iphone-xs-potentials-with-these-tricks/"><u>[New] Unlock Your Lost iPhone X's Potentials with These Tricks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-your-step-by-step-pathway-to-youtube-video-enhancement/"><u>[New] Your Step-By-Step Pathway to YouTube Video Enhancement</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-7-high-resolution-dslrs-for-engaging-video-blogs/"><u>[Updated] 2024 Approved Best 7 High-Resolution DSLRs for Engaging Video Blogs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>[Updated] In 2024, Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-the-art-of-vocal-performance-for-video-projects/"><u>[Updated] In 2024, The Art of Vocal Performance for Video Projects</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-journey-camera-setup-for-aspiring-cinephiles/"><u>2024 Approved Journey Camera Setup for Aspiring Cinephiles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/5-tips-to-get-more-views-with-youtube-optimization-for-2024/"><u>5 Tips to Get More Views with YouTube Optimization for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/best-low-cost-smartwatches-with-gaming-features-for-2024/"><u>Best Low-Cost Smartwatches with Gaming Features for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-repair-unresponsive-usb-input-devices-in-windows-7-operating-system/"><u>How to Repair Unresponsive USB Input Devices in Windows 7 Operating System</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How to Share Location in Messenger On Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-windows-7-audio-driver-downloads-compatible-with-your-system/"><u>Latest Windows 7 Audio Driver Downloads - Compatible with Your System</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/tactical-approaches-to-youtube-revenue-with-adsense-for-2024/"><u>Tactical Approaches to YouTube Revenue with AdSense for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-oppo-a78-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Oppo A78 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-12-video-channels-at-your-command-seamless-viewing/"><u>[New] 12 Video Channels at Your Command – Seamless Viewing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-techniques-for-youtube-end-screen-designs/"><u>[New] 2024 Approved Essential Techniques for YouTube End Screen Designs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-quick-clip-quandary-youtube-shorts-advantage-over-tiktok/"><u>[New] In 2024, The Quick-Clip Quandary YouTube Shorts' Advantage Over TikTok?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-video-visibility-on-youtube-with-seo-insights/"><u>[New] Maximizing Video Visibility on YouTube with SEO Insights</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-social-media-excellence-a-practical-approach/"><u>[New] Social Media Excellence A Practical Approach</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-automate-the-savvy-storage-of-your-social-media-images/"><u>[Updated] 2024 Approved Automate the Savvy Storage of Your Social Media Images</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-exclusive-crafting-uniqueness-with-120plus-original-story-titles-on-snapchat/"><u>[Updated] In 2024, Exclusive Crafting Uniqueness with 120+ Original Story Titles on Snapchat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-right-way-to-raise-your-videos-reach-responsibly/"><u>[Updated] The Right Way to Raise Your Video's Reach Responsibly</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2023s-samsung-bd-j5900-a-detailed-look-for-2024/"><u>2023'S Samsung BD-J5900 A Detailed Look for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-conversion-wizardry-from-youtube-to-igtv/"><u>2024 Approved Video Conversion Wizardry From Youtube to IGTV</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-harnessing-the-power-of-3d-luts-in-creative-pixels/"><u>In 2024, Harnessing the Power of 3D LUTs in Creative Pixels</u></a></li>
+<li><a href="https://fox-place.techidaily.com/ultimate-guide-transferring-windows-files-seamlessly-to-your-samsung-ssd/"><u>Ultimate Guide: Transferring Windows Files Seamlessly to Your Samsung SSD</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlock-the-secret-grab-your-complimentary-macbook-air-m3-at-best-buy-with-these-steps/"><u>Unlock the Secret: Grab Your Complimentary MacBook Air M3 at Best Buy with These Steps</u></a></li>
 </ul></div>
 

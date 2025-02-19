@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Detailed Look Into YouTube's Featured Community Dialogue\""
-date: 2025-02-07T19:10:54.519Z
-updated: 2025-02-09T19:06:33.112Z
+date: 2025-02-18T21:46:23.515Z
+updated: 2025-02-19T17:27:18.857Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,10 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -61,7 +65,7 @@ YouTube has been working on improving the navigation of the comment section for 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
@@ -76,10 +80,6 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Get the URL of Highlighted Comments?
 
 The ways to acquire the URL or link for a highlighted comment are different for both parties- viewer and host.
@@ -91,7 +91,7 @@ Suppose you are a viewer who is going through the comments section of a video. I
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -103,7 +103,7 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
@@ -119,10 +119,6 @@ Alternatively, you can try out a few temporary solutions.
 <https://www.youtube.com/watch?v=XWhjJjhpmQA>
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
@@ -154,6 +150,10 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -169,19 +169,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-magnifying-youtube-visual-experience/"><u>[New] Magnifying YouTube Visual Experience</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-secret-behind-successful-youtube-thumbnails/"><u>[New] Unveiling The Secret Behind Successful YouTube Thumbnails</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-designcut-pro/"><u>[Updated] DesignCut Pro</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-capture-to-curve-an-insider-look-at-editing-and-sharing-360-videos-on-youtube/"><u>[Updated] From Capture to Curve An Insider Look at Editing and Sharing 360° Videos on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-infusing-creative-edge-in-your-youtube-trailer-production/"><u>[Updated] Infusing Creative Edge in Your YouTube Trailer Production</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-smart-snap-strategies-insta-story-zoom-101/"><u>[Updated] Smart Snap Strategies Insta Story Zoom 101</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-upgrading-your-videos-appeal-youtube-thumbnail-resizing/"><u>[Updated] Upgrading Your Video's Appeal YouTube Thumbnail Resizing</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-fix-youtube-shorts-thumbnail-not-showing-problem/"><u>2024 Approved How to Fix YouTube Shorts Thumbnail Not Showing Problem</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/discreet-snaps-the-secret-of-silent-photo-taking-on-snapchat/"><u>Discreet Snaps The Secret of Silent Photo-Taking on Snapchat</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-updated-scrutiny-of-sony-s3700-high-definition-playback/"><u>In 2024, Updated Scrutiny of Sony S3700 High Definition Playback</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-the-step-by-step-guide-to-personalizing-mobile-notifications/"><u>New 2024 Approved The Step-by-Step Guide to Personalizing Mobile Notifications</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/premium-gadgets-to-record-online-streams-on-youtube-for-2024/"><u>Premium Gadgets to Record Online Streams on YouTube for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/windows-aesthetics-unveiled-tracing-the-lineage-of-os-desktop-imagery/"><u>Windows Aesthetics Unveiled: Tracing the Lineage of OS Desktop Imagery</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-elevate-your-meetings-best-tools-to-record-zoom/"><u>[New] 2024 Approved Elevate Your Meetings Best Tools to Record Zoom</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expertise-unleashed-professional-insights-into-video-editing/"><u>[New] In 2024, Expertise Unleashed Professional Insights Into Video Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-video-creation-understanding-the-role-of-camera-lenses-in-vlogging/"><u>[New] Master Video Creation Understanding the Role of Camera Lenses in Vlogging</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-quick-guide-to-making-twitter-videos-into-expressive-gifs-for-2024/"><u>[New] Quick Guide to Making Twitter Videos Into Expressive GIFs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-build-your-wealth-on-youtube-a-guide-to-creating-content-without-ads/"><u>[Updated] 2024 Approved Build Your Wealth on YouTube A Guide to Creating Content Without Ads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discover-powerful-tagging-tactics-a-guide-to-amplifying-freegame-content/"><u>[Updated] 2024 Approved Discover Powerful Tagging Tactics A Guide to Amplifying FreeGame Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-all-about-youtube-micro-videos-for-2024/"><u>[Updated] All About YouTube Micro Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-becoming-a-trendsetter-youtube-video-tactics-for-2024/"><u>[Updated] Becoming a Trendsetter YouTube Video Tactics for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-fixing-dropped-frames-a-complete-guide-for-obs-studio-users-for-2024/"><u>[Updated] Fixing Dropped Frames A Complete Guide for OBS Studio Users for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-unlocking-your-pc-games-with-ease-on-windows-10/"><u>2024 Approved Unlocking Your PC Games with Ease on Windows 10</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/rawjpegmovavi/"><u>無限量移動 - 電子郵件短信RAW為JPEG自由轉換Movavi工具</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chromecast-meets-google-tv-an-in-depth-review-against-the-popular-firetv/"><u>Chromecast Meets Google TV: An In-Depth Review Against the Popular FireTV</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-cutting-edge-tech-tweaks-to-maximize-srs-efficiency/"><u>In 2024, Cutting-Edge Tech Tweaks to Maximize SRS Efficiency</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-exploring-the-essence-of-youtube-live-imagery-language/"><u>In 2024, Exploring the Essence of YouTube Live Imagery Language</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-professional-grade-8-filters-for-live-feeds/"><u>In 2024, Professional-Grade 8 Filters for Live Feeds</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-guide-uploading-vimeo-videos-for-2024/"><u>Instagram Guide Uploading Vimeo Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/spotlight-series-the-top-10-women-of-video-content-for-2024/"><u>Spotlight Series The Top 10 Women of Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/taste-titans-must-follow-culinary-creators-online-for-2024/"><u>Taste Titans Must-Follow Culinary Creators Online for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/understanding-your-profit-revenue-per-thousand-from-youtubes-adsense-income-for-2024/"><u>Understanding Your Profit Revenue Per Thousand From YouTube's AdSense Income for 2024</u></a></li>
 </ul></div>
 

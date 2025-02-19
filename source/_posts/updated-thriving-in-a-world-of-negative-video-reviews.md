@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Thriving in a World of Negative Video Reviews"
-date: 2024-08-01T09:14:20.897Z
-updated: 2024-08-02T09:14:20.897Z
+date: 2025-02-12T22:31:57.570Z
+updated: 2025-02-19T20:39:26.253Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6b81d20b1d6e26d0457009bbfe739603019d02e6b
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,22 +27,9 @@ thumbnail: https://thmb.techidaily.com/6b81d20b1d6e26d0457009bbfe739603019d02e6b
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -72,10 +56,11 @@ Key features:
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -83,12 +68,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-step-by-step-guide-to-youtube-to-igtv-conversion/"><u>[New] 2024 Approved A Step-by-Step Guide to YouTube to IGTV Conversion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-your-youtube-presence-key-tips-for-popularity/"><u>[New] 2024 Approved Boosting Your YouTube Presence Key Tips for Popularity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-secrets-to-a-reliable-windows-11-photo-viewer/"><u>[New] In 2024, Secrets to a Reliable Windows 11 Photo Viewer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-video-animation-tools-and-techniques-for-efficient-gif-making/"><u>[New] YouTube Video Animation Tools and Techniques for Efficient Gif Making</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-10-strategies-to-make-money-on-youtube-shorts-easily-for-2024/"><u>[Updated] 10 Strategies to Make Money on YouTube Shorts Easily for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-captivating-yt-cover-art-for-maximum-traffic-for-2024/"><u>[Updated] Captivating YT Cover Art for Maximum Traffic for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-ever-fading-memories-revived-youtubes-lost-content-hunt/"><u>[Updated] In 2024, Ever-Fading Memories Revived YouTube's Lost Content Hunt</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-discover-why-av1-is-a-game-changer-for-youtube-viewers/"><u>2024 Approved Discover Why AV1 Is a Game Changer for YouTube Viewers</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exclusive-roundup-of-the-latest-apple-unveiling-meet-the-new-m4-ipad-pro-and-13-inch-ipad-air-plus-the-advanced-apple-pencil-pro/"><u>Exclusive Roundup of the Latest Apple Unveiling: Meet the New M4 iPad Pro and 13-Inch iPad Air, Plus the Advanced Apple Pencil Pro</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-sensation-strategies-for-marketers-and-influencers-for-2024/"><u>Fb Sensation Strategies for Marketers and Influencers for 2024</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/how-to-fix-windows-nx-freezing-issues-during-file-transfers-expert-solutions-unveiled/"><u>How to Fix Windows nX Freezing Issues During File Transfers – Expert Solutions Unveiled</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elite-architects-of-virtual-realities/"><u>In 2024, Elite Architects of Virtual Realities</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-poco-f5-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Poco F5 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/professional-video-edits-at-zero-price-discover-these-tools-for-2024/"><u>Professional Video Edits at Zero Price - Discover These Tools for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/windows-users-guide-to-running-free-chatgpt-clones-without-limitations-using-freedomgpt/"><u>Windows Users Guide to Running FREE ChatGPT Clones Without Limitations Using FreedomGPT</u></a></li>
+</ul></div>
 

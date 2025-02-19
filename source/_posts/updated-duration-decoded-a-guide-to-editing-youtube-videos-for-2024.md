@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos for 2024\""
-date: 2025-02-05T16:46:43.205Z
-updated: 2025-02-09T19:18:03.633Z
+date: 2025-02-14T18:12:12.735Z
+updated: 2025-02-19T19:02:05.176Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,20 +103,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-clear-youtubes-obscured-visual-field-for-2024/"><u>[New] Clear Youtube's Obscured Visual Field for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-4-secrets-for-adding-online-vids-seamlessly-in-ppt/"><u>[New] In 2024, 4 Secrets for Adding Online Vids Seamlessly in PPT</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-youtube-success-top-video-strategies-to-explode-views/"><u>[New] Unlocking YouTube Success Top Video Strategies to Explode Views</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-designing-eye-catching-instagram-post-previews-for-2024/"><u>[Updated] Designing Eye-Catching Instagram Post Previews for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-elevate-your-chats-advanced-message-pinning-techniques/"><u>[Updated] Elevate Your Chats Advanced Message Pinning Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-shuffle-of-your-youtube-playlists/"><u>[Updated] In 2024, Effortless Shuffle of Your YouTube Playlists</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhance-smarts-with-these-premier-15-science-yts/"><u>[Updated] In 2024, Enhance Smarts with These Premier 15 Science YTs</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-media-on-mobile-best-phones-of-the-year/"><u>[Updated] Mastering Media on Mobile Best Phones of the Year</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-quintessential-quotient-subscriber-rankings/"><u>[Updated] The Quintessential Quotient Subscriber Rankings</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/efficiently-tagging-dates-in-image-files/"><u>Efficiently Tagging Dates in Image Files</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-leading-edge-vr-game-development-technology-2023-edition/"><u>In 2024, Leading Edge VR Game Development Technology, 2023 Edition</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/resolucion-definitiva-del-problema-de-congelacion-aleatoria-en-windows-11/"><u>Resolución Definitiva Del Problema De Congelación Aleatoria en Windows 11</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlocking-customization-embedding-text-in-youtube-cards-for-2024/"><u>Unlocking Customization Embedding Text in YouTube Cards for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>[New] Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-engage-and-inspire-viewers-animated-subscribers-in-filmora-explained/"><u>[New] In 2024, Engage and Inspire Viewers - Animated Subscribers in Filmora Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetizing-carryminati-journey-to-2023-income/"><u>[New] Monetizing CarryMinati Journey to 2023 Income</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boosting-earning-potential-on-youtube-shorts/"><u>[Updated] 2024 Approved Boosting Earning Potential on YouTube Shorts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-tiktok-marketing-strategy-grow-your-business-on-tiktok/"><u>[Updated] 2024 Approved TikTok Marketing Strategy Grow Your Business on TikTok</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-the-excess-a-guide-to-shortening-youtube-videos-for-2024/"><u>[Updated] Cutting the Excess A Guide to Shortening YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ideal-asmr-channel-selections/"><u>[Updated] Ideal ASMR Channel Selections</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-spotlight-on-top-8-authentic-youtube-growth-tactics/"><u>[Updated] Spotlight on Top 8 Authentic YouTube Growth Tactics</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/essential-ae-text-templates-maximum-efficiency/"><u>Essential AE Text Templates (Maximum Efficiency)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/essential-strategies-for-lowering-audible-levels-on-lumafusion/"><u>Essential Strategies for Lowering Audible Levels on Lumafusion</u></a></li>
 </ul></div>
 

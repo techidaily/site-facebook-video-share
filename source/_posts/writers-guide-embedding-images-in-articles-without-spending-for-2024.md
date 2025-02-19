@@ -1,7 +1,7 @@
 ---
 title: "\"Writers' Guide  Embedding Images in Articles Without Spending for 2024\""
-date: 2025-02-02T18:14:36.789Z
-updated: 2025-02-09T18:30:14.088Z
+date: 2025-02-18T19:53:03.096Z
+updated: 2025-02-19T17:02:03.589Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ It may be challenging to capture the attention of your audience if the video ope
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
@@ -45,7 +45,7 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
@@ -54,16 +54,12 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
@@ -86,6 +82,10 @@ Now it’s time to add the text video and the background video to the project me
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
 Optionally you can enhance the colors in the background video or adjust the size of the text before exporting your project from Filmora.
@@ -99,7 +99,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -117,17 +117,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channeling-success-the-essential-elements-for-profitable-video-trailers/"><u>[New] 2024 Approved Channeling Success The Essential Elements for Profitable Video Trailers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-top-platform-trio-which-one-triumphs-vimeo-youtube-dailymotion/"><u>[New] 2024 Approved The Top Platform Trio Which One Triumphs – Vimeo, YouTube, Dailymotion?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dominate-the-digital-space-youtube-leadership/"><u>[New] In 2024, Dominate the Digital Space YouTube Leadership</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-step-by-step-guide-to-convert-avis-into-gifs-via-filmora-software/"><u>[New] Step-by-Step Guide to Convert AVIs Into GIFs via Filmora Software</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-conquer-zero-viewers-10-essential-tips-for-video-popularity-for-2024/"><u>[Updated] Conquer Zero Viewers 10 Essential Tips for Video Popularity for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-icons-and-logos-from-6-innovative-websites-for-2024/"><u>[Updated] Cutting-Edge Icons and Logos From 6 Innovative Websites for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-essential-insights-how-to-choose-among-the-top-9-free-youtube-makers-for-2024/"><u>[Updated] Essential Insights How to Choose Among the Top 9 Free YouTube Makers for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-quick-and-easy-way-to-record-iphone-screens/"><u>[Updated] Quick & Easy Way to Record iPhone Screens</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/cultivating-success-in-valheim-prime-seed-picks-for-2024/"><u>Cultivating Success in Valheim Prime Seed Picks for 2024</u></a></li>
-<li><a href="https://win-superb.techidaily.com/kostenlose-wiederherstellung-von-formatierten-laufwerken-in-windows-versionen-11-8-7-and-10/"><u>Kostenlose Wiederherstellung Von Formatierten Laufwerken in Windows - Versionen 11, 8, 7 & 10</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-fixing-monitor-not-connected-issue/"><u>Troubleshooting Steps for Fixing 'Monitor Not Connected' Issue</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unleash-laughter-and-tears-the-best-instagram-meme-picks/"><u>Unleash Laughter and Tears The Best Instagram Meme Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-android-and-ios-leaders-in-asmr-content-for-2024/"><u>[New] Android & iOS Leaders in ASMR Content for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfect-and-unique-youtube-channel-names-for-professional-filmmakers-and-vloggers-no-more-than-156-characters/"><u>[Updated] Perfect & Unique Youtube Channel Names for Professional Filmmakers & Vloggers (No More than 156 Characters)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-youtube-makeup-gurus-for-stunning-looks/"><u>[Updated] Top 10 YouTube Makeup Gurus for Stunning Looks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/e-identity-enhancement-drawing-your-playful-iconography-for-2024/"><u>E-Identity Enhancement Drawing Your Playful Iconography for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ensuring-reliable-wellness-insights-fact-checking-with-chatgpt-and-ai-generated-information/"><u>Ensuring Reliable Wellness Insights: Fact-Checking with ChatGPT and AI Generated Information</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/essential-strategies-for-protecting-your-online-property-learn-from-yl-computing-and-yl-software-experts/"><u>Essential Strategies for Protecting Your Online Property: Learn From YL Computing and YL Software Experts</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-overcome-cod-black-ops-cold-war-glitch-error-code-887a0005/"><u>How To Overcome COD Black Ops Cold War Glitch 'Error Code: 887A0005'</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a18-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Oppo A18 Phone with Broken Screen</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-official-amd-rx-6900-xt-graphics-card-driver-for-all-windows-versions-windows-111087-download-here/"><u>Install Official AMD RX 6900 XT Graphics Card Driver for All Windows Versions - Windows 11/10/8/7 Download Here</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-common-issues-why-your-ipad-may-not-detect-the-printer/"><u>Solving Common Issues: Why Your iPad May Not Detect the Printer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/swift-ways-to-reorder-youtube-watchlist-alphabetically-for-2024/"><u>Swift Ways to Reorder YouTube Watchlist Alphabetically for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-fundamentals-made-simple-top-8-learning-resources-for-2024/"><u>YouTube Fundamentals Made Simple Top 8 Learning Resources for 2024</u></a></li>
 </ul></div>
 

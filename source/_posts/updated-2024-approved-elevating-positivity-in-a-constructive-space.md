@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2025-02-07T20:05:23.531Z
-updated: 2025-02-09T17:40:13.222Z
+date: 2025-02-16T20:27:00.116Z
+updated: 2025-02-19T19:54:33.280Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,22 +77,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discovering-youtube-studio-where-ideas-become-engaging-content/"><u>[New] 2024 Approved Discovering YouTube Studio Where Ideas Become Engaging Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-tips-for-making-youtube-introductory-trailers/"><u>[New] 2024 Approved Essential Tips for Making YouTube Introductory Trailers</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-grab-and-play-fb-audio-clips/"><u>[New] Grab and Play FB Audio Clips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-million-sub-milestone-the-youtube-guide/"><u>[New] In 2024, Achieving Million-Sub Milestone The YouTube Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discovering-the-excellent-10-yoga-programs-for-better-wellness/"><u>[New] In 2024, Discovering the Excellent 10 Yoga Programs for Better Wellness</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-live-watch-tracker-applications/"><u>[New] Live Watch Tracker Applications</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-checklist-for-professional-live-streaming/"><u>[New] The Ultimate Checklist for Professional Live Streaming</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-demystifying-youtube-shorts-content-strategy-guide-for-2024/"><u>[Updated] Demystifying YouTube Shorts Content Strategy Guide for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>[Updated] In 2024, Mobile Filmmaking Tips Designing Engaging YouTubes Thumbnails</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-photoshopping-magic-deformation-tips/"><u>[Updated] Photoshopping Magic Deformation Tips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-cost-free-cgi-mastery-via-4-youtube-experts-insights/"><u>[Updated] The Ultimate Guide to Cost-Free CGI Mastery via 4 YouTube Experts' Insights</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-procedures-for-producing-high-quality-asmr-videos/"><u>2024 Approved Step-by-Step Procedures for Producing High-Quality ASMR Videos</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-realme-v30-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Realme V30 Phone Pattern Lock</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/svchostexe-overload-understanding-netservices-solutions-and-prevention/"><u>Svchost.exe Overload: Understanding Netservices, Solutions & Prevention</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-cleaning-your-mac-best-tools-and-apps-reviewed-by-zdnet/"><u>The Ultimate Guide to Cleaning Your Mac : Best Tools and Apps Reviewed by ZDNet</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-top-10-free-football-streaming-websites-for-live-matches/"><u>Updated 2024 Approved Top 10 Free Football Streaming Websites for Live Matches</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-image-makeovers-on-the-house/"><u>[New] 2024 Approved Channel Image Makeovers on the House</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-15-online-photo-editors-you-should-try/"><u>[New] Best 15 Online Photo Editors You Should Try</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-vkontakte-profile-picture-info-pixel-count-codec-time/"><u>[Updated] 2024 Approved VKontakte Profile Picture Info Pixel Count, Codec, Time</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-comprehensive-guide-to-earnings-from-youtube-short-videos-for-2024/"><u>[Updated] A Comprehensive Guide to Earnings From YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-future-earnings-gaming-geeks-on-youtube/"><u>[Updated] Future Earnings Gaming Geeks on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-keep-unwanted-content-away-from-your-computer-and-phone/"><u>[Updated] How to Keep Unwanted Content Away From Your Computer and Phone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-shocking-stats-mind-bending-youtube-visual-facts-17/"><u>[Updated] Shocking Stats Mind-Bending Youtube Visual Facts ('17)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-shorts-decoding-the-income-distribution-model/"><u>2024 Approved YouTube Shorts Decoding the Income Distribution Model</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-friendly-methods-for-youtube-card-creation/"><u>Budget-Friendly Methods for YouTube Card Creation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/1715701262263-capture-and-store-screen-content-free/"><u>Capture and Store Screen Content, FREE!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-oppo-a1-5g-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Oppo A1 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-t2-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo T2 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-power-of-listening-understanding-your-youtube-audience/"><u>In 2024, The Power of Listening Understanding Your YouTube Audience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubing-into-visual-wonders-learn-from-greenscreen-pros/"><u>In 2024, Youtubing Into Visual Wonders – Learn From Greenscreen Pros</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-fixes-for-constant-ms-teams-sign-in-pages/"><u>Mastering Fixes for Constant MS Teams Sign-In Pages</u></a></li>
+<li><a href="https://windows11.techidaily.com/mending-the-error-not-connected-wifi-in-win/"><u>Mending the Error: 'Not Connected' WiFi in Win</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-challenges-with-windows-system-file-verification-processes/"><u>Overcoming Challenges with Windows System File Verification Processes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/subscribe-like-a-pro-true-or-false-for-2024/"><u>Subscribe Like a Pro True or False for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-most-essential-5-earbuds-for-gaming-for-2024/"><u>The Most Essential 5 Earbuds for Gaming for 2024</u></a></li>
 </ul></div>
 

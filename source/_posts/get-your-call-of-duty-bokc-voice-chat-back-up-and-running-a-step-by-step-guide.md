@@ -1,7 +1,7 @@
 ---
 title: "Get Your Call of Duty: BOKC Voice Chat Back Up and Running - A Step-by-Step Guide"
-date: 2025-02-08T18:47:25.401Z
-updated: 2025-02-09T17:59:11.754Z
+date: 2025-02-16T19:39:33.657Z
+updated: 2025-02-19T21:03:31.413Z
 tags:
   - win11
   - win10
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 
  When you’re about to enjoy the fight in Black Ops Cold War with your buddies, the last thing you want to know is that the voice chat stops working. Many gamers are reporting this**voice chat issue** with the new COD title. So here we have some fixes that worked for many veterans, try them and dominate the field with your amigos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  You might not need to try all of them. Just work your way down until you find a fix that works for you.
@@ -35,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
 6. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Check the connection of your audio device
@@ -43,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/74c4cd312c44e9d7a650b4b1e65607327faaab90d
  When your voice chat stops working, the first thing you want to do is check your connection. You need to **make sure the device cable is not broken or worn out, and is securely plugged into the correct headphone jack of your PC** . Or you can simply do a replug and see how it goes. If you’re using a headset with a switch, make sure you’ve turned on the mic.
 
 If the connection is fine, check out the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2: Disable your peripherals
 
@@ -63,20 +63,20 @@ First you need to check the default audio device on your system:
 2. Under the**Input** section, make sure your input device is set to your desired one. Then click**Device properties and test microphone** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/input-device-testing.jpg)
 3. Make sure the box next to**Disable** is unchecked, and the slider under**Volume** is set to 100.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/device-properties-and-test-microphone.jpg)
 4. Click **Start test** and tap or speak to your microphone. Then click **Stop test** . If you’re prompted **The highest value we saw was xx (xx > 0) percent** , it means your microphone has been set up correctly.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/sound-test-percent.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Set up your mic correctly in the Battle.net client
 
@@ -92,6 +92,10 @@ Next, you need to check the voice chat settings in the Battle.net client:
 Now launch Black Ops Cold War and see if you can talk to others.
 
  If your mic still doesn’t work in the game, you can try the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Update your audio driver
 
@@ -114,6 +118,10 @@ Now launch Black Ops Cold War and see if you can talk to others.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/Scan-now.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-pro-update-audio-bluetooth-usb-unifying.jpg)
 
@@ -123,10 +131,6 @@ Now launch Black Ops Cold War and see if you can talk to others.
 
  If updating the audio driver doesn’t work for you, simply continue to the next fix.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 5: Change the in-game audio settings
 
  For your voice chat to work correctly, you also need to make sure the in-game audio settings are properly set up. You can follow these steps to check:
@@ -135,11 +139,11 @@ Now launch Black Ops Cold War and see if you can talk to others.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-audio-settings.jpg)
 2. Be sure to set both**Speakers/Headphones Voice Chat Device** and**Microphone Device** to**Default Communication Device** . Set**Microphone Activation Mode** to**Open Mic** . Then increase the value of**Open Microphone Sensitivity** to over 50.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-ingame-voice-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now you can restart Black Ops Cold War and check if the voice chat is working.
 
@@ -156,10 +160,6 @@ Here’s a quick guide for that:
 2. Click**Check for updates** . Windows will download and install the available updates. Wait for the process to complete.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
@@ -184,24 +184,14 @@ Here’s a quick guide for that:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-converting-youtube-videos-into-engaging-gifs-on-devices/"><u>[New] 2024 Approved Converting YouTube Videos Into Engaging GIFs on Devices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-earning-potential-in-beauty-blogging/"><u>[New] 2024 Approved Earning Potential in Beauty Blogging</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-blocks-for-successful-channel-branding-and-growth/"><u>[New] In 2024, Building Blocks for Successful Channel Branding and Growth</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-controlling-comment-visibility-on-youtube-videos/"><u>[New] In 2024, Controlling Comment Visibility on YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-craft-compelling-videos-utilize-no-cost-templates-and-samples/"><u>[New] In 2024, Craft Compelling Videos Utilize No-Cost Templates & Samples</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-download-and-launch-an-easy-path-with-vrecord/"><u>[New] In 2024, Download and Launch An Easy Path with VRecord</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-depth-review-tunefabs-latest-in-screen-capture-tech-for-2024/"><u>[New] In-Depth Review Tunefab's Latest in Screen Capture Tech for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-video-storytelling-how-to-craft-impactful-and-informative-edu-vids-on-youtube/"><u>[New] The Art of Video Storytelling How to Craft Impactful and Informative Edu-Vids on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-convert-youtube-videos-smoothly-into-professional-webm-files/"><u>[Updated] 2024 Approved Convert YouTube Videos Smoothly Into Professional WebM Files</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-dynamic-public-speaker-review-v8/"><u>[Updated] In 2024, Dynamic Public Speaker Review V8</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-what-everyone-must-know-about-creating-short-form-videos/"><u>[Updated] What Everyone Must Know About Creating Short-Form Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-from-imagination-to-illustration-ranking-the-best-8-iphone-drawing-software/"><u>2024 Approved From Imagination to Illustration Ranking the Best 8 iPhone Drawing Software</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/easy-customization-of-screen-density-with-control-panel-expert-advice-from-yl-software-professionals/"><u>Easy Customization of Screen Density with Control Panel: Expert Advice From YL Software Professionals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-boundaries-with-amazons-cutting-edge-fitness-gadget-the-halo/"><u>Exploring the Boundaries with Amazon's Cutting-Edge Fitness Gadget - The Halo</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-future-of-computing-in-windows-11-for-2024/"><u>The Future of Computing in Windows 11 for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-cost-free-cgi-mastery-via-4-youtube-experts-insights-for-2024/"><u>The Ultimate Guide to Cost-Free CGI Mastery via 4 YouTube Experts' Insights for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-to-the-best-magsafe-battery-solutions-for-apple-devices-professional-insights-and-ratings-zdnet/"><u>Ultimate Guide to the Best MagSafe Battery Solutions for Apple Devices - Professional Insights and Ratings | ZDNet</u></a></li>
-<li><a href="https://win11.techidaily.com/unveiling-the-routine-for-ms-office-setup-in-windows-1011/"><u>Unveiling the Routine for MS Office Setup in WIndows 10/11</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725288987708-windows-winx-video-converter/"><u>Windows向け無料動画コンバーター WinX Video Converter - 初心者のための徹底解説ガイド</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-dynamic-typography-for-effects-top-10-picks-for-2024/"><u>[New] Dynamic Typography for Effects Top 10 Picks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-visibility-comprehensive-guide-to-video-marketing-titles/"><u>[New] In 2024, Elevate Visibility Comprehensive Guide to Video Marketing Titles</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-newest-camstudio-capture-and-review-2023-update-for-2024/"><u>[New] Newest CamStudio Capture & Review 2023 Update for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-avoid-these-8-steps-that-newcomers-often-miss-on-youtube/"><u>[Updated] 2024 Approved Avoid These 8 Steps that Newcomers Often Miss on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mr-beasts-wealth-estimated-net-worth/"><u>[Updated] Mr. Beast's Wealth Estimated Net Worth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-viewer-engagement-explore-12-successful-youtube-strategies/"><u>[Updated] Unleashing Viewer Engagement - Explore 12 Successful YouTube Strategies</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/2024s-leading-smartwatch-models-comprehensive-testing-and-expert-insights/"><u>2024'S Leading Smartwatch Models: Comprehensive Testing & Expert Insights</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-10-lost-and-found-techniques-for-iphone-x/"><u>Top 10 Lost and Found Techniques for iPhone X</u></a></li>
 </ul></div>
 

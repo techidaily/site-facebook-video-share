@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Shorts to MP4  A Step-by-Step Tutorial\""
-date: 2025-02-05T17:34:56.176Z
-updated: 2025-02-09T19:54:00.909Z
+date: 2025-02-15T19:33:02.007Z
+updated: 2025-02-19T16:00:59.509Z
 tags:
   - ai video
   - ai youtube
@@ -60,10 +60,6 @@ Another reason to get YouTube shorts to MP4 is for portability issues. Since MP4
 
 MP4 file format supports a high degree of lossless output quality as compared to other file formats. MP4 is highly preferred so that the recipient achieves the original output quality of the converted file. With MP4, you can also retain other parameters like title, sample rate, and channel among others.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How can we convert YouTube shorts to mp4?
 
 The importance of converting videos to MP4 format is weighty. But how do you convert YouTube Shorts to MP4? Plenty of apps are available for easy conversion. Both free, paid, and online converter apps can serve the purpose. Let’s check how to convert your files for free with the Freemake app, via an online app, and using the reliable tool, Filmora.
@@ -99,6 +95,10 @@ Easily engage an online tool to convert YouTube shorts to MP4 popular format wit
 First, choose the YouTube Short video that you wish to convert to MP4\. You can add your file from your computer or online sources like YouTube into the converter.
 
 ![convert shorts to mp4 online](https://images.wondershare.com/filmora/article-images/2021/shorts-to-mp4-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 2\. Customize settings
 
@@ -206,6 +206,10 @@ This is an easy-to-use converter that you use freely to trim your videos as well
 
 ![convert shorts to mp4 with freemake](https://images.wondershare.com/filmora/article-images/2021/shorts-to-mp4-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 1\. Download Freemake
 
 First, use any browser to download the Freemake app on your computer. Then choose custom installation. You also have the chance to deselect popping optional applications that present themselves for installation.
@@ -281,6 +285,10 @@ The next step is to drag and drop your video footage to the timeline. Filmora ac
 Even though this is optional, you can edit your video to add more juice. These include splitting your video via the Splitter button. You can also delete unwanted areas and even add filters and other effects to your preferences.
 
 ![convert youtube shorts to mp4 using Filmora](https://images.wondershare.com/filmora/article-images/2021/shorts-to-mp4-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 4\. Convert and Export
 
@@ -328,6 +336,10 @@ Another reason to get YouTube shorts to MP4 is for portability issues. Since MP4
 
 MP4 file format supports a high degree of lossless output quality as compared to other file formats. MP4 is highly preferred so that the recipient achieves the original output quality of the converted file. With MP4, you can also retain other parameters like title, sample rate, and channel among others.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How can we convert YouTube shorts to mp4?
 
 The importance of converting videos to MP4 format is weighty. But how do you convert YouTube Shorts to MP4? Plenty of apps are available for easy conversion. Both free, paid, and online converter apps can serve the purpose. Let’s check how to convert your files for free with the Freemake app, via an online app, and using the reliable tool, Filmora.
@@ -374,10 +386,6 @@ Wait for the YouTube Shorts to be converted to MP4 format. You can then save you
 
 ![convert shorts to mp4 online using cloudconvert](https://images.wondershare.com/filmora/article-images/2021/shorts-to-mp4-3.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3) Convert YouTube video to MP4 using Filmora
 
 Using a free video converter like Freemake will leave a watermark on your videos and hinder the quality. You will not also get lossless quality as the original content on YouTube Shorts. In this case, you can engage the best video converter, Filmora, to losslessly convert your videos to quality output.
@@ -423,6 +431,10 @@ Even though this is optional, you can edit your video to add more juice. These i
 When you are certain you have the perfect video, click on the “Export” tab to convert your files to MP4 format. Remember to set the final output to MP4 format among the available output options. Then freely play your video on any device and share it with friends on other platforms. There’ll be no hindrance anymore concerning compatibility issues.
 
 ![convert youtube shorts to mp4 with Filmora](https://images.wondershare.com/filmora/article-images/2021/shorts-to-mp4-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -464,6 +476,10 @@ Another reason to get YouTube shorts to MP4 is for portability issues. Since MP4
 
 MP4 file format supports a high degree of lossless output quality as compared to other file formats. MP4 is highly preferred so that the recipient achieves the original output quality of the converted file. With MP4, you can also retain other parameters like title, sample rate, and channel among others.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How can we convert YouTube shorts to mp4?
 
 The importance of converting videos to MP4 format is weighty. But how do you convert YouTube Shorts to MP4? Plenty of apps are available for easy conversion. Both free, paid, and online converter apps can serve the purpose. Let’s check how to convert your files for free with the Freemake app, via an online app, and using the reliable tool, Filmora.
@@ -499,10 +515,6 @@ Easily engage an online tool to convert YouTube shorts to MP4 popular format wit
 First, choose the YouTube Short video that you wish to convert to MP4\. You can add your file from your computer or online sources like YouTube into the converter.
 
 ![convert shorts to mp4 online](https://images.wondershare.com/filmora/article-images/2021/shorts-to-mp4-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step 2\. Customize settings
 
@@ -559,10 +571,6 @@ Even though this is optional, you can edit your video to add more juice. These i
 When you are certain you have the perfect video, click on the “Export” tab to convert your files to MP4 format. Remember to set the final output to MP4 format among the available output options. Then freely play your video on any device and share it with friends on other platforms. There’ll be no hindrance anymore concerning compatibility issues.
 
 ![convert youtube shorts to mp4 with Filmora](https://images.wondershare.com/filmora/article-images/2021/shorts-to-mp4-6.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -579,6 +587,10 @@ You are not limited to using any video file format. Several reasons may also com
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Financial Flourishing with Glamour Vlogs
 
@@ -587,7 +599,7 @@ You are not limited to using any video file format. Several reasons may also com
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Richard Bennett
@@ -603,7 +615,7 @@ There are a lot of ways you can make money by posting makeup, beauty, or fashion
 Here’s more advice on how you can make money from your makeup videos:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Sponsorships
@@ -694,10 +706,6 @@ Even better – if that person keeps shopping, or even skips the curling iron an
 
 Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Gifts
 
 Sometimes companies might just give you stuff.
@@ -741,7 +749,7 @@ Other times, brands may want you to say specific things or include logos in your
 Make sure to incorporate any brand messages or product placement you agree to do in ways that will feel natural to your viewers. You should let them know that you have a sponsor, and then incorporate the branded content in ways that do not take away from their enjoyment of your videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ad Revenue
@@ -769,10 +777,6 @@ As your following gets bigger, brands might start sending you samples of their p
 Receiving these kinds of gifts is not the same as getting paid, but it can certainly save you money on makeup.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -821,10 +825,6 @@ For example, if you talk about your new curling iron in a hair tutorial then you
 Even better – if that person keeps shopping, or even skips the curling iron and buys something else, you earn a percentage of any purchase they make on Amazon for a certain period of time.
 
 Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Gifts
 
@@ -857,24 +857,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cut-the-cord-clutter-simultaneous-playthrough-of-videos/"><u>[New] 2024 Approved Cut the Cord Clutter Simultaneous Playthrough of Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-grandiose-know-it-all-challenges-online-for-2024/"><u>[New] Grandiose KNOW-It All Challenges Online for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>[New] In 2024, Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-your-path-to-youtube-stardom-3-strategies-for-captivating-reaction-videos/"><u>[New] Your Path to YouTube Stardom 3 Strategies for Captivating Reaction Videos</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/tech-tip-revive-missing-windows-xp10-printer/"><u>[Tech Tip] Revive Missing Windows XP/10 Printer</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-steps-to-directly-share-videos-from-iphoneipad/"><u>[Updated] 2024 Approved Easy Steps to Directly Share Videos From iPhone/iPad</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-downloading-standardized-youtube-images-with-ease-and-precision-for-2024/"><u>[Updated] Downloading Standardized Youtube Images with Ease & Precision for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elevate-your-video-conferencing-game-with-slack-and-filmora-integration-for-2024/"><u>[Updated] Elevate Your Video Conferencing Game with Slack & Filmora Integration for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-empower-your-digital-tales-with-complimentary-upgrades/"><u>[Updated] In 2024, Empower Your Digital Tales with Complimentary Upgrades</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhance-your-video-with-these-premium-free-audio-stores/"><u>[Updated] In 2024, Enhance Your Video with These Premium, Free Audio Stores</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-learn-youtube-video-ad-building-at-no-cost/"><u>[Updated] Learn YouTube Video Ad Building at No Cost</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-avi-playback-software-for-computers/"><u>[Updated] Premium Avi Playback Software for Computers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-professional-footage-integrating-watermarks-and-logos-into-yt-videos/"><u>[Updated] Professional Footage Integrating Watermarks and Logos Into YT Videos</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-itel-a70-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Itel A70 FRP Locks</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-motorola-moto-g84-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Motorola Moto G84 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-find-x6-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo Find X6 Pro? Fixed | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/online-and-offline-freebies-in-text-animation/"><u>Online & Offline Freebies in Text Animation</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/thrive-with-1000-new-followers-each-month/"><u>Thrive with 1,000 New Followers Each Month</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/transforming-your-videos-for-igtv-excellence-3-methods-for-2024/"><u>Transforming Your Videos for IGTV Excellence (3 Methods) for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-unlocking-viewership-growth-on-twitch-top-4-strategies/"><u>[New] 2024 Approved Unlocking Viewership Growth on Twitch Top 4 Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-become-a-short-form-video-star-with-these-10-proven-methods-for-2024/"><u>[New] Become a Short-Form Video Star with These 10 Proven Methods for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-profits-the-guide-to-gainful-youtube-endeavors-sans-ads/"><u>[New] Maximizing Profits The Guide to Gainful YouTube Endeavors Sans Ads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-creme-de-la-creativite-youtube-subscriber-list/"><u>[New] The Crème De La Créativité YouTube Subscriber List</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-copyright-clarity-for-instagram-beats/"><u>[Updated] 2024 Approved Copyright Clarity for Instagram Beats</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-digital-dollars-earn-from-youtubers-in-8-ways-for-2024/"><u>[Updated] Digital Dollars Earn From YouTubers in 8 Ways for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tips-and-tricks-for-easily-finding-your-youtube-comments/"><u>[Updated] Tips & Tricks for Easily Finding Your YouTube Comments</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-vocal-variance-for-visuals-dynamic-voiceover-strategies-on-slides/"><u>2024 Approved Vocal Variance for Visuals Dynamic Voiceover Strategies on Slides</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-free-editing-sites-your-gateway-to-flawless-visual-content-creation-for-2024/"><u>Best Free Editing Sites - Your Gateway to Flawless Visual Content Creation for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mpeg-4mp4m4v/"><u>MPEG-4(MP4)ビデオを無料でM4V形式に変換する方法</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-editing-incorporating-jump-cuts-in-video-content-for-2024/"><u>Quick Editing Incorporating Jump Cuts in Video Content for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210241741-9780593329467-the-art-of-sacred-smoke/"><u>The Art of Sacred Smoke | Free Book</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-potential-with-anthropic-an-insider-guide-to-claude-3-ai-powered-prompts/"><u>Unlocking Potential with Anthropic: An Insider Guide to Claude 3 AI-Powered Prompts</u></a></li>
 </ul></div>
 

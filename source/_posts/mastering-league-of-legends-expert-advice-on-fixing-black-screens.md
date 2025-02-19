@@ -1,7 +1,7 @@
 ---
 title: "Mastering League of Legends: Expert Advice on Fixing Black Screens"
-date: 2025-02-04T17:44:07.806Z
-updated: 2025-02-09T18:12:54.368Z
+date: 2025-02-15T21:28:15.159Z
+updated: 2025-02-19T18:21:35.797Z
 tags:
   - win11
   - win10
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 **League of Legends keeps crashing?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  Here’s a list of fixes that have resolved this problem for other LoL players. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -28,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 * [Fix 5: Enable low spec mode](https://tools.techidaily.com/drivereasy/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Make sure your PC meets meets the system requirements for League of Legends
 
@@ -64,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
  If your PC meets the system requirement for League of Legends but the game crashing issue persists, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2: Update your drivers
 
  A missing or outdated driver may also trigger the game crashing issue. If it’s the case, this issue can be easily resolved after you update your drivers.
@@ -90,15 +86,15 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-83.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click**Update** next to any device to automatically download the correct version of its driver, then you can install it manually. Or click**Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.
 
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-84.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
 
@@ -116,15 +112,15 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-63-1024x796.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3) Wait until Windows downloaded and installed all the updates.
 
 4) Restart Windows and run League of Legends again.
 
  See if you can play the game without crashes. If so, you’ve fixed this issue! If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4: Repair corrupted game files
 
@@ -140,15 +136,15 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  4) Click**Yes** to continue. This may take a while.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
 
  Run the game to see if you can play it without crashes. If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Enable low spec mode
 
@@ -161,6 +157,10 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 2) In the upper-right corner, click**the gear button**  to open the game settings.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3)**Check the box** next to **Enable Low Spec Mode** and click **DONE** .
 
@@ -188,18 +188,14 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-broadcast-brilliance-with-cost-effective-templates/"><u>[New] 2024 Approved Broadcast Brilliance with Cost-Effective Templates</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breaking-the-mold-high-fidelity-sound-without-a-microphone/"><u>[New] In 2024, Breaking the Mold High-Fidelity Sound without a Microphone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-youtubes-operations-after-video-upload/"><u>[New] In 2024, Exploring YouTube's Operations After Video Upload</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-a-compreranly-approach-to-high-quality-ps3-video-capture/"><u>[Updated] 2024 Approved A Compreranly Approach to High-Quality PS3 Video Capture</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boost-your-channels-top-5-youtube-tricks-for-increased-visibility/"><u>[Updated] 2024 Approved Boost Your Channels Top 5 YouTube Tricks for Increased Visibility</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-quick-recap-of-chromakey-and-green-screen-processes-for-2024/"><u>[Updated] Quick Recap of Chromakey and Green Screen Processes for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-free-cloud-based-video-editing-tools/"><u>[Updated] The Best Free, Cloud-Based Video Editing Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-click-reward-spectrum/"><u>[Updated] The Ultimate Click Reward Spectrum</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-step-by-step-mastering-ppros-full-screen-preview/"><u>2024 Approved Step-by-Step Mastering PPro's Full Screen Preview</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/break-free-from-format-restrictions-chromecast-streaming-for-all-videos-for-2024/"><u>Break Free From Format Restrictions Chromecast Streaming for All Videos for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Motorola Moto G23? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/issue-with-non-appearing-iphone-notifications-resolve-it-using-these-eight-solutions/"><u>Issue with Non-Appearing iPhone Notifications? Resolve It Using These Eight Solutions!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/video-freelancers-talent-agreement-form/"><u>Video Freelancers Talent Agreement Form</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-superior-choices-elite-webcam-holders/"><u>[New] 2024 Approved Superior Choices Elite Webcam Holders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhance-engagement-top-tools-and-tips-for-properly-tagged-videos-for-2024/"><u>[New] Enhance Engagement Top Tools and Tips for Properly Tagged Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-channel-techniques-for-logo-insertion-in-videos/"><u>[Updated] 2024 Approved Elevate Your Channel Techniques for Logo Insertion in Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-symphony-of-selection-assembling-your-best-music-choices-on-youtube/"><u>[Updated] In 2024, A Symphony of Selection Assembling Your Best Music Choices on YouTube</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/boost-your-development-workflow-with-these-7-advanced-chatbot-tools-for-visual-studio-code/"><u>Boost Your Development Workflow with These 7 Advanced Chatbot Tools for Visual Studio Code</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/how-can-you-ensure-optimal-ram-functionality-expert-tips-by-yl-software-professionals/"><u>How Can You Ensure Optimal RAM Functionality? Expert Tips by YL Software Professionals</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-xiaomi-redmi-note-12-proplus-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Xiaomi Redmi Note 12 Pro+ 5G Devices</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/visualize-humor-use-kapwing-for-making-memes/"><u>Visualize Humor - Use Kapwing for Making Memes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-first-steps-in-online-broadcasting-via-obs-for-2024/"><u>Your First Steps in Online Broadcasting via OBS for 2024</u></a></li>
 </ul></div>
 

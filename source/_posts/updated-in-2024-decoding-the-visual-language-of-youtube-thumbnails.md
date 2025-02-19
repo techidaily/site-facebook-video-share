@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Decoding the Visual Language of YouTube Thumbnails"
-date: 2025-02-07T21:21:15.070Z
-updated: 2025-02-09T17:42:53.564Z
+date: 2025-02-13T16:50:30.525Z
+updated: 2025-02-19T19:09:05.541Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Make a YouTube Thumbnail
 
 In order to create a custom video thumbnail, you’ll need a program to put it together in. You can use an image editing program like Photoshop if you have one, but if you don’t you can check out these [free thumbnail makers](#makers).
@@ -43,10 +47,6 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
@@ -73,6 +73,10 @@ In some cases you might use text to make it clear what type of video you’ve ma
 You should also avoid fonts that are harder to read. Fonts with a lot of curves can be harder to read, and you want to make sure you choose a color that stands out from your background. Yellow might work against black, but it probably won’t work against the beige wall of your sunny bedroom. Sans serif fonts tend to be best.
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
@@ -121,10 +125,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -138,6 +138,10 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -178,7 +182,7 @@ Type your video’s title or topic into the search engine on YouTube and look at
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: Animated YouTube Thumbnails
@@ -189,10 +193,6 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
@@ -200,7 +200,7 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -220,24 +220,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-blocks-of-a-well-structured-youtube-video/"><u>[New] 2024 Approved Building Blocks of a Well-Structured YouTube Video</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-decoding-youtubes-legal-framework-for-video-creators-for-2024/"><u>[New] Decoding YouTube's Legal Framework for Video Creators for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-enlarge-your-videos-thumbnail-on-youtube-easily-for-2024/"><u>[New] Enlarge Your Video's Thumbnail on YouTube Easily for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-8-youtube-thumbnail-generators-online/"><u>[New] In 2024, Discover 8 YouTube Thumbnail Generators Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capture-youtube-video-in-screenshot-forms-for-free/"><u>[Updated] In 2024, Capture YouTube Video in Screenshot Forms for Free</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-create-gifs-from-youtube-videos/"><u>[Updated] In 2024, How to Create GIFs From YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamline-youtube-sounds-to-mp3-using-mac/"><u>[Updated] Streamline YouTube Sounds to MP3 Using Mac</u></a></li>
-<li><a href="https://media-tips.techidaily.com/high-quality-techniques-the-leading-three-ways-to-transform-midi-into-exquisite-mp3-format/"><u>High-Quality Techniques: The Leading Three Ways to Transform MIDI Into Exquisite MP3 Format</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-tactics-for-youtube-success-in-25-ways/"><u>In 2024, Essential Tactics for YouTube Success in 25 Ways</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-samsung-galaxy-xcover-7-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Samsung Galaxy XCover 7 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-is-youtubes-monetization-payment-frequent/"><u>In 2024, Is YouTube's Monetization Payment Frequent?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-studio-validating-earnings-flow/"><u>In 2024, YouTube Studio Validating Earnings Flow</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ipad-air-4-vs-ipad-air-5-showdown-is-it-time-to-upgrade-your-tablet-tech-advice/"><u>IPad Air 4 vs iPad Air 5 Showdown: Is It Time to Upgrade Your Tablet? | Tech Advice</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/is-microsofts-next-move-in-arm-based-windows-set-to-surpass-apple-m1-performance-an-analysis/"><u>Is Microsoft's Next Move in ARM-Based Windows Set to Surpass Apple M1 Performance? - An Analysis</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719361339925-solving-ms-to-do-discrepancies-no-sync-heres-how/"><u>Solving MS To-Do Discrepancies: No Sync? Here's How</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/step-up-your-content-learn-how-to-make-captivating-youtube-shorts-for-2024/"><u>Step Up Your Content Learn How to Make Captivating YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-art-of-yt-previews-making-a-lasting-first-impression-for-2024/"><u>The Art of YT Previews Making a Lasting First Impression for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/transformer-un-fichier-quicktime-qt-en-video-windows-media-wmv-en-ligne-gratuit-avec-movavi/"><u>Transformer Un Fichier QuickTime (QT) en Vídeo Windows Media (WMV) en Ligne Gratuit Avec Movavi</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/uncovering-grok-ai-with-elon-what-it-means-and-how-much-it-costs/"><u>Uncovering Grok AI with Elon: What It Means & How Much It Costs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-audience-organically-tactics-that-deliver-views/"><u>[New] 2024 Approved Building Audience Organically Tactics That Deliver Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-compelling-end-screens-in-youtube-videos/"><u>[New] 2024 Approved Crafting Compelling End Screens in YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-evaluating-earnings-from-one-million-youtube-watches/"><u>[New] 2024 Approved Evaluating Earnings From One Million YouTube Watches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-engagement-enhancing-videos-with-pro-editing-skills-for-2024/"><u>[Updated] Elevate Engagement Enhancing Videos with Pro Editing Skills for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-gain-techniques-to-expand-your-channels-audience/"><u>[Updated] Quick-Gain Techniques to Expand Your Channel's Audience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-abbreviated-film-dialogue-scheme/"><u>2024 Approved Abbreviated Film Dialogue Scheme</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341695533-exploring-the-features-of-the-asus-pro-b760m-ct-csm-motherboard-reviewed/"><u>Exploring the Features of the ASUS Pro B760M-CT CSM Motherboard - Reviewed!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-y02t-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo Y02T is off? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-geforce-gtx-460-drivers-for-windows-systems-quick-download-guide/"><u>Latest GeForce GTX 460 Drivers for Windows Systems - Quick Download Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-retrieving-sent-emails-from-your-inbox-using-microsoft-outlook/"><u>Step-by-Step Guide: Retrieving Sent Emails From Your Inbox Using Microsoft Outlook</u></a></li>
+<li><a href="https://fox-within.techidaily.com/step-by-step-solutions-for-unseen-network-drives-on-your-windows-n-version/"><u>Step-by-Step Solutions for Unseen Network Drives on Your Windows N Version</u></a></li>
 </ul></div>
 

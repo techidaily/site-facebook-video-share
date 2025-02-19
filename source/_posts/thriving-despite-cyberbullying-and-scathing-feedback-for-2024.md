@@ -1,7 +1,7 @@
 ---
 title: "Thriving Despite Cyberbullying and Scathing Feedback for 2024"
-date: 2024-08-01T09:17:04.147Z
-updated: 2024-08-02T09:17:04.147Z
+date: 2025-02-17T18:21:00.617Z
+updated: 2025-02-19T16:51:52.962Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/45bc41dfd22bb4252a227dcc20488f6faf42f4a30
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/45bc41dfd22bb4252a227dcc20488f6faf42f4a30
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/45bc41dfd22bb4252a227dcc20488f6faf42f4a30
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,12 +68,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-essential-macsrt-editing-techniques-unveiled/"><u>[New] 2024 Approved Essential MacSrt Editing Techniques Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mac-screen-alignment-rapid-video-format-changes/"><u>[New] Mac Screen Alignment Rapid Video Format Changes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mcb-channel-theme-images-and-templates/"><u>[New] MCB Channel Theme Images and Templates</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-storyboarding-through-instagram-slides-for-2024/"><u>[New] Storyboarding Through Instagram Slides for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-what-lies-beneath-an-exploration-into-youtubes-unlisted-video-space/"><u>[New] What Lies Beneath An Exploration Into YouTube's Unlisted Video Space</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-innovation-and-performance-metrics-for-top-screen-recorders-featuring-apeaksoft/"><u>[Updated] In 2024, Innovation and Performance Metrics for Top Screen Recorders, Featuring Apeaksoft</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-to-crafting-youtube-splitscreen-content/"><u>[Updated] Step-by-Step Guide to Crafting YouTube Splitscreen Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-free-easy-tag-extraction-compilation-of-7-best-no-cost-online-tools/"><u>2024 Approved Free, Easy Tag Extraction Compilation of 7 Best No-Cost Online Tools</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-powered-deception-exploring-7-techniques-used-by-fraudsters-in-love-cons/"><u>AI-Powered Deception: Exploring 7 Techniques Used by Fraudsters in Love Cons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/discovering-if-quick-youtube-subscriptions-really-work-for-2024/"><u>Discovering if Quick YouTube Subscriptions Really Work. For 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-resolve-the-internal-power-failure-on-your-pc-running-windows-10/"><u>How to Resolve the Internal Power Failure on Your PC Running Windows 10</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimal-strategies-for-selective-youtube-video-downloads-for-2024/"><u>Optimal Strategies for Selective YouTube Video Downloads for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-7-standing-desks-of-2023-comprehensive-review/"><u>Top 7 Standing Desks of 2023: Comprehensive Review</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-made-simple-update-or-download-epson-printer-drivers-on-windows/"><u>Troubleshooting Made Simple: Update or Download Epson Printer Drivers on Windows</u></a></li>
+</ul></div>
 

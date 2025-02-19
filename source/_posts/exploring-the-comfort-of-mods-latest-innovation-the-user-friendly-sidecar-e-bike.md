@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike"
-date: 2025-02-04T17:35:36.617Z
-updated: 2025-02-09T19:24:12.885Z
+date: 2025-02-16T19:06:57.446Z
+updated: 2025-02-19T20:21:54.977Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Comfort of Mod's Latest Innovation: The User-Friendly Sidecar E-Bike"
@@ -12,10 +12,6 @@ thumbnail: https://thmb.techidaily.com/e475d95ff83684e67af3ed3b0fb046f03e477b4f8
 ## Cutting the Cord: A Comprehensive Review of the Amazon Basics Flat Antenna for Free TV Enthusiasts
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -46,7 +42,7 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -71,7 +67,7 @@ Lifewire / Erika Rawes
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: It’s all in the name (basic)**
@@ -81,10 +77,6 @@ Lifewire / Erika Rawes
  It doesn’t come with a stand, but it does include 3M double-sided adhesives you can use to attach the antenna to walls or other surfaces. It also comes with a 10-foot long coax cable, which is removable. The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
 
@@ -104,7 +96,15 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -114,10 +114,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -125,6 +121,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -167,22 +167,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-the-essential-guide-to-transferring-tunes-across-platforms-for-2024/"><u>[New] The Essential Guide to Transferring Tunes Across Platforms for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-epicurean-epiphanies-filming-feast-creation-for-2024/"><u>[Updated] Epicurean Epiphanies Filming Feast Creation for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-captivating-clips-keywords-that-ignite-viral-shorts-on-youtube/"><u>[Updated] In 2024, Captivating Clips Keywords That Ignite Viral Shorts on YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-core-asmr-platforms-explored/"><u>[Updated] In 2024, Core ASMR Platforms Explored</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expertly-design-your-3d-openers-best-picks/"><u>[Updated] In 2024, Expertly Design Your 3D Openers Best Picks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-how-to-create-a-youtube-music-playlist/"><u>[Updated] In 2024, How to Create a YouTube Music Playlist</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-subscription-sensation-top-10-youtube-personalities-by-counts/"><u>[Updated] Subscription Sensation Top 10 YouTube Personalities by Counts</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-ultimate-training-harnessing-the-power-of-adobe-captivates-screen-record-feature/"><u>[Updated] Ultimate Training Harnessing the Power of Adobe Captivate's Screen Record Feature</u></a></li>
-<li><a href="https://driver-install.techidaily.com/direct-support-toolkit-epson-2650-model-drivers-bundle/"><u>Direct Support Toolkit: Epson 2650 Model Drivers Bundle</u></a></li>
-<li><a href="https://win11.techidaily.com/effortless-guide-finding-and-downloading-your-favorite-disney-films/"><u>Effortless Guide: Finding & Downloading Your Favorite Disney Films</u></a></li>
-<li><a href="https://article-tips.techidaily.com/expedite-your-experience-quick-iphone-time-lapse/"><u>Expedite Your Experience Quick iPhone Time-Lapse</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Vivo Y27 4G? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-tecno-spark-10-pro-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Tecno Spark 10 Pro</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/new-amd-ryzen-9000-and-zen-5-chips-announced-by-gigabyte-with-upcoming-beta-bios-support-for-x570-boards/"><u>New AMD Ryzen 9000 and Zen 5 Chips Announced by Gigabyte with Upcoming Beta BIOS Support for X570 Boards</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/the-comprehensive-guide-to-digital-wallets-objective-expertise-by-yl-software-team/"><u>The Comprehensive Guide to Digital Wallets' Objective - Expertise by YL Software Team</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-money-making-guide-to-streaming-services-for-2024/"><u>The Ultimate Money-Making Guide to Streaming Services for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unraveling-monetization-strategies-in-the-realm-of-video-shorts-for-2024/"><u>Unraveling Monetization Strategies in the Realm of Video Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-iconic-beauty-personalities-to-follow-on-youtube/"><u>[New] 2024 Approved 10 Iconic Beauty Personalities to Follow on YouTube</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-exploring-the-new-frontier-what-makes-triller-stand-out-in-2024/"><u>[New] Exploring the New Frontier What Makes Triller Stand Out, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/olo-shots-showmanship-elevate-your-youtube-persona-for-2024/"><u>[New] Solo Shots Showmanship Elevate Your YouTube Persona for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-unleash-social-potential-transitioning-from-twitter-videos-to-whatsapp-for-2024/"><u>[New] Unleash Social Potential Transitioning From Twitter Videos to WhatsApp for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-star-channel-cutting-long-urls-down-for-youtube-videos/"><u>[Updated] In 2024, 5-Star Channel Cutting Long URLs Down for YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-captivate-viewers-designing-engaging-youtube-trailers-with-filmora/"><u>[Updated] In 2024, Captivate Viewers Designing Engaging YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-media-makers-software-linux-edition/"><u>[Updated] In 2024, Essential Media Makers' Software Linux Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-sculpting-waterway-content-with-flair/"><u>[Updated] Sculpting Waterway Content with Flair</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mac-os-dvd-macdvdmp4iphoneipad/"><u>高性能Mac OS DVD转换工具 - 精选专业解锁软件用于在Mac上提取加密DVD并转成MP4/iPhone/iPad视频</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-capturecare-essential-guide-to-ig-photo-and-video-resize/"><u>In 2024, CaptureCare Essential Guide to IG Photo & Video Resize</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-top-8-youtube-images-that-captivate-and-convert-viewers/"><u>In 2024, Top 8 YouTube Images That Captivate and Convert Viewers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210012062-9781071539590-megan-y-el-ciclista/"><u>Megan y el ciclista | Free Book</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamline-your-show-entry-on-apple-media/"><u>Streamline Your Show Entry on Apple Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/turning-viewers-into-cash-a-youtube-advertising-primer-for-2024/"><u>Turning Viewers Into Cash A YouTube Advertising Primer for 2024</u></a></li>
 </ul></div>
 
